@@ -1,7 +1,7 @@
 Roy Tang :: Programmer, engineer, scientist, critic, gamer, dreamer, and kid-at-heart.
 ![](https://roytang.net/img/profile.jpg)
 
-Visit the site: ![.Permalink]
+Visit the site: ![https://roytang.net](.Permalink)
 
 Latest blog posts:
     
