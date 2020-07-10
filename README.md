@@ -18,11 +18,11 @@ Latest blog posts:
 Latest shared links:
     
 
+- [Ten modern layouts in one line of CSS](https://roytang.net/2020/07/ten-modern-layouts-in-one-line-of-css/)
 - [Alike, an Animated Short Film](https://roytang.net/2020/07/alike-an-animated-short-film/)
 - [De-Escalating Social Media](https://roytang.net/2020/07/de-escalating-social-media/)
 - [Dark Ages of the Web](https://roytang.net/2020/07/dark-ages-of-the-web/)
 - [Websites that spark joy.](https://roytang.net/2020/07/websites-that-spark-joy/)
-- [Always bet on HTML](https://roytang.net/2020/06/always-bet-on-html/)
 
 [View all links](https://roytang.net/links)
 
