@@ -29,11 +29,11 @@ Latest shared links:
 Latest notes:
     
 
+- [11 Jul 2020 4:16pm](https://roytang.net/2020/07/1281985727350206470/): @quizandhers Oh, thanks for reporting!
 - [10 Jul 2020 10:14am](https://roytang.net/2020/07/1281532170788429825/): Ang mensahe nila ay GMA-7, ABC-5 at ibang media - huwag nyo saktan ang Pangulo ha. At wag na wag nyo kaming banatan sa expose nyo. Maging tuta na lang kayo. Tulad namin. #DefendPressFreedom
 - [10 Jul 2020 7:30am](https://roytang.net/2020/07/1281491013878468608/): And yet it moves
 - [9 Jul 2020 6:11pm](https://roytang.net/2020/07/1281289961447124994/): are you serious
 - [9 Jul 2020 8:38am](https://roytang.net/2020/07/1281145691880878081/): Listening to these dishonorable Congressmen rant about their personal problems vs a broadcast network to justify taking them down reminds me of the Filipino saying &ldquo;Kung gusto may paraan, kung ayaw may dahilan&rdquo;
-- [9 Jul 2020 6:09am](https://roytang.net/2020/07/0f0e7126893e7fc999f53de315f79249/): Can&rsquo;t access mastodon.technology since last night, via either my broadband or mobile network. Downforeveryoneorjustme says it&rsquo;s up. I assume if it&rsquo;s some kind of ip ban I would at least see a message instead of just timing out
 
 [View all notes](https://roytang.net/notes)
 
