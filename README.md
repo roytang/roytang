@@ -7,11 +7,11 @@ Visit the site: ![https://roytang.net](.Permalink)
 Latest blog posts:
     
 
+- [Using Hugo to Automatically Update Your Github Profile](https://roytang.net/2020/07/hugo-update-github-profile/)
 - [Weeknotes 2020-07-05: Anti-Error Edition](https://roytang.net/2020/07/weeknotes-07-05/)
 - [Image Lightboxes using HTML/CSS](https://roytang.net/2020/07/image-lightboxes-using-html/css/)
 - [Weeknotes 2020-06-28: Internet Outage Edition](https://roytang.net/2020/06/weeknotes-06-28/)
 - [Scraping Facebook](https://roytang.net/2020/06/scraping-facebook/)
-- [Weeknotes 2020-06-21: There&#39;s no gettin&#39; off this train we&#39;re on](https://roytang.net/2020/06/weeknotes-06-21/)
 
 [View all posts](https://roytang.net/blog)
 
