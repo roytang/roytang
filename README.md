@@ -29,12 +29,13 @@ Latest shared links:
 Latest notes:
     
 
+- [12 Jul 2020 3:01pm](https://roytang.net/2020/07/1282329311496695808/): The screencapped tweet and the preceding discussions reveal a particularly insidious mindset among the fanatics: (a) they understand full well what this admin is doing despite the palace&rsquo;s BS claims of &ldquo;neutrality&rdquo; (1/x)
+Quoted MaoiArroyo&#39;s tweet:   Nope. Never have and never will. I made my &ldquo;fuck you&rdquo; money investing in the Filipino people. It&rsquo;s called &ldquo;fuck you&rdquo; money because I have enough saved up to say that if pressured.
 - [12 Jul 2020 12:00am](https://roytang.net/2020/07/covid19-07-12/): Pandemic thoughts and updates, July 12 edition:
  haven&rsquo;t had a haircut since January. Been urged to go out and get one, but feels like an unnecessary risk. As a friend of mine said &ldquo;Like, it&rsquo;s one thing to get sick because I picked up groceries or something. Would feel really dumb to be intubated because I wanted a haircut&rdquo; Did a grocery run yesterday. Not too crowded. Hopefully didn&rsquo;t get sick.
 - [11 Jul 2020 4:16pm](https://roytang.net/2020/07/1281985727350206470/): @quizandhers Oh, thanks for reporting!
 - [10 Jul 2020 10:14am](https://roytang.net/2020/07/1281532170788429825/): Ang mensahe nila ay GMA-7, ABC-5 at ibang media - huwag nyo saktan ang Pangulo ha. At wag na wag nyo kaming banatan sa expose nyo. Maging tuta na lang kayo. Tulad namin. #DefendPressFreedom
 - [10 Jul 2020 7:30am](https://roytang.net/2020/07/1281491013878468608/): And yet it moves
-- [9 Jul 2020 6:11pm](https://roytang.net/2020/07/1281289961447124994/): are you serious
 
 [View all notes](https://roytang.net/notes)
 
