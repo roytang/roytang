@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [15 Jul 2020 3:53pm](https://roytang.net/2020/07/b74a3432dfd7293ec59730ff16e66151/): I just said &ldquo;Okay, screw you NPM!&rdquo; out loud.
 - [15 Jul 2020 7:58am](https://roytang.net/2020/07/1283309985632378880/): hindi natin kaya mag &ldquo;mass testing&rdquo;
   &ldquo;neutral&rdquo; ang president sa ABS-CBN shutdown
   we acted &ldquo;early&rdquo; in response to the pandemic
@@ -40,8 +41,6 @@ Quoted ANCALERTS&#39;s tweet:   Presidential spokesman Harry Roque maintained th
 - [14 Jul 2020 10:53pm](https://roytang.net/2020/07/1283172770377940992/): I must confess, I don&rsquo;t understand what &ldquo;anti-cancel culture&rdquo; people hope to accomplish. Do they think we should not be allowed to dislike other people&rsquo;s opinions?
 - [12 Jul 2020 3:01pm](https://roytang.net/2020/07/1282329311496695808/): The screencapped tweet and the preceding discussions reveal a particularly insidious mindset among the fanatics: (a) they understand full well what this admin is doing despite the palace&rsquo;s BS claims of &ldquo;neutrality&rdquo; (1/x)
 Quoted MaoiArroyo&#39;s tweet:   Nope. Never have and never will. I made my &ldquo;fuck you&rdquo; money investing in the Filipino people. It&rsquo;s called &ldquo;fuck you&rdquo; money because I have enough saved up to say that if pressured.
-- [12 Jul 2020 12:00am](https://roytang.net/2020/07/covid19-07-12/): Pandemic thoughts and updates, July 12 edition:
- haven&rsquo;t had a haircut since January. Been urged to go out and get one, but feels like an unnecessary risk. As a friend of mine said &ldquo;Like, it&rsquo;s one thing to get sick because I picked up groceries or something. Would feel really dumb to be intubated because I wanted a haircut&rdquo; Did a grocery run yesterday. Not too crowded. Hopefully didn&rsquo;t get sick.
 
 [View all notes](https://roytang.net/notes)
 
