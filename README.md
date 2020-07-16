@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [16 Jul 2020 9:18am](https://roytang.net/2020/07/1283692366520446978/): Quoted ABSCBNNews&#39;s tweet:   A college student was subpoenaed by the NBI Cybercrime Division for sharing a post critical of Sen. Bong Go. The student’s lawyer declined to be interviewed but confirmed that it was the senator’s lawyers who filed the complaint. | via @Nikobaua  
 - [15 Jul 2020 3:53pm](https://roytang.net/2020/07/b74a3432dfd7293ec59730ff16e66151/): I just said &ldquo;Okay, screw you NPM!&rdquo; out loud.
 - [15 Jul 2020 7:58am](https://roytang.net/2020/07/1283309985632378880/): hindi natin kaya mag &ldquo;mass testing&rdquo;
   &ldquo;neutral&rdquo; ang president sa ABS-CBN shutdown
@@ -39,8 +40,6 @@ Latest notes:
 - [15 Jul 2020 3:09am](https://roytang.net/2020/07/1283237290664292359/): If the ABS CBN shutdown was actually good for the nation, why is the president&rsquo;s spokesman insistent on pretending he is neutral about it? Ever heard of a politician refusing to take credit for a good thing?
 Quoted ANCALERTS&#39;s tweet:   Presidential spokesman Harry Roque maintained that Duterte remains &ldquo;neutral&rdquo; on ABS-CBN and did not have a hand in its failed franchise application bid despite the President&rsquo;s fresh tirades against the embattled media giant in a recording of his speech reported by the Inquirer.
 - [14 Jul 2020 10:53pm](https://roytang.net/2020/07/1283172770377940992/): I must confess, I don&rsquo;t understand what &ldquo;anti-cancel culture&rdquo; people hope to accomplish. Do they think we should not be allowed to dislike other people&rsquo;s opinions?
-- [12 Jul 2020 3:01pm](https://roytang.net/2020/07/1282329311496695808/): The screencapped tweet and the preceding discussions reveal a particularly insidious mindset among the fanatics: (a) they understand full well what this admin is doing despite the palace&rsquo;s BS claims of &ldquo;neutrality&rdquo; (1/x)
-Quoted MaoiArroyo&#39;s tweet:   Nope. Never have and never will. I made my &ldquo;fuck you&rdquo; money investing in the Filipino people. It&rsquo;s called &ldquo;fuck you&rdquo; money because I have enough saved up to say that if pressured.
 
 [View all notes](https://roytang.net/notes)
 
