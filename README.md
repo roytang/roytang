@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [17 Jul 2020 8:48am](https://roytang.net/2020/07/1284047361648422912/): @switchfollows format is interesting but now i need more gold lol
 - [17 Jul 2020 7:14am](https://roytang.net/2020/07/1284023578459992065/): @triviastorm !report
 - [17 Jul 2020 5:40am](https://roytang.net/2020/07/1284000086695964673/): Wait, did the PH really express support?!?
 Quoted Comrad_Euro&#39;s tweet:   GREEN - Countries that expressed support for Chinese interment of Uighurs
@@ -38,12 +39,6 @@ Amazing
  
 - [16 Jul 2020 9:18am](https://roytang.net/2020/07/1283692366520446978/): Quoted ABSCBNNews&#39;s tweet:   A college student was subpoenaed by the NBI Cybercrime Division for sharing a post critical of Sen. Bong Go. The student’s lawyer declined to be interviewed but confirmed that it was the senator’s lawyers who filed the complaint. | via @Nikobaua  
 - [15 Jul 2020 3:53pm](https://roytang.net/2020/07/b74a3432dfd7293ec59730ff16e66151/): I just said &ldquo;Okay, screw you NPM!&rdquo; out loud.
-- [15 Jul 2020 7:58am](https://roytang.net/2020/07/1283309985632378880/): hindi natin kaya mag &ldquo;mass testing&rdquo;
-  &ldquo;neutral&rdquo; ang president sa ABS-CBN shutdown
-  we acted &ldquo;early&rdquo; in response to the pandemic
-  &ldquo;healthy&rdquo; pa ang president
-  we have already &ldquo;flattened&rdquo; the curve
-  Same energy.
 
 [View all notes](https://roytang.net/notes)
 
