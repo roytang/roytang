@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [17 Jul 2020 7:14am](https://roytang.net/2020/07/1284023578459992065/): @triviastorm !report
 - [17 Jul 2020 5:40am](https://roytang.net/2020/07/1284000086695964673/): Wait, did the PH really express support?!?
 Quoted Comrad_Euro&#39;s tweet:   GREEN - Countries that expressed support for Chinese interment of Uighurs
 RED - countries that expressed opposition to it
@@ -43,8 +44,6 @@ Amazing
   &ldquo;healthy&rdquo; pa ang president
   we have already &ldquo;flattened&rdquo; the curve
   Same energy.
-- [15 Jul 2020 3:09am](https://roytang.net/2020/07/1283237290664292359/): If the ABS CBN shutdown was actually good for the nation, why is the president&rsquo;s spokesman insistent on pretending he is neutral about it? Ever heard of a politician refusing to take credit for a good thing?
-Quoted ANCALERTS&#39;s tweet:   Presidential spokesman Harry Roque maintained that Duterte remains &ldquo;neutral&rdquo; on ABS-CBN and did not have a hand in its failed franchise application bid despite the President&rsquo;s fresh tirades against the embattled media giant in a recording of his speech reported by the Inquirer.
 
 [View all notes](https://roytang.net/notes)
 
