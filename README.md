@@ -29,6 +29,8 @@ Latest shared links:
 Latest notes:
     
 
+- [18 Jul 2020 6:30pm](https://roytang.net/2020/07/1284556159211368448/): 1/ There&rsquo;s a fascinating story of a normal guy named Allen Hemberger who became obsessed with the Alinea cookbook. He spent 5 years re-creating all 107 recipes.
+There&rsquo;s an extremely valuable lesson in this process for anyone thinking about taking the leap to become a creator.
 - [18 Jul 2020 11:16am](https://roytang.net/2020/07/1284447050117996545/): @mikong TBF, all job postings are discriminatory (since they&rsquo;re used to filter) :p
 - [17 Jul 2020 8:48am](https://roytang.net/2020/07/1284047361648422912/): @switchfollows format is interesting but now i need more gold lol
 - [17 Jul 2020 7:14am](https://roytang.net/2020/07/1284023578459992065/): @triviastorm !report
@@ -38,7 +40,6 @@ RED - countries that expressed opposition to it
 The Islamic world is beyond pathetic, not only are they not against it but they&rsquo;re giving vocal support to an atheist government reeducating Muslims
 Amazing
  
-- [16 Jul 2020 9:18am](https://roytang.net/2020/07/1283692366520446978/): Quoted ABSCBNNews&#39;s tweet:   A college student was subpoenaed by the NBI Cybercrime Division for sharing a post critical of Sen. Bong Go. The student’s lawyer declined to be interviewed but confirmed that it was the senator’s lawyers who filed the complaint. | via @Nikobaua  
 
 [View all notes](https://roytang.net/notes)
 
