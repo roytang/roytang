@@ -29,17 +29,12 @@ Latest shared links:
 Latest notes:
     
 
+- [19 Jul 2020 8:37am](https://roytang.net/2020/07/1284769215526744065/): @momblogger has this been covered by the remaining media outlets? GMA, Rappler, CNN etc. Defensor et al need to explain themselves
 - [18 Jul 2020 6:30pm](https://roytang.net/2020/07/1284556159211368448/): 1/ There&rsquo;s a fascinating story of a normal guy named Allen Hemberger who became obsessed with the Alinea cookbook. He spent 5 years re-creating all 107 recipes.
 There&rsquo;s an extremely valuable lesson in this process for anyone thinking about taking the leap to become a creator.
 - [18 Jul 2020 11:16am](https://roytang.net/2020/07/1284447050117996545/): @mikong TBF, all job postings are discriminatory (since they&rsquo;re used to filter) :p
 - [17 Jul 2020 8:48am](https://roytang.net/2020/07/1284047361648422912/): @switchfollows format is interesting but now i need more gold lol
 - [17 Jul 2020 7:14am](https://roytang.net/2020/07/1284023578459992065/): @triviastorm !report
-- [17 Jul 2020 5:40am](https://roytang.net/2020/07/1284000086695964673/): Wait, did the PH really express support?!?
-Quoted Comrad_Euro&#39;s tweet:   GREEN - Countries that expressed support for Chinese interment of Uighurs
-RED - countries that expressed opposition to it
-The Islamic world is beyond pathetic, not only are they not against it but they&rsquo;re giving vocal support to an atheist government reeducating Muslims
-Amazing
- 
 
 [View all notes](https://roytang.net/notes)
 
