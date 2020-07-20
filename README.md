@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [20 Jul 2020 3:13pm](https://roytang.net/2020/07/1285231261179498500/): @misterorange wait, is it in the set as both a common and a rare&hellip;?
 - [20 Jul 2020 11:59am](https://roytang.net/2020/07/1285182616069537792/): @visakanv how did you end up exporting them
 - [19 Jul 2020 5:46pm](https://roytang.net/2020/07/1284907506725040129/): Wow. I havent read Real Life Comics in probably a decade (wasnt even aware it was still running!), but that’s some powerful stuff
 Quoted reallifecomics&#39;s tweet:   Epiphany - a 15-part series.
@@ -37,8 +38,6 @@ Quoted reallifecomics&#39;s tweet:   Epiphany - a 15-part series.
 - [19 Jul 2020 8:37am](https://roytang.net/2020/07/1284769215526744065/): @momblogger has this been covered by the remaining media outlets? GMA, Rappler, CNN etc. Defensor et al need to explain themselves
 - [19 Jul 2020 12:00am](https://roytang.net/2020/07/covid19-07-19/): Pandemic thoughts and updates, July 19 edition:
  only left the house once all week, to get cash from an ATM. Watching mass via Facebook again today A couple of weeks ago, someone I knew had someone in their household (a medical worker) test positive for the virus. Now everyone in their household is staying in separate rooms and eating separately while they wait to be tested. After a week and a half, out of 5 adults who need to be tested, only 2 have been tested and gotten their results (prioritized because they were seniors).
-- [18 Jul 2020 6:30pm](https://roytang.net/2020/07/1284556159211368448/): 1/ There&rsquo;s a fascinating story of a normal guy named Allen Hemberger who became obsessed with the Alinea cookbook. He spent 5 years re-creating all 107 recipes.
-There&rsquo;s an extremely valuable lesson in this process for anyone thinking about taking the leap to become a creator.
 
 [View all notes](https://roytang.net/notes)
 
