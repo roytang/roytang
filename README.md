@@ -30,6 +30,7 @@ Latest notes:
     
 
 - [22 Jul 2020 11:18am](https://roytang.net/2020/07/1285896902584733696/): Streaming some Jumpstart on Magic Arena https://www.twitch.tv/twitchyroy #mtg
+Played two Jumpstarts! YT: https://www.youtube.com/watch?v=u1KtPh_xoLo
 - [20 Jul 2020 7:20pm](https://roytang.net/2020/07/1285293599207247872/): US TV Seires &ldquo;Kidding&rdquo; shows their version of the Philippines. https://www.youtube.com/watch?v=_lFqYiQDQA8&amp;feature=youtu.be via @YouTube
 - [20 Jul 2020 3:13pm](https://roytang.net/2020/07/1285231261179498500/): @misterorange wait, is it in the set as both a common and a rare&hellip;?
 - [20 Jul 2020 11:59am](https://roytang.net/2020/07/1285182616069537792/): @visakanv how did you end up exporting them
