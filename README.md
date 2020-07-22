@@ -7,11 +7,11 @@ Visit the site: ![https://roytang.net](.Permalink)
 Latest blog posts:
     
 
+- [Review: Final Fantasy VII Remake](https://roytang.net/2020/07/ff7r-review/)
 - [Weeknotes 2020-07-19](https://roytang.net/2020/07/weeknotes-07-19/)
 - [In Which I Review Everything I Purchased from the iTunes App Store](https://roytang.net/2020/07/itunes-purchases/)
 - [Weeknotes 2020-07-12: Media Shutdown Edition](https://roytang.net/2020/07/weeknotes-07-12/)
 - [Using Hugo to Automatically Update Your Github Profile](https://roytang.net/2020/07/hugo-update-github-profile/)
-- [Weeknotes 2020-07-05: Anti-Error Edition](https://roytang.net/2020/07/weeknotes-07-05/)
 
 [View all posts](https://roytang.net/blog)
 
