@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [22 Jul 2020 11:18am](https://roytang.net/2020/07/1285896902584733696/): Streaming some Jumpstart on Magic Arena https://www.twitch.tv/twitchyroy #mtg
 - [20 Jul 2020 7:20pm](https://roytang.net/2020/07/1285293599207247872/): US TV Seires &ldquo;Kidding&rdquo; shows their version of the Philippines. https://www.youtube.com/watch?v=_lFqYiQDQA8&amp;feature=youtu.be via @YouTube
 - [20 Jul 2020 3:13pm](https://roytang.net/2020/07/1285231261179498500/): @misterorange wait, is it in the set as both a common and a rare&hellip;?
 - [20 Jul 2020 11:59am](https://roytang.net/2020/07/1285182616069537792/): @visakanv how did you end up exporting them
@@ -36,7 +37,6 @@ Latest notes:
 Quoted reallifecomics&#39;s tweet:   Epiphany - a 15-part series.
 1/4
  
-- [19 Jul 2020 8:37am](https://roytang.net/2020/07/1284769215526744065/): @momblogger has this been covered by the remaining media outlets? GMA, Rappler, CNN etc. Defensor et al need to explain themselves
 
 [View all notes](https://roytang.net/notes)
 
