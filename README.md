@@ -29,15 +29,12 @@ Latest shared links:
 Latest notes:
     
 
+- [25 Jul 2020 7:57pm](https://roytang.net/2020/07/fz87zl1/): Can someone do the odds for a set booster with signed art card, foil land, 6 uncommons, 4 mythics (one of which is foil) and a card from the list? lol
 - [22 Jul 2020 11:18am](https://roytang.net/2020/07/1285896902584733696/): Streaming some Jumpstart on Magic Arena https://www.twitch.tv/twitchyroy #mtg
 Played two Jumpstarts! YT: https://www.youtube.com/watch?v=u1KtPh_xoLo
 - [20 Jul 2020 7:20pm](https://roytang.net/2020/07/1285293599207247872/): US TV Seires &ldquo;Kidding&rdquo; shows their version of the Philippines. https://www.youtube.com/watch?v=_lFqYiQDQA8&amp;feature=youtu.be via @YouTube
 - [20 Jul 2020 3:13pm](https://roytang.net/2020/07/1285231261179498500/): @misterorange wait, is it in the set as both a common and a rare&hellip;?
 - [20 Jul 2020 11:59am](https://roytang.net/2020/07/1285182616069537792/): @visakanv how did you end up exporting them
-- [19 Jul 2020 5:46pm](https://roytang.net/2020/07/1284907506725040129/): Wow. I havent read Real Life Comics in probably a decade (wasnt even aware it was still running!), but that’s some powerful stuff
-Quoted reallifecomics&#39;s tweet:   Epiphany - a 15-part series.
-1/4
- 
 
 [View all notes](https://roytang.net/notes)
 
