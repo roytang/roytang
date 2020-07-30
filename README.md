@@ -29,12 +29,11 @@ Latest shared links:
 Latest notes:
     
 
+- [30 Jul 2020 8:32am](https://roytang.net/2020/07/fzplk8l/): pretty sweet. probably better to symmetry before putting down the etali so he tutors without knowig whats coming
 - [30 Jul 2020 6:47am](https://roytang.net/2020/07/1288727836597948416/): @joyarmadamba
 - [29 Jul 2020 10:49am](https://roytang.net/2020/07/fzly4su/): Sorry if this is dumb: you know sometimes when you build a district but placing it has a warning like “this will remove woods” or such, does doing this have a chopping bonus too? or it has to be chopped with a builder first?
 - [27 Jul 2020 10:28am](https://roytang.net/2020/07/1287696418723909632/): Didnt watch the sona. From the scattered reports on Twitter, seems it was just about as useless as I expected
 - [26 Jul 2020 6:07pm](https://roytang.net/2020/07/1287449421962125312/): &ldquo;I have so many thoughts all the time, why am I like this?&rdquo;
-- [26 Jul 2020 12:00am](https://roytang.net/2020/07/covid19-07-26/): Pandemic thoughts and updates, July 26 edition:
- Watching mass via Facebook again today. The nearby Church actually holds services, but last I heard it was only 10 people per mass, and need to call ahead of time. It doesn&rsquo;t seem likely we&rsquo;ll be going anytime soon. grocery run yesterday, without incident last Thursday I finally got a haircut my last one was around New Year&rsquo;s Day, so this was around six and a half months of hair cut off.
 
 [View all notes](https://roytang.net/notes)
 
