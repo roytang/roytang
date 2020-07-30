@@ -29,11 +29,13 @@ Latest shared links:
 Latest notes:
     
 
+- [30 Jul 2020 5:47pm](https://roytang.net/2020/07/1288893973776306177/): I cant recommend this improv special enough (its on netflix). Already seen it but rewatching the clips is still funny
+Quoted rejectedjokes&#39;s tweet:   This Fucking Guy. #MiddleditchAndSchwartz
+Your browser does not support the video tag.   
 - [30 Jul 2020 12:07pm](https://roytang.net/2020/07/1288808550223904770/): @wrongwaygoback this is the Philippines, not the US :)
 - [30 Jul 2020 8:32am](https://roytang.net/2020/07/fzplk8l/): pretty sweet. probably better to symmetry before putting down the etali so he tutors without knowig whats coming
 - [30 Jul 2020 6:47am](https://roytang.net/2020/07/1288727836597948416/): @joyarmadamba
 - [29 Jul 2020 10:49am](https://roytang.net/2020/07/fzly4su/): Sorry if this is dumb: you know sometimes when you build a district but placing it has a warning like “this will remove woods” or such, does doing this have a chopping bonus too? or it has to be chopped with a builder first?
-- [27 Jul 2020 10:28am](https://roytang.net/2020/07/1287696418723909632/): Didnt watch the sona. From the scattered reports on Twitter, seems it was just about as useless as I expected
 
 [View all notes](https://roytang.net/notes)
 
