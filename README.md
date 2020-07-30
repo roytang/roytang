@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [30 Jul 2020 10:25pm](https://roytang.net/2020/07/1288964042241929217/): @joyarmadamba I am surely not, but eegardless both of us are the wrong generation to affect these results. am also not convinced the typical/average genz pinoy even listens to the radio
 - [30 Jul 2020 10:01pm](https://roytang.net/2020/07/1288957903735422976/): @joyarmadamba (1) his data is global (I participated), although it is reasonable to assume majority of respondents are americans/europeans. (2) &ldquo;constant radio airplay&rdquo; -&gt; not sure if true, I&rsquo;ve certainly never heard &ldquo;Stay&rdquo; on the radio in the last 10 years.
 @joyarmadamba This may just be an observation bias on your part since you likely prefer listening to radio stations that specialize in &ldquo;oldies&rdquo; (and those radio stations exist in other countries too)
 - [30 Jul 2020 5:47pm](https://roytang.net/2020/07/1288893973776306177/): I cant recommend this improv special enough (its on netflix). Already seen it but rewatching the clips is still funny
@@ -36,7 +37,6 @@ Quoted rejectedjokes&#39;s tweet:   This Fucking Guy. #MiddleditchAndSchwartz
 Your browser does not support the video tag.   
 - [30 Jul 2020 12:07pm](https://roytang.net/2020/07/1288808550223904770/): @wrongwaygoback this is the Philippines, not the US :)
 - [30 Jul 2020 8:32am](https://roytang.net/2020/07/fzplk8l/): pretty sweet. probably better to symmetry before putting down the etali so he tutors without knowig whats coming
-- [30 Jul 2020 6:47am](https://roytang.net/2020/07/1288727836597948416/): @joyarmadamba
 
 [View all notes](https://roytang.net/notes)
 
