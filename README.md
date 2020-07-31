@@ -18,11 +18,11 @@ Latest blog posts:
 Latest shared links:
     
 
+- [Write like a human](https://roytang.net/2020/07/write-like-a-human/)
 - [Defining the 90s Music Canon](https://roytang.net/2020/07/defining-the-90s-music-canon/)
 - [Why aren’t you more serious?](https://roytang.net/2020/07/why-arent-you-more-serious/)
 - [&#39;Please Scream Inside Your Heart,&#39; Japanese Amusement Park Tells Thrill-Seekers](https://roytang.net/2020/07/please-scream-inside-your-heart-japanese-amusement-park-tells-thrill-seekers/)
 - [Ten modern layouts in one line of CSS](https://roytang.net/2020/07/ten-modern-layouts-in-one-line-of-css/)
-- [Alike, an Animated Short Film](https://roytang.net/2020/07/alike-an-animated-short-film/)
 
 [View all links](https://roytang.net/links)
 
