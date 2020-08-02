@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [2 Aug 2020 11:56am](https://roytang.net/2020/08/1289892828005294081/): @jaymelynilao baka kelangan nakakatawa yung joke
 - [2 Aug 2020 12:00am](https://roytang.net/2020/08/covid19-08-02/): Pandemic thoughts and updates, Aug 2 edition:
  We ended July with around 90k active cases. Despite the threat of sending Metro Manila back to ECQ if we breached the 85k mark, the govt did not push through. Over the weekend, this led to a clamor from doctors and other frontliners to have a &ldquo;time out&rdquo; of 2 weeks for the NCR, a temporary quarantine, to give the healthcare system some breathing room.
 - [31 Jul 2020 9:45am](https://roytang.net/2020/07/1289135105663881216/): “Those countries with zero cases, either they have no testing kits or they are lying.”
@@ -38,9 +39,6 @@ Quoted cnnphilippines&#39;s tweet:   @daninakpil Año: &lsquo;yong mga countries
 - [30 Jul 2020 10:25pm](https://roytang.net/2020/07/1288964042241929217/): @joyarmadamba I am surely not, but eegardless both of us are the wrong generation to affect these results. am also not convinced the typical/average genz pinoy even listens to the radio
 - [30 Jul 2020 10:01pm](https://roytang.net/2020/07/1288957903735422976/): @joyarmadamba (1) his data is global (I participated), although it is reasonable to assume majority of respondents are americans/europeans. (2) &ldquo;constant radio airplay&rdquo; -&gt; not sure if true, I&rsquo;ve certainly never heard &ldquo;Stay&rdquo; on the radio in the last 10 years.
 @joyarmadamba This may just be an observation bias on your part since you likely prefer listening to radio stations that specialize in &ldquo;oldies&rdquo; (and those radio stations exist in other countries too)
-- [30 Jul 2020 5:47pm](https://roytang.net/2020/07/1288893973776306177/): I cant recommend this improv special enough (its on netflix). Already seen it but rewatching the clips is still funny
-Quoted rejectedjokes&#39;s tweet:   This Fucking Guy. #MiddleditchAndSchwartz
-Your browser does not support the video tag.   
 
 [View all notes](https://roytang.net/notes)
 
