@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [2 Aug 2020 12:26pm](https://roytang.net/2020/08/1289900331556655105/): @jaymelynilao sa chat box ka na lang magjoke! para pwedeng lol na lang sila haha
 - [2 Aug 2020 11:56am](https://roytang.net/2020/08/1289892828005294081/): @jaymelynilao baka kelangan nakakatawa yung joke
 - [2 Aug 2020 12:00am](https://roytang.net/2020/08/covid19-08-02/): Pandemic thoughts and updates, Aug 2 edition:
  We ended July with around 90k active cases. Despite the threat of sending Metro Manila back to ECQ if we breached the 85k mark, the govt did not push through. Over the weekend, this led to a clamor from doctors and other frontliners to have a &ldquo;time out&rdquo; of 2 weeks for the NCR, a temporary quarantine, to give the healthcare system some breathing room.
@@ -37,8 +38,6 @@ Our govt doesnt seem to understand that better things are possible.
 Tagging @jacindaardern
 Quoted cnnphilippines&#39;s tweet:   @daninakpil Año: &lsquo;yong mga countries na nag ze-zero (cases), either wala silang testing kit o nagsisinungaling sila.  
 - [30 Jul 2020 10:25pm](https://roytang.net/2020/07/1288964042241929217/): @joyarmadamba I am surely not, but eegardless both of us are the wrong generation to affect these results. am also not convinced the typical/average genz pinoy even listens to the radio
-- [30 Jul 2020 10:01pm](https://roytang.net/2020/07/1288957903735422976/): @joyarmadamba (1) his data is global (I participated), although it is reasonable to assume majority of respondents are americans/europeans. (2) &ldquo;constant radio airplay&rdquo; -&gt; not sure if true, I&rsquo;ve certainly never heard &ldquo;Stay&rdquo; on the radio in the last 10 years.
-@joyarmadamba This may just be an observation bias on your part since you likely prefer listening to radio stations that specialize in &ldquo;oldies&rdquo; (and those radio stations exist in other countries too)
 
 [View all notes](https://roytang.net/notes)
 
