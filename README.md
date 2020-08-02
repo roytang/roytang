@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [2 Aug 2020 12:42pm](https://roytang.net/2020/08/1289904501340610560/): Survey: have you been going out or mostly staing at home?
 - [2 Aug 2020 12:26pm](https://roytang.net/2020/08/1289900331556655105/): @jaymelynilao sa chat box ka na lang magjoke! para pwedeng lol na lang sila haha
 - [2 Aug 2020 11:56am](https://roytang.net/2020/08/1289892828005294081/): @jaymelynilao baka kelangan nakakatawa yung joke
 - [2 Aug 2020 12:00am](https://roytang.net/2020/08/covid19-08-02/): Pandemic thoughts and updates, Aug 2 edition:
@@ -37,7 +38,6 @@ Latest notes:
 Our govt doesnt seem to understand that better things are possible.
 Tagging @jacindaardern
 Quoted cnnphilippines&#39;s tweet:   @daninakpil Año: &lsquo;yong mga countries na nag ze-zero (cases), either wala silang testing kit o nagsisinungaling sila.  
-- [30 Jul 2020 10:25pm](https://roytang.net/2020/07/1288964042241929217/): @joyarmadamba I am surely not, but eegardless both of us are the wrong generation to affect these results. am also not convinced the typical/average genz pinoy even listens to the radio
 
 [View all notes](https://roytang.net/notes)
 
