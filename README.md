@@ -29,15 +29,12 @@ Latest shared links:
 Latest notes:
     
 
+- [2 Aug 2020 12:53pm](https://roytang.net/2020/08/1289907076118978560/): Casually streaming some Jumpstart on Magic Arena https://www.twitch.tv/twitchyroy #mtg #twitch #magicarena
 - [2 Aug 2020 12:42pm](https://roytang.net/2020/08/1289904501340610560/): Survey: have you been going out or mostly staing at home?
 - [2 Aug 2020 12:26pm](https://roytang.net/2020/08/1289900331556655105/): @jaymelynilao sa chat box ka na lang magjoke! para pwedeng lol na lang sila haha
 - [2 Aug 2020 11:56am](https://roytang.net/2020/08/1289892828005294081/): @jaymelynilao baka kelangan nakakatawa yung joke
 - [2 Aug 2020 12:00am](https://roytang.net/2020/08/covid19-08-02/): Pandemic thoughts and updates, Aug 2 edition:
  We ended July with around 90k active cases. Despite the threat of sending Metro Manila back to ECQ if we breached the 85k mark, the govt did not push through. Over the weekend, this led to a clamor from doctors and other frontliners to have a &ldquo;time out&rdquo; of 2 weeks for the NCR, a temporary quarantine, to give the healthcare system some breathing room.
-- [31 Jul 2020 9:45am](https://roytang.net/2020/07/1289135105663881216/): “Those countries with zero cases, either they have no testing kits or they are lying.”
-Our govt doesnt seem to understand that better things are possible.
-Tagging @jacindaardern
-Quoted cnnphilippines&#39;s tweet:   @daninakpil Año: &lsquo;yong mga countries na nag ze-zero (cases), either wala silang testing kit o nagsisinungaling sila.  
 
 [View all notes](https://roytang.net/notes)
 
