@@ -29,6 +29,9 @@ Latest shared links:
 Latest notes:
     
 
+- [4 Aug 2020 8:22pm](https://roytang.net/2020/08/438c67100e2f5d99412ecb63e6eb9bca/): I&rsquo;m testing something.
+Ignore this post.
+Or don&rsquo;t, I&rsquo;m not your mother.
 - [4 Aug 2020 8:15pm](https://roytang.net/2020/08/4aab780a936cbcca72d043f98cdd53ec/): Between Jumpstart in mid-July, Amonkhet Remastered in mid-August, and Zendikar Rising in mid-Sept, MTG Arena is seriously challenging my F2P-ness. (Pretty sure that&rsquo;s what they intended!)
 - [4 Aug 2020 8:14pm](https://roytang.net/2020/08/a7e178343be582801775b6ee89e7a6b3/): Unnecessarily re-installed xcode today because Stackoverflow had an old accepted answer that involved a reinstall; the actual useful answer was more recent (4 years newer) and only required settings updates. SO needs a way for people to mark newer answers as more relevant.
 - [4 Aug 2020 8:52am](https://roytang.net/2020/08/1290571220727939072/): New pin:
@@ -39,8 +42,6 @@ Try my triviabot: @triviastorm, it&rsquo;s fun!
 Feel free to DM me.
 Quoted roytang&#39;s tweet:   Open to questions on Java, JS, Python, software architecture, software development in general, career stuff, the Philippines, life in general. DMs are open. https://twitter.com/sehurlburt/status/889004724669661184  
 - [2 Aug 2020 3:46pm](https://roytang.net/2020/08/1289950728971198465/): @guahanweb lol sorry; I just kind of assumed people still needed to go out for groceries and whatnot, though I suppose there are alternatives like deliveries (not really available where I am) or being a farmer I guess?
-- [2 Aug 2020 12:53pm](https://roytang.net/2020/08/1289907076118978560/): Casually streaming some Jumpstart on Magic Arena https://www.twitch.tv/twitchyroy #mtg #twitch #magicarena
-Played 3 Jumpstart decks! YT: https://www.youtube.com/watch?v=qHCF4vLlcKQ
 
 [View all notes](https://roytang.net/notes)
 
