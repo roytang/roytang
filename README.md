@@ -30,6 +30,7 @@ Latest notes:
     
 
 - [6 Aug 2020 11:19am](https://roytang.net/2020/08/1291332988135931904/): Streaming some Magic Arena Historic with Jund Sacrifice https://www.twitch.tv/twitchyroy
+YT export: https://www.youtube.com/watch?v=jn2A9EwV23Q
 - [4 Aug 2020 8:22pm](https://roytang.net/2020/08/438c67100e2f5d99412ecb63e6eb9bca/): I&rsquo;m testing something.
 Ignore this post.
 Or don&rsquo;t, I&rsquo;m not your mother.
