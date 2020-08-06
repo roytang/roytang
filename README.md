@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [6 Aug 2020 11:19am](https://roytang.net/2020/08/1291332988135931904/): Streaming some Magic Arena Historic with Jund Sacrifice https://www.twitch.tv/twitchyroy
 - [4 Aug 2020 8:22pm](https://roytang.net/2020/08/438c67100e2f5d99412ecb63e6eb9bca/): I&rsquo;m testing something.
 Ignore this post.
 Or don&rsquo;t, I&rsquo;m not your mother.
@@ -41,7 +42,6 @@ I stream games: https://www.twitch.tv/twitchyroy
 Try my triviabot: @triviastorm, it&rsquo;s fun!
 Feel free to DM me.
 Quoted roytang&#39;s tweet:   Open to questions on Java, JS, Python, software architecture, software development in general, career stuff, the Philippines, life in general. DMs are open. https://twitter.com/sehurlburt/status/889004724669661184  
-- [2 Aug 2020 3:46pm](https://roytang.net/2020/08/1289950728971198465/): @guahanweb lol sorry; I just kind of assumed people still needed to go out for groceries and whatnot, though I suppose there are alternatives like deliveries (not really available where I am) or being a farmer I guess?
 
 [View all notes](https://roytang.net/notes)
 
