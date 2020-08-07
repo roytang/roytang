@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [7 Aug 2020 5:04am](https://roytang.net/2020/08/1291601175020597248/): @wrongwaygoback I had to lookup the video of how Trump said Thailand. I feel like he&rsquo;s not too far off from how I say it. There&rsquo;s a lot of things to criticize him about, but this one seems meh. The Yosemite thing was much worse
 - [6 Aug 2020 11:19am](https://roytang.net/2020/08/1291332988135931904/): Streaming some Magic Arena Historic with Jund Sacrifice https://www.twitch.tv/twitchyroy
 YT export: https://www.youtube.com/watch?v=jn2A9EwV23Q
 - [4 Aug 2020 8:22pm](https://roytang.net/2020/08/438c67100e2f5d99412ecb63e6eb9bca/): I&rsquo;m testing something.
@@ -36,13 +37,6 @@ Ignore this post.
 Or don&rsquo;t, I&rsquo;m not your mother.
 - [4 Aug 2020 8:15pm](https://roytang.net/2020/08/4aab780a936cbcca72d043f98cdd53ec/): Between Jumpstart in mid-July, Amonkhet Remastered in mid-August, and Zendikar Rising in mid-Sept, MTG Arena is seriously challenging my F2P-ness. (Pretty sure that&rsquo;s what they intended!)
 - [4 Aug 2020 8:14pm](https://roytang.net/2020/08/a7e178343be582801775b6ee89e7a6b3/): Unnecessarily re-installed xcode today because Stackoverflow had an old accepted answer that involved a reinstall; the actual useful answer was more recent (4 years newer) and only required settings updates. SO needs a way for people to mark newer answers as more relevant.
-- [4 Aug 2020 8:52am](https://roytang.net/2020/08/1290571220727939072/): New pin:
-What to expect: Gaming, pop culture, tech stuff, current events, puns, anything I find hilarious.
-Visit the blog: https://roytang.net/blog/
-I stream games: https://www.twitch.tv/twitchyroy
-Try my triviabot: @triviastorm, it&rsquo;s fun!
-Feel free to DM me.
-Quoted roytang&#39;s tweet:   Open to questions on Java, JS, Python, software architecture, software development in general, career stuff, the Philippines, life in general. DMs are open. https://twitter.com/sehurlburt/status/889004724669661184  
 
 [View all notes](https://roytang.net/notes)
 
