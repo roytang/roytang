@@ -7,11 +7,11 @@ Visit the site: ![https://roytang.net](.Permalink)
 Latest blog posts:
     
 
+- [Forty Two](https://roytang.net/2020/08/forty-two/)
 - [Weeknotes 2020-08-02](https://roytang.net/2020/08/weeknotes-08-02/)
 - [Weeknotes 2020-07-26](https://roytang.net/2020/07/weeknotes-07-26/)
 - [Review: Final Fantasy VII Remake](https://roytang.net/2020/07/ff7r-review/)
 - [Weeknotes 2020-07-19](https://roytang.net/2020/07/weeknotes-07-19/)
-- [In Which I Review Everything I Purchased from the iTunes App Store](https://roytang.net/2020/07/itunes-purchases/)
 
 [View all posts](https://roytang.net/blog)
 
