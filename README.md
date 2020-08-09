@@ -7,11 +7,11 @@ Visit the site: ![https://roytang.net](.Permalink)
 Latest blog posts:
     
 
+- [Weeknotes 2020-08-09](https://roytang.net/2020/08/weeknotes-08-09/)
 - [Forty Two](https://roytang.net/2020/08/forty-two/)
 - [Weeknotes 2020-08-02](https://roytang.net/2020/08/weeknotes-08-02/)
 - [Weeknotes 2020-07-26](https://roytang.net/2020/07/weeknotes-07-26/)
 - [Review: Final Fantasy VII Remake](https://roytang.net/2020/07/ff7r-review/)
-- [Weeknotes 2020-07-19](https://roytang.net/2020/07/weeknotes-07-19/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -29,6 +29,8 @@ Latest shared links:
 Latest notes:
     
 
+- [9 Aug 2020 12:00am](https://roytang.net/2020/08/covid19-08-09/): Pandemic thoughts and updates, Aug 9 edition:
+ So, NCR got sent back into MECQ, a stronger quarantine lockdown. I haven&rsquo;t actually felt the difference, since I&rsquo;m at home most of the time. We went out yesterday for a grocery run, and not much seemed different out there either, still a lot of cars and people out of doors. I don&rsquo;t actually remember what the last MECQ was like, but I kind of assumed things would be closer to how they were at the onset of the lockdowns in March, but this feels still mostly like the GCQ of past weeks.
 - [7 Aug 2020 5:04am](https://roytang.net/2020/08/1291601175020597248/): @wrongwaygoback I had to lookup the video of how Trump said Thailand. I feel like he&rsquo;s not too far off from how I say it. There&rsquo;s a lot of things to criticize him about, but this one seems meh. The Yosemite thing was much worse
 - [6 Aug 2020 11:19am](https://roytang.net/2020/08/1291332988135931904/): Streaming some Magic Arena Historic with Jund Sacrifice https://www.twitch.tv/twitchyroy
 YT export: https://www.youtube.com/watch?v=jn2A9EwV23Q
@@ -36,7 +38,6 @@ YT export: https://www.youtube.com/watch?v=jn2A9EwV23Q
 Ignore this post.
 Or don&rsquo;t, I&rsquo;m not your mother.
 - [4 Aug 2020 8:15pm](https://roytang.net/2020/08/4aab780a936cbcca72d043f98cdd53ec/): Between Jumpstart in mid-July, Amonkhet Remastered in mid-August, and Zendikar Rising in mid-Sept, MTG Arena is seriously challenging my F2P-ness. (Pretty sure that&rsquo;s what they intended!)
-- [4 Aug 2020 8:14pm](https://roytang.net/2020/08/a7e178343be582801775b6ee89e7a6b3/): Unnecessarily re-installed xcode today because Stackoverflow had an old accepted answer that involved a reinstall; the actual useful answer was more recent (4 years newer) and only required settings updates. SO needs a way for people to mark newer answers as more relevant.
 
 [View all notes](https://roytang.net/notes)
 
