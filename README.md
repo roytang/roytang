@@ -29,6 +29,8 @@ Latest shared links:
 Latest notes:
     
 
+- [10 Aug 2020 4:59pm](https://roytang.net/2020/08/1292868287148068864/): Wow, wtf?
+Quoted ABSCBNNews&#39;s tweet:   JUST IN: Binawi ng mga pulis ang bangkay ng pinaslang na NDF leader na si Randy Echanis mula sa isang punerarya sa Quezon Avenue; muli itong isinakay sa ambulansya | via @JervisManahan  
 - [10 Aug 2020 12:17pm](https://roytang.net/2020/08/1292797333357248513/): &ldquo;Randy Echanis, 72, &lsquo;was undergoing a medical treatment and unarmed when police forces raided his house,&rsquo; says an Anakpawis colleague&rdquo; - killings aren&rsquo;t unusual here; your headline should at least indicate he was killed by cops @rapplerdotcom
 Quoted rapplerdotcom&#39;s tweet:   JUST IN. Longtime peasant leader and activist Randy Echanis was killed inside his own home in Quezon City. https://rappler.com/nation/anakpawis-chair-randy-echanis-killed-inside-quezon-city-home?utm_medium=Social&amp;utm_source=Twitter#Echobox=1597034184  
 - [9 Aug 2020 12:00am](https://roytang.net/2020/08/covid19-08-09/): Pandemic thoughts and updates, Aug 9 edition:
@@ -36,9 +38,6 @@ Quoted rapplerdotcom&#39;s tweet:   JUST IN. Longtime peasant leader and activis
 - [7 Aug 2020 5:04am](https://roytang.net/2020/08/1291601175020597248/): @wrongwaygoback I had to lookup the video of how Trump said Thailand. I feel like he&rsquo;s not too far off from how I say it. There&rsquo;s a lot of things to criticize him about, but this one seems meh. The Yosemite thing was much worse
 - [6 Aug 2020 11:19am](https://roytang.net/2020/08/1291332988135931904/): Streaming some Magic Arena Historic with Jund Sacrifice https://www.twitch.tv/twitchyroy
 YT export: https://www.youtube.com/watch?v=jn2A9EwV23Q
-- [4 Aug 2020 8:22pm](https://roytang.net/2020/08/438c67100e2f5d99412ecb63e6eb9bca/): I&rsquo;m testing something.
-Ignore this post.
-Or don&rsquo;t, I&rsquo;m not your mother.
 
 [View all notes](https://roytang.net/notes)
 
