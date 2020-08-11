@@ -30,6 +30,7 @@ Latest notes:
     
 
 - [11 Aug 2020 12:41pm](https://roytang.net/2020/08/1293165534754869250/): Streaming some Civ6: Help me get better! https://www.twitch.tv/twitchyroy
+YT: https://www.youtube.com/watch?v=tPTGTP6Dot8
 - [11 Aug 2020 4:12am](https://roytang.net/2020/08/1293037454971121664/): Just keeps getting worse
 Quoted gmanews&#39;s tweet:   Party-list group Anakpawis said a paralegal &ldquo;keeping track&rdquo; of the remains of National Democratic Front of the Philippines (NDFP) consultant Randall Echanis was arrested by authorities. https://bit.ly/2DvIUbf  
 - [10 Aug 2020 4:59pm](https://roytang.net/2020/08/1292868287148068864/): Wow, wtf?
