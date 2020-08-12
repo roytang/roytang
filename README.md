@@ -30,6 +30,7 @@ Latest notes:
     
 
 - [12 Aug 2020 12:29pm](https://roytang.net/2020/08/1293524936460578816/): Streaming Jumpstart on Magic Arena again! https://www.twitch.tv/twitchyroy
+Quoted roytang&#39;s tweet:   Attempts 15-17! Rogues Above the Clouds 2-3, Smashing Legion 2-4 (forgot to get a deck list screenshot for this one), Dinosaur Dogs 2-0. YT of the games: https://www.youtube.com/watch?v=dG6-lNKfyis  
 - [11 Aug 2020 12:41pm](https://roytang.net/2020/08/1293165534754869250/): Streaming some Civ6: Help me get better! https://www.twitch.tv/twitchyroy
 YT: https://www.youtube.com/watch?v=tPTGTP6Dot8
 - [11 Aug 2020 4:12am](https://roytang.net/2020/08/1293037454971121664/): Just keeps getting worse
