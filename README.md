@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [12 Aug 2020 12:29pm](https://roytang.net/2020/08/1293524936460578816/): Streaming Jumpstart on Magic Arena again! https://www.twitch.tv/twitchyroy
 - [11 Aug 2020 12:41pm](https://roytang.net/2020/08/1293165534754869250/): Streaming some Civ6: Help me get better! https://www.twitch.tv/twitchyroy
 YT: https://www.youtube.com/watch?v=tPTGTP6Dot8
 - [11 Aug 2020 4:12am](https://roytang.net/2020/08/1293037454971121664/): Just keeps getting worse
@@ -37,8 +38,6 @@ Quoted gmanews&#39;s tweet:   Party-list group Anakpawis said a paralegal &ldquo
 Quoted ABSCBNNews&#39;s tweet:   JUST IN: Binawi ng mga pulis ang bangkay ng pinaslang na NDF leader na si Randy Echanis mula sa isang punerarya sa Quezon Avenue; muli itong isinakay sa ambulansya | via @JervisManahan  
 - [10 Aug 2020 12:17pm](https://roytang.net/2020/08/1292797333357248513/): &ldquo;Randy Echanis, 72, &lsquo;was undergoing a medical treatment and unarmed when police forces raided his house,&rsquo; says an Anakpawis colleague&rdquo; - killings aren&rsquo;t unusual here; your headline should at least indicate he was killed by cops @rapplerdotcom
 Quoted rapplerdotcom&#39;s tweet:   JUST IN. Longtime peasant leader and activist Randy Echanis was killed inside his own home in Quezon City. https://rappler.com/nation/anakpawis-chair-randy-echanis-killed-inside-quezon-city-home?utm_medium=Social&amp;utm_source=Twitter#Echobox=1597034184  
-- [9 Aug 2020 12:00am](https://roytang.net/2020/08/covid19-08-09/): Pandemic thoughts and updates, Aug 9 edition:
- So, NCR got sent back into MECQ, a stronger quarantine lockdown. I haven&rsquo;t actually felt the difference, since I&rsquo;m at home most of the time. We went out yesterday for a grocery run, and not much seemed different out there either, still a lot of cars and people out of doors. I don&rsquo;t actually remember what the last MECQ was like, but I kind of assumed things would be closer to how they were at the onset of the lockdowns in March, but this feels still mostly like the GCQ of past weeks.
 
 [View all notes](https://roytang.net/notes)
 
