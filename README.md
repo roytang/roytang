@@ -29,12 +29,11 @@ Latest shared links:
 Latest notes:
     
 
+- [13 Aug 2020 6:30pm](https://roytang.net/2020/08/1293978280622776320/): 230am Amonkhet Draft! Keep me company? https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 - [13 Aug 2020 11:41am](https://roytang.net/2020/08/1293875312632070144/): @MrValdez that&rsquo;s been the case since it launched on steam
 - [13 Aug 2020 7:24am](https://roytang.net/2020/08/8de9468cf4538aa076962780946b5066/): I had some complaints about the latter half of the season, but I liked how they resolved their timey-wimey business. Agents of SHIELD had a great run and a pretty good series finale
 - [12 Aug 2020 6:43pm](https://roytang.net/2020/08/1293619088120410113/): Why is SFxT not available on Steam in SEA?
 - [12 Aug 2020 6:24pm](https://roytang.net/2020/08/g18o8f5/): sent you a friend request
-- [12 Aug 2020 5:42pm](https://roytang.net/2020/08/g18ibyv/): wait the servers are going down?
-edit: found my vita and it still had a charge lol. i can play a few if you like, but i&rsquo;m pretty bad at this game and idk how good my internet will be. also, how would this work? we do endless?
 
 [View all notes](https://roytang.net/notes)
 
