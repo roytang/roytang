@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [14 Aug 2020 2:11pm](https://roytang.net/2020/08/1294275419332423686/): @switchfollows I imagine it&rsquo;s much easier for little kids who never get tired lol
 - [14 Aug 2020 9:38am](https://roytang.net/2020/08/1294206701965631488/): Late afternoon Amonkhet draft! (ep2) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 2nd draft went better than the first! Really wish I had gotten to 7 though. Here&rsquo;s the VOD: https://www.youtube.com/watch?v=PVkmiPNcqt0
 Also attaching deck screenshots from draft1 (UR, no scarab god, 1-3) and draft2 (UR, with scarab god, 5-3)
@@ -38,7 +39,6 @@ Quoted gmanews&#39;s tweet:   Galvez: Cabinet members to act as &lsquo;big broth
 Quoted tangincheek&#39;s tweet:   what if we outlaw being excessively rich?  
 - [13 Aug 2020 6:30pm](https://roytang.net/2020/08/1293978280622776320/): 230am Amonkhet Draft! Keep me company? https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 it did not go well D: lol https://www.youtube.com/watch?v=jsD8jNRlYkw
-- [13 Aug 2020 11:41am](https://roytang.net/2020/08/1293875312632070144/): @MrValdez that&rsquo;s been the case since it launched on steam
 
 [View all notes](https://roytang.net/notes)
 
