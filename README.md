@@ -30,6 +30,8 @@ Latest notes:
     
 
 - [14 Aug 2020 9:38am](https://roytang.net/2020/08/1294206701965631488/): Late afternoon Amonkhet draft! (ep2) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
+2nd draft went better than the first! Really wish I had gotten to 7 though. Here&rsquo;s the VOD: https://www.youtube.com/watch?v=PVkmiPNcqt0
+Also attaching deck screenshots from draft1 (UR, no scarab god, 1-3) and draft2 (UR, with scarab god, 5-3)
 - [14 Aug 2020 4:42am](https://roytang.net/2020/08/1294132266558398465/): &ldquo;But it was all right, everything was all right, the struggle was finished. He had won the victory over himself. He loved Big Brother&rdquo;
 Quoted gmanews&#39;s tweet:   Galvez: Cabinet members to act as &lsquo;big brothers, sisters&rsquo; to LGU execs in COVID-19 fight https://bit.ly/3gUG3H1  
 - [14 Aug 2020 4:16am](https://roytang.net/2020/08/1294125739487330306/): As far as I can tell I said this around 2013. Even then I was anti-capitalism!
