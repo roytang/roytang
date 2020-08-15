@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [15 Aug 2020 11:14am](https://roytang.net/2020/08/g1kj9db/): Philippines: &ldquo;McDo&rdquo; with a very short O sound
 - [14 Aug 2020 2:11pm](https://roytang.net/2020/08/1294275419332423686/): @switchfollows I imagine it&rsquo;s much easier for little kids who never get tired lol
 - [14 Aug 2020 9:38am](https://roytang.net/2020/08/1294206701965631488/): Late afternoon Amonkhet draft! (ep2) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 2nd draft went better than the first! Really wish I had gotten to 7 though. Here&rsquo;s the VOD: https://www.youtube.com/watch?v=PVkmiPNcqt0
@@ -37,8 +38,6 @@ Also attaching deck screenshots from draft1 (UR, no scarab god, 1-3) and draft2 
 Quoted gmanews&#39;s tweet:   Galvez: Cabinet members to act as &lsquo;big brothers, sisters&rsquo; to LGU execs in COVID-19 fight https://bit.ly/3gUG3H1  
 - [14 Aug 2020 4:16am](https://roytang.net/2020/08/1294125739487330306/): As far as I can tell I said this around 2013. Even then I was anti-capitalism!
 Quoted tangincheek&#39;s tweet:   what if we outlaw being excessively rich?  
-- [13 Aug 2020 6:30pm](https://roytang.net/2020/08/1293978280622776320/): 230am Amonkhet Draft! Keep me company? https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
-it did not go well D: lol https://www.youtube.com/watch?v=jsD8jNRlYkw
 
 [View all notes](https://roytang.net/notes)
 
