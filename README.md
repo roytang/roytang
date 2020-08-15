@@ -18,11 +18,11 @@ Latest blog posts:
 Latest shared links:
     
 
+- [Google and the Nothing](https://roytang.net/2020/08/google-and-the-nothing/)
 - [Financial Times](https://roytang.net/2020/08/financial-times/)
 - [Eternal 2004 ⁋ by olia](https://roytang.net/2020/08/eternal-2004-pp-by-olia/)
 - [What is the Small Web?](https://roytang.net/2020/08/what-is-the-small-web/)
 - [Tripping over the potholes in too many libraries](https://roytang.net/2020/08/tripping-over-the-potholes-in-too-many-libraries/)
-- [Write like a human](https://roytang.net/2020/07/write-like-a-human/)
 
 [View all links](https://roytang.net/links)
 
