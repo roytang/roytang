@@ -18,11 +18,11 @@ Latest blog posts:
 Latest shared links:
     
 
+- [Financial Times](https://roytang.net/2020/08/financial-times/)
+- [Eternal 2004 ⁋ by olia](https://roytang.net/2020/08/eternal-2004-pp-by-olia/)
 - [What is the Small Web?](https://roytang.net/2020/08/what-is-the-small-web/)
 - [Tripping over the potholes in too many libraries](https://roytang.net/2020/08/tripping-over-the-potholes-in-too-many-libraries/)
 - [Write like a human](https://roytang.net/2020/07/write-like-a-human/)
-- [Defining the 90s Music Canon](https://roytang.net/2020/07/defining-the-90s-music-canon/)
-- [Why aren’t you more serious?](https://roytang.net/2020/07/why-arent-you-more-serious/)
 
 [View all links](https://roytang.net/links)
 
