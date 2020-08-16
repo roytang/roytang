@@ -29,13 +29,11 @@ Latest shared links:
 Latest notes:
     
 
+- [16 Aug 2020 8:52am](https://roytang.net/2020/08/1294919994816462849/): Sunday afternoon Amonkhet Remastered draft https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 - [16 Aug 2020 5:37am](https://roytang.net/2020/08/g1plnbb/): TIL the term “glottal stop”. That’s totally what I meant!
 - [15 Aug 2020 9:54pm](https://roytang.net/2020/08/1294754419846701056/): @Westraid Yeah, MTG has a bunch of really great artwork, especially for lands. Also, &ldquo;research&rdquo; is a great euphemism for basically grinding a game for drops lol
 - [15 Aug 2020 11:14am](https://roytang.net/2020/08/g1kj9db/): Philippines: &ldquo;McDo&rdquo; with a very short O sound
 - [14 Aug 2020 2:11pm](https://roytang.net/2020/08/1294275419332423686/): @switchfollows I imagine it&rsquo;s much easier for little kids who never get tired lol
-- [14 Aug 2020 9:38am](https://roytang.net/2020/08/1294206701965631488/): Late afternoon Amonkhet draft! (ep2) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
-2nd draft went better than the first! Really wish I had gotten to 7 though. Here&rsquo;s the VOD: https://www.youtube.com/watch?v=PVkmiPNcqt0
-Also attaching deck screenshots from draft1 (UR, no scarab god, 1-3) and draft2 (UR, with scarab god, 5-3)
 
 [View all notes](https://roytang.net/notes)
 
