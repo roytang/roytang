@@ -7,11 +7,11 @@ Visit the site: ![https://roytang.net](.Permalink)
 Latest blog posts:
     
 
+- [Weeknotes 2020-08-16 The Sameyness Report](https://roytang.net/2020/08/weeknotes-2020-08-16-the-sameyness-report/)
 - [Weeknotes 2020-08-09](https://roytang.net/2020/08/weeknotes-08-09/)
 - [Forty Two](https://roytang.net/2020/08/forty-two/)
 - [Weeknotes 2020-08-02](https://roytang.net/2020/08/weeknotes-08-02/)
 - [Weeknotes 2020-07-26](https://roytang.net/2020/07/weeknotes-07-26/)
-- [Review: Final Fantasy VII Remake](https://roytang.net/2020/07/ff7r-review/)
 
 [View all posts](https://roytang.net/blog)
 
