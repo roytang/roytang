@@ -18,11 +18,11 @@ Latest blog posts:
 Latest shared links:
     
 
+- [The cult of the free must die](https://roytang.net/2020/08/the-cult-of-the-free-must-die/)
 - [Web browsers need to stop](https://roytang.net/2020/08/web-browsers-need-to-stop/)
 - [Google and the Nothing](https://roytang.net/2020/08/google-and-the-nothing/)
 - [Financial Times](https://roytang.net/2020/08/financial-times/)
 - [Eternal 2004 ⁋ by olia](https://roytang.net/2020/08/eternal-2004-pp-by-olia/)
-- [What is the Small Web?](https://roytang.net/2020/08/what-is-the-small-web/)
 
 [View all links](https://roytang.net/links)
 
