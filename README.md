@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [17 Aug 2020 11:10am](https://roytang.net/2020/08/1295317142502608897/): Monday evening Amonkhet Remastered draft (ep4) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 - [16 Aug 2020 2:04pm](https://roytang.net/2020/08/1294998594081021955/): Twitter should consider just showing the person’s bio when you reply to a tweet, to help avoid dumbass moments like this.
 Quoted DanSlott&#39;s tweet:   There are definitely times when I should step away from Twitter for a bit&hellip; like&hellip; right&hellip; NOW.
 All right, back to my script.
@@ -39,7 +40,6 @@ Quoted ABSCBNNews&#39;s tweet:   OVER 112,000 RECOVERIES. DOH logs additional 40
 - [16 Aug 2020 8:52am](https://roytang.net/2020/08/1294919994816462849/): Sunday afternoon Amonkhet Remastered draft https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 Draft was meh, but I rare-drafted a lot lol. YT: https://www.youtube.com/watch?v=xz3iXDVyPDQ
 - [16 Aug 2020 5:37am](https://roytang.net/2020/08/g1plnbb/): TIL the term “glottal stop”. That’s totally what I meant!
-- [15 Aug 2020 9:54pm](https://roytang.net/2020/08/1294754419846701056/): @Westraid Yeah, MTG has a bunch of really great artwork, especially for lands. Also, &ldquo;research&rdquo; is a great euphemism for basically grinding a game for drops lol
 
 [View all notes](https://roytang.net/notes)
 
