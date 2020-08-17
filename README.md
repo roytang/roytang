@@ -30,6 +30,7 @@ Latest notes:
     
 
 - [17 Aug 2020 11:10am](https://roytang.net/2020/08/1295317142502608897/): Monday evening Amonkhet Remastered draft (ep4) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
+Draft was good, but I was too dumb to get to 7 wins D: https://www.youtube.com/watch?v=vcI0CRqRlwM
 - [16 Aug 2020 2:04pm](https://roytang.net/2020/08/1294998594081021955/): Twitter should consider just showing the person’s bio when you reply to a tweet, to help avoid dumbass moments like this.
 Quoted DanSlott&#39;s tweet:   There are definitely times when I should step away from Twitter for a bit&hellip; like&hellip; right&hellip; NOW.
 All right, back to my script.
