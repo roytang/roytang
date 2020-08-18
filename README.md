@@ -30,6 +30,7 @@ Latest notes:
     
 
 - [18 Aug 2020 9:20am](https://roytang.net/2020/08/1295651697302405120/): Tuesday afternoon Amonkhet Remastered draft (ep5) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
+The draft wasn&rsquo;t as good as the last one, but we still broke even. I wasn&rsquo;t too dumb this time, but I did sneeze out some luck. YT: https://www.youtube.com/watch?v=m2QNniqY6fc
 - [18 Aug 2020 8:49am](https://roytang.net/2020/08/2d7fcd44f8a65f2078142cce92aa6b9a/): I wont stop upgrading to new beta versions of ios until they figure out how to stop killing my background processes from 10 seconds ago
 - [17 Aug 2020 11:10am](https://roytang.net/2020/08/1295317142502608897/): Monday evening Amonkhet Remastered draft (ep4) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 Draft was good, but I was too dumb to get to 7 wins D: https://www.youtube.com/watch?v=vcI0CRqRlwM
