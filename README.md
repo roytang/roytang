@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [18 Aug 2020 9:20am](https://roytang.net/2020/08/1295651697302405120/): Tuesday afternoon Amonkhet Remastered draft (ep5) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 - [18 Aug 2020 8:49am](https://roytang.net/2020/08/2d7fcd44f8a65f2078142cce92aa6b9a/): I wont stop upgrading to new beta versions of ios until they figure out how to stop killing my background processes from 10 seconds ago
 - [17 Aug 2020 11:10am](https://roytang.net/2020/08/1295317142502608897/): Monday evening Amonkhet Remastered draft (ep4) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 Draft was good, but I was too dumb to get to 7 wins D: https://www.youtube.com/watch?v=vcI0CRqRlwM
@@ -39,8 +40,6 @@ See ya later.
  
 - [16 Aug 2020 10:19am](https://roytang.net/2020/08/1294941749983379456/): Do any other countries have this scale of time-based &ldquo;mass recoveries&rdquo;
 Quoted ABSCBNNews&#39;s tweet:   OVER 112,000 RECOVERIES. DOH logs additional 40,397 new recoveries, citing data reconciliation efforts and adjustment in classification under &ldquo;OPLAN RECOVERY.&rdquo; As of August 16, PH has total 112,586 #COVID19 recoveries.  
-- [16 Aug 2020 8:52am](https://roytang.net/2020/08/1294919994816462849/): Sunday afternoon Amonkhet Remastered draft https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
-Draft was meh, but I rare-drafted a lot lol. YT: https://www.youtube.com/watch?v=xz3iXDVyPDQ
 
 [View all notes](https://roytang.net/notes)
 
