@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [19 Aug 2020 9:32am](https://roytang.net/2020/08/1296017132891910147/): Wednesday afternoon Amonkhet Remastered draft (ep6) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 - [18 Aug 2020 9:20am](https://roytang.net/2020/08/1295651697302405120/): Tuesday afternoon Amonkhet Remastered draft (ep5) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 The draft wasn&rsquo;t as good as the last one, but we still broke even. I wasn&rsquo;t too dumb this time, but I did sneeze out some luck. YT: https://www.youtube.com/watch?v=m2QNniqY6fc
 - [18 Aug 2020 8:49am](https://roytang.net/2020/08/2d7fcd44f8a65f2078142cce92aa6b9a/): I wont stop upgrading to new beta versions of ios until they figure out how to stop killing my background processes from 10 seconds ago
@@ -39,8 +40,6 @@ Quoted DanSlott&#39;s tweet:   There are definitely times when I should step awa
 All right, back to my script.
 See ya later.
  
-- [16 Aug 2020 10:19am](https://roytang.net/2020/08/1294941749983379456/): Do any other countries have this scale of time-based &ldquo;mass recoveries&rdquo;
-Quoted ABSCBNNews&#39;s tweet:   OVER 112,000 RECOVERIES. DOH logs additional 40,397 new recoveries, citing data reconciliation efforts and adjustment in classification under &ldquo;OPLAN RECOVERY.&rdquo; As of August 16, PH has total 112,586 #COVID19 recoveries.  
 
 [View all notes](https://roytang.net/notes)
 
