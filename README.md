@@ -30,6 +30,7 @@ Latest notes:
     
 
 - [21 Aug 2020 10:13am](https://roytang.net/2020/08/1296752270617595905/): Friday evening Amonkhet Remastered draft (ep7) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
+Ugh, that was terrible. Worst draft of this series by far. YT: https://www.youtube.com/watch?v=WWUAYmyZ61s
 - [21 Aug 2020 7:11am](https://roytang.net/2020/08/1296706526808166400/): A Shaggy and dog story
 http://portsherry.com/comic/a-shaggy-and-dog-story/
 Phew! My longest comic yet!
