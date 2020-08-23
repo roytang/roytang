@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [23 Aug 2020 8:37am](https://roytang.net/2020/08/1297452852600664064/): @SeresaTagAraw you should stay at home though lol
 - [23 Aug 2020 6:22am](https://roytang.net/2020/08/1297419009743130624/): @SeresaTagAraw open to the public pa rin naman ang UP?
 - [21 Aug 2020 10:13am](https://roytang.net/2020/08/1296752270617595905/): Friday evening Amonkhet Remastered draft (ep7) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 Ugh, that was terrible. Worst draft of this series by far. YT: https://www.youtube.com/watch?v=WWUAYmyZ61s
@@ -36,8 +37,6 @@ Ugh, that was terrible. Worst draft of this series by far. YT: https://www.youtu
 http://portsherry.com/comic/a-shaggy-and-dog-story/
 Phew! My longest comic yet!
 - [20 Aug 2020 6:37am](https://roytang.net/2020/08/1296335528766234625/): The Story of the Legendary Grilled Cheese.
-- [19 Aug 2020 9:32am](https://roytang.net/2020/08/1296017132891910147/): Wednesday afternoon Amonkhet Remastered draft (ep6) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
-This draft was meh, and the outcome was meh. YT: https://www.youtube.com/watch?v=LwK2y2W8wY0
 
 [View all notes](https://roytang.net/notes)
 
