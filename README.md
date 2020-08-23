@@ -7,11 +7,11 @@ Visit the site: ![https://roytang.net](.Permalink)
 Latest blog posts:
     
 
+- [Weeknotes 2020-08-23](https://roytang.net/2020/08/weeknotes-2020-08-23/)
 - [On Podcasts, Audiobooks, and Newsletters](https://roytang.net/2020/08/on-podcasts-audiobooks-and-newsletters/)
 - [On Mozilla and Firefox](https://roytang.net/2020/08/on-mozilla-and-firefox/)
 - [Weeknotes 2020-08-16 The Sameyness Report](https://roytang.net/2020/08/weeknotes-2020-08-16-the-sameyness-report/)
 - [Weeknotes 2020-08-09](https://roytang.net/2020/08/weeknotes-08-09/)
-- [Forty Two](https://roytang.net/2020/08/forty-two/)
 
 [View all posts](https://roytang.net/blog)
 
