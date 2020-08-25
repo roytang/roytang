@@ -30,6 +30,7 @@ Latest notes:
     
 
 - [25 Aug 2020 10:18am](https://roytang.net/2020/08/1298203113195700225/): Tuesday evening Amonkhet Remastered draft (ep9) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
+Draft was mediocre; luckily I didnt pay gems for this one. YT: https://www.youtube.com/watch?v=wzWPJGRgpg0
 - [24 Aug 2020 11:31am](https://roytang.net/2020/08/1297859140749008896/): Monday evening Amonkhet Remastered draft (ep8) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 Managed to break even again this time. YT: https://www.youtube.com/watch?v=jd2dKxl5_To
 Attaching draft deck screenshot:
