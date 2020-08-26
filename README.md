@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [26 Aug 2020 11:16am](https://roytang.net/2020/08/1298579987646177282/): @wrongwaygoback @Will__POP golos
 - [26 Aug 2020 6:32am](https://roytang.net/2020/08/1298508638395355136/): High Score is a pretty good documentary so far, but the Dragon Quest erasure in ep3 is mildly annoying
 - [25 Aug 2020 10:18am](https://roytang.net/2020/08/1298203113195700225/): Tuesday evening Amonkhet Remastered draft (ep9) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 Draft was mediocre; luckily I didnt pay gems for this one. YT: https://www.youtube.com/watch?v=wzWPJGRgpg0
@@ -36,7 +37,6 @@ Draft was mediocre; luckily I didnt pay gems for this one. YT: https://www.youtu
 Managed to break even again this time. YT: https://www.youtube.com/watch?v=jd2dKxl5_To
 Attaching draft deck screenshot:
 - [23 Aug 2020 3:03pm](https://roytang.net/2020/08/1297549927023652864/): Unpopular opinion: I don’t think your life has to have a purpose, or you a grand ambition; I think it’s okay to just wander through life finding interesting things until you die
-- [23 Aug 2020 8:37am](https://roytang.net/2020/08/1297452852600664064/): @SeresaTagAraw you should stay at home though lol
 
 [View all notes](https://roytang.net/notes)
 
