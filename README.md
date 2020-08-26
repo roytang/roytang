@@ -30,6 +30,7 @@ Latest notes:
     
 
 - [26 Aug 2020 11:34am](https://roytang.net/2020/08/1298584635434307584/): Wednesday evening Amonkhet Remastered draft (ep10) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
+The draft deck was so-so, but we ran up against a few bombs so things didn&rsquo;t go well. YT: https://www.youtube.com/watch?v=h2n3Z7VD4bA
 - [26 Aug 2020 11:21am](https://roytang.net/2020/08/1298581386396176388/): @wrongwaygoback @Will__POP just wait until they get kaladesh back in, then use aetherworks marvel
 - [26 Aug 2020 11:16am](https://roytang.net/2020/08/1298579987646177282/): @wrongwaygoback @Will__POP golos
 - [26 Aug 2020 6:32am](https://roytang.net/2020/08/1298508638395355136/): High Score is a pretty good documentary so far, but the Dragon Quest erasure in ep3 is mildly annoying
