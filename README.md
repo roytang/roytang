@@ -29,14 +29,12 @@ Latest shared links:
 Latest notes:
     
 
+- [26 Aug 2020 11:34am](https://roytang.net/2020/08/1298584635434307584/): Wednesday evening Amonkhet Remastered draft (ep10) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
+- [26 Aug 2020 11:21am](https://roytang.net/2020/08/1298581386396176388/): @wrongwaygoback @Will__POP just wait until they get kaladesh back in, then use aetherworks marvel
 - [26 Aug 2020 11:16am](https://roytang.net/2020/08/1298579987646177282/): @wrongwaygoback @Will__POP golos
 - [26 Aug 2020 6:32am](https://roytang.net/2020/08/1298508638395355136/): High Score is a pretty good documentary so far, but the Dragon Quest erasure in ep3 is mildly annoying
 - [25 Aug 2020 10:18am](https://roytang.net/2020/08/1298203113195700225/): Tuesday evening Amonkhet Remastered draft (ep9) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 Draft was mediocre; luckily I didnt pay gems for this one. YT: https://www.youtube.com/watch?v=wzWPJGRgpg0
-- [24 Aug 2020 11:31am](https://roytang.net/2020/08/1297859140749008896/): Monday evening Amonkhet Remastered draft (ep8) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
-Managed to break even again this time. YT: https://www.youtube.com/watch?v=jd2dKxl5_To
-Attaching draft deck screenshot:
-- [23 Aug 2020 3:03pm](https://roytang.net/2020/08/1297549927023652864/): Unpopular opinion: I don’t think your life has to have a purpose, or you a grand ambition; I think it’s okay to just wander through life finding interesting things until you die
 
 [View all notes](https://roytang.net/notes)
 
