@@ -18,11 +18,11 @@ Latest blog posts:
 Latest shared links:
     
 
-- [](https://roytang.net/2020/08/ihmo98/)
 - [What Windows 95 Changed](https://roytang.net/2020/08/what-windows-95-changed/)
 - [The cult of the free must die](https://roytang.net/2020/08/the-cult-of-the-free-must-die/)
 - [Web browsers need to stop](https://roytang.net/2020/08/web-browsers-need-to-stop/)
 - [Google and the Nothing](https://roytang.net/2020/08/google-and-the-nothing/)
+- [Financial Times](https://roytang.net/2020/08/financial-times/)
 
 [View all links](https://roytang.net/links)
 
