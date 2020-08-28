@@ -29,12 +29,13 @@ Latest shared links:
 Latest notes:
     
 
+- [28 Aug 2020 4:55am](https://roytang.net/2020/08/g33ryjz/): Nah man, stores over here carry both R1 and R3 (sometimes R2)
 - [27 Aug 2020 10:42am](https://roytang.net/2020/08/1298933974887280645/): Thursday evening Amonkhet Remastered draft (ep11) https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgakr #twitch
+I decided to do two drafts and both were terrible! Sigh. YT: https://www.youtube.com/watch?v=CmExO-0s_yQ
 - [27 Aug 2020 6:23am](https://roytang.net/2020/08/1298868809017614337/): @quizandhers @triviastorm Uh, I&rsquo;m trying to remember if they ever call him Mark Twain in the episode or just as Clemens. Well I guess we could just consider it. Also, it&rsquo;s not necessary to tag me directly, I check the bot&rsquo;s notifs every so often, so complaining directly to the bot should be fine.
 - [26 Aug 2020 2:11pm](https://roytang.net/2020/08/1298624089637052416/): I might need to dial down my expectations of how well otherwise tech savvy people understand concepts of how modern software works
 - [26 Aug 2020 11:34am](https://roytang.net/2020/08/1298584635434307584/): Wednesday evening Amonkhet Remastered draft (ep10) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
 The draft deck was so-so, but we ran up against a few bombs so things didn&rsquo;t go well. YT: https://www.youtube.com/watch?v=h2n3Z7VD4bA
-- [26 Aug 2020 11:21am](https://roytang.net/2020/08/1298581386396176388/): @wrongwaygoback @Will__POP just wait until they get kaladesh back in, then use aetherworks marvel
 
 [View all notes](https://roytang.net/notes)
 
