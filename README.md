@@ -7,11 +7,11 @@ Visit the site: ![https://roytang.net](.Permalink)
 Latest blog posts:
     
 
+- [On Mobile App Development](https://roytang.net/2020/09/mobile-app-dev/)
 - [Weeknotes 2020-08-30](https://roytang.net/2020/08/weeknotes-2020-08-30/)
 - [Weeknotes 2020-08-23](https://roytang.net/2020/08/weeknotes-2020-08-23/)
 - [On Podcasts, Audiobooks, and Newsletters](https://roytang.net/2020/08/on-podcasts-audiobooks-and-newsletters/)
 - [On Mozilla and Firefox](https://roytang.net/2020/08/on-mozilla-and-firefox/)
-- [Weeknotes 2020-08-16 The Sameyness Report](https://roytang.net/2020/08/weeknotes-2020-08-16-the-sameyness-report/)
 
 [View all posts](https://roytang.net/blog)
 
