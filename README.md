@@ -29,13 +29,12 @@ Latest shared links:
 Latest notes:
     
 
+- [4 Sep 2020 6:23am](https://roytang.net/2020/09/g3ye4n4/): As I recall, the artwork of Finest Hour portrayed a knight fighting some kind of zombie horde? So there&rsquo;s probably some level of monsters on the shard
 - [3 Sep 2020 3:16pm](https://roytang.net/2020/09/1301539553811992576/): @jmcpatino it&rsquo;s like you&rsquo;re saying i&rsquo;m not a pro lol. I knew that, that&rsquo;s still clunky!
 - [2 Sep 2020 10:50pm](https://roytang.net/2020/09/1301291332921470976/): @jaymelynilao I see. I hope everything is ok!
 - [2 Sep 2020 6:26pm](https://roytang.net/2020/09/1301224982463131649/): @jaymelynilao san ka nanggaling? diba may curfew lol
 - [1 Sep 2020 7:36pm](https://roytang.net/2020/09/1300880148518940672/): I&rsquo;m not unhappy about DFCs coming back to standard, but I am glad that I mostly only play #mtg on Arena these days so I don&rsquo;t have to deal with desleeving/helper cards all the time.
 DFCs have unlocked a lot of design space for Magic, but they are so clunky on paper
-- [1 Sep 2020 10:08am](https://roytang.net/2020/09/1300737200460632066/): Amonkhet Remastered draft ep12 (series finale) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgakr
-Thankfully, the planned series finale and 13th draft didn&rsquo;t suck, actually went relatively well! But do we get the 7? YT: https://www.youtube.com/watch?v=LvN3bQZz39k
 
 [View all notes](https://roytang.net/notes)
 
