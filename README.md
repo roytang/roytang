@@ -29,11 +29,11 @@ Latest shared links:
 Latest notes:
     
 
+- [7 Sep 2020 7:18pm](https://roytang.net/2020/09/1303049978634412033/): @rocketkeis btw i&rsquo;m enjoying your mini episode reviews on instagram lol
 - [4 Sep 2020 8:16am](https://roytang.net/2020/09/g3yl430/): Dont both triggers go on the stack regardless of the order of the triggers? i.e. even if you sac the pact to doom foretold before the pact trigger resolves, youre still losing the game
 - [4 Sep 2020 8:07am](https://roytang.net/2020/09/g3yknfu/): Right! My bad
 - [4 Sep 2020 6:23am](https://roytang.net/2020/09/g3ye4n4/): As I recall, the artwork of Finest Hour portrayed a knight fighting some kind of zombie horde? So there&rsquo;s probably some level of monsters on the shard
 - [3 Sep 2020 3:16pm](https://roytang.net/2020/09/1301539553811992576/): @jmcpatino it&rsquo;s like you&rsquo;re saying i&rsquo;m not a pro lol. I knew that, that&rsquo;s still clunky!
-- [2 Sep 2020 10:50pm](https://roytang.net/2020/09/1301291332921470976/): @jaymelynilao I see. I hope everything is ok!
 
 [View all notes](https://roytang.net/notes)
 
