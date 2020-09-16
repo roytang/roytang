@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [16 Sep 2020 6:23pm](https://roytang.net/2020/09/04b1428fe35c94f8157dc2178209b6a7/): I&rsquo;ve been using git for at least 6 years, and every time I need to do a merge I still search for &ldquo;git merging&rdquo; to make sure I don&rsquo;t merge in the wrong direction
 - [15 Sep 2020 12:00pm](https://roytang.net/2020/09/1305838795506368512/): There’s something to be said about how straightforward “Playstation 5” is compared to the debacle that is Xbox naming
 Quoted IGN&#39;s tweet:   The Xbox Series S will not run Xbox One X enhanced versions of backwards compatible games, but will instead run Xbox One S versions of Xbox One and Xbox 360 titles.
 https://bit.ly/2Fv4ltE
@@ -36,7 +37,6 @@ https://bit.ly/2Fv4ltE
 - [13 Sep 2020 10:02pm](https://roytang.net/2020/09/81f2a56837f67d1702af671036373a3c/): I had a data import screwup this morning that made me say &ldquo;thank god for backups!&rdquo;. Good job past me setting up regular backups! That&rsquo;s what I get for coding something on very little sleep
 - [12 Sep 2020 9:08am](https://roytang.net/2020/09/1304708346486775808/): Scientists Suggest We May Be Nearing the End of &ldquo;Disc One&rdquo;
 - [7 Sep 2020 7:18pm](https://roytang.net/2020/09/1303049978634412033/): @rocketkeis btw i&rsquo;m enjoying your mini episode reviews on instagram lol
-- [4 Sep 2020 8:16am](https://roytang.net/2020/09/g3yl430/): Dont both triggers go on the stack regardless of the order of the triggers? i.e. even if you sac the pact to doom foretold before the pact trigger resolves, youre still losing the game
 
 [View all notes](https://roytang.net/notes)
 
