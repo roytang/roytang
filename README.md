@@ -36,6 +36,9 @@ Quoted paulg&#39;s tweet:   Since everyone in the past believed things that woul
 - [17 Sep 2020 8:27pm](https://roytang.net/2020/09/1306691161415847936/): @TheZvi Maintenance has been extended. https://magicthegatheringarena.statuspage.io/ Probably better to wait for a while than trying stuff again
 - [17 Sep 2020 5:45pm](https://roytang.net/2020/09/1306650526990376960/): Zendikar Rising draft! ep1 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgzkn
 So I managed to play one game (and lost) before server-related issues. Will continue later, but here&rsquo;s my draft deck
+I managed to play 2 drafts during this episode: https://www.youtube.com/watch?v=N2rcdcJSloo
+Unfortunately (spoiler!) I performed very poorly D: Have to figure out what I&rsquo;m doing wrong (aside from the obvious misplays), feel free to give feedback!
+2nd draft deck (BG):
 
 [View all notes](https://roytang.net/notes)
 
