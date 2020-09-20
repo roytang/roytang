@@ -7,11 +7,11 @@ Visit the site: ![https://roytang.net](.Permalink)
 Latest blog posts:
     
 
+- [Weeknotes 2020-09-20](https://roytang.net/2020/09/weeknotes-2020-09-20/)
 - [Weeknotes 2020-09-13](https://roytang.net/2020/09/weeknotes-2020-09-13/)
 - [Late Game Review: Uncharted 4: A Thief&#39;s End](https://roytang.net/2020/09/uncharted4/)
 - [Weeknotes 2020-09-06](https://roytang.net/2020/09/weeknotes-2020-09-06/)
 - [On Mobile App Development](https://roytang.net/2020/09/mobile-app-dev/)
-- [Weeknotes 2020-08-30](https://roytang.net/2020/08/weeknotes-2020-08-30/)
 
 [View all posts](https://roytang.net/blog)
 
