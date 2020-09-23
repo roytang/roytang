@@ -18,11 +18,11 @@ Latest blog posts:
 Latest shared links:
     
 
+- [The Era of Visual Studio Code](https://roytang.net/2020/09/the-era-of-visual-studio-code/)
 - [Hunting the Nearly-Invisible Personal Website](https://roytang.net/2020/08/hunting-the-nearly-invisible-personal-website/)
 - [Incremental progress](https://roytang.net/2020/08/incremental-progress/)
 - [What Windows 95 Changed](https://roytang.net/2020/08/what-windows-95-changed/)
 - [The cult of the free must die](https://roytang.net/2020/08/the-cult-of-the-free-must-die/)
-- [Web browsers need to stop](https://roytang.net/2020/08/web-browsers-need-to-stop/)
 
 [View all links](https://roytang.net/links)
 
