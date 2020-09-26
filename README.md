@@ -30,6 +30,8 @@ Latest notes:
     
 
 - [25 Sep 2020 9:01am](https://roytang.net/2020/09/1309417618089168896/): Late Friday afternoon Zendikar Rising draft! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
+I tried U/W party again, but this draft didn&rsquo;t go as well as the last one. I even got hit by network issues! Hopefully I can get an entry refund
+YT: https://www.youtube.com/watch?v=xJtLtPFoMUw
 - [24 Sep 2020 10:23am](https://roytang.net/2020/09/1309075953650470912/): @jaymelynilao fun buffer tasks!
 - [23 Sep 2020 2:12pm](https://roytang.net/2020/09/1308771257521827841/): Bonus #mtg content: a friend told me I was a featured opponent on another guy&rsquo;s Youtube video: https://www.youtube.com/watch?v=ypZOqgz2uMg It&rsquo;s standard, he&rsquo;s running UW control, I&rsquo;m on Temur adventures. Our match goes long and is like almost half of this video! Spoiler: I lost!)
 - [23 Sep 2020 10:46am](https://roytang.net/2020/09/1308719289806065667/): Zendikar Rising draft! ep2 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
