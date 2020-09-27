@@ -29,6 +29,8 @@ Latest shared links:
 Latest notes:
     
 
+- [27 Sep 2020 2:58pm](https://roytang.net/2020/09/1310232349494243328/): Current mood
+Your browser does not support the video tag.  
 - [25 Sep 2020 9:01am](https://roytang.net/2020/09/1309417618089168896/): Late Friday afternoon Zendikar Rising draft! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
 I tried U/W party again, but this draft didn&rsquo;t go as well as the last one. I even got hit by network issues! Hopefully I can get an entry refund
 YT: https://www.youtube.com/watch?v=xJtLtPFoMUw
@@ -37,7 +39,6 @@ YT: https://www.youtube.com/watch?v=xJtLtPFoMUw
 - [23 Sep 2020 10:46am](https://roytang.net/2020/09/1308719289806065667/): Zendikar Rising draft! ep2 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
 This draft went much better than the first 2 did! Went with UW party
 Oops, forgot the YT link: https://www.youtube.com/watch?v=EtrGmk9cxqA
-- [23 Sep 2020 9:51am](https://roytang.net/2020/09/1308705502650535938/): @rovietoosin saan ka na lilipat?
 
 [View all notes](https://roytang.net/notes)
 
