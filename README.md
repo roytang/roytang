@@ -29,6 +29,8 @@ Latest shared links:
 Latest notes:
     
 
+- [28 Sep 2020 8:32am](https://roytang.net/2020/09/1310497720117784577/): #SuperMario3DAllStars #NintendoSwitch
+Your browser does not support the video tag.  
 - [27 Sep 2020 2:58pm](https://roytang.net/2020/09/1310232349494243328/): Current mood
 Your browser does not support the video tag.  
 - [25 Sep 2020 9:01am](https://roytang.net/2020/09/1309417618089168896/): Late Friday afternoon Zendikar Rising draft! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
@@ -36,9 +38,6 @@ I tried U/W party again, but this draft didn&rsquo;t go as well as the last one.
 YT: https://www.youtube.com/watch?v=xJtLtPFoMUw
 - [24 Sep 2020 10:23am](https://roytang.net/2020/09/1309075953650470912/): @jaymelynilao fun buffer tasks!
 - [23 Sep 2020 2:12pm](https://roytang.net/2020/09/1308771257521827841/): Bonus #mtg content: a friend told me I was a featured opponent on another guy&rsquo;s Youtube video: https://www.youtube.com/watch?v=ypZOqgz2uMg It&rsquo;s standard, he&rsquo;s running UW control, I&rsquo;m on Temur adventures. Our match goes long and is like almost half of this video! Spoiler: I lost!)
-- [23 Sep 2020 10:46am](https://roytang.net/2020/09/1308719289806065667/): Zendikar Rising draft! ep2 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
-This draft went much better than the first 2 did! Went with UW party
-Oops, forgot the YT link: https://www.youtube.com/watch?v=EtrGmk9cxqA
 
 [View all notes](https://roytang.net/notes)
 
