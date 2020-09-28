@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [28 Sep 2020 10:10am](https://roytang.net/2020/09/1310522194468929538/): Early Monday evening Zendikar Rising draft! ep4 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
 - [28 Sep 2020 9:04am](https://roytang.net/2020/09/1310505527483363329/): Instagram is still so dumb
 - [28 Sep 2020 8:32am](https://roytang.net/2020/09/1310497720117784577/): #SuperMario3DAllStars #NintendoSwitch
 Your browser does not support the video tag.  
@@ -37,7 +38,6 @@ Your browser does not support the video tag.
 - [25 Sep 2020 9:01am](https://roytang.net/2020/09/1309417618089168896/): Late Friday afternoon Zendikar Rising draft! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
 I tried U/W party again, but this draft didn&rsquo;t go as well as the last one. I even got hit by network issues! Hopefully I can get an entry refund
 YT: https://www.youtube.com/watch?v=xJtLtPFoMUw
-- [24 Sep 2020 10:23am](https://roytang.net/2020/09/1309075953650470912/): @jaymelynilao fun buffer tasks!
 
 [View all notes](https://roytang.net/notes)
 
