@@ -29,14 +29,13 @@ Latest shared links:
 Latest notes:
     
 
+- [29 Sep 2020 10:16am](https://roytang.net/2020/09/1310886163369127937/): Early Tuesday evening Zendikar Rising draft! ep5 https://www.twitch.tv/twitchyroy
 - [28 Sep 2020 11:18pm](https://roytang.net/2020/09/1310720616186540032/): I think I&rsquo;ll go ahead and turn these 4 mythic WCs from the Uro ban, turn them into Omnaths, then jam them into my Adventures deck. If Omnath gets the axe later, I get the WCs back! #mtg #magicarena
 - [28 Sep 2020 12:54pm](https://roytang.net/2020/09/1310563548712415232/): @SeresaTagAraw thanks for telling us this
 - [28 Sep 2020 10:10am](https://roytang.net/2020/09/1310522194468929538/): Early Monday evening Zendikar Rising draft! ep4 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
 Draft was okayish!
 YT: https://www.youtube.com/watch?v=R3hSZukyvpg
 - [28 Sep 2020 9:04am](https://roytang.net/2020/09/1310505527483363329/): Instagram is still so dumb
-- [28 Sep 2020 8:32am](https://roytang.net/2020/09/1310497720117784577/): #SuperMario3DAllStars #NintendoSwitch
-Your browser does not support the video tag.  
 
 [View all notes](https://roytang.net/notes)
 
