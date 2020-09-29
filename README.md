@@ -30,6 +30,8 @@ Latest notes:
     
 
 - [29 Sep 2020 10:16am](https://roytang.net/2020/09/1310886163369127937/): Early Tuesday evening Zendikar Rising draft! ep5 https://www.twitch.tv/twitchyroy
+Managed to do two drafts today, one was better than the other.
+YT: https://www.youtube.com/watch?v=B_IChZkldkw
 - [28 Sep 2020 11:18pm](https://roytang.net/2020/09/1310720616186540032/): I think I&rsquo;ll go ahead and turn these 4 mythic WCs from the Uro ban, turn them into Omnaths, then jam them into my Adventures deck. If Omnath gets the axe later, I get the WCs back! #mtg #magicarena
 - [28 Sep 2020 12:54pm](https://roytang.net/2020/09/1310563548712415232/): @SeresaTagAraw thanks for telling us this
 - [28 Sep 2020 10:10am](https://roytang.net/2020/09/1310522194468929538/): Early Monday evening Zendikar Rising draft! ep4 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
