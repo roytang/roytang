@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [1 Oct 2020 1:21pm](https://roytang.net/2020/10/j38fx5/): Posted on r/PlayStationPlus: My local store is selling 12mo PS+ codes, would these expire, or can I hold onto them until something I want is on plus? (I dont need the online) 
 - [1 Oct 2020 1:13pm](https://roytang.net/2020/10/1311655542008377346/): took me 5 tries to win at #SuperMarioBros35 #NintendoSwitchOnline #NintendoSwitch
 Your browser does not support the video tag.  
 - [1 Oct 2020 9:44am](https://roytang.net/2020/10/1311602939891535872/): Early Thursday evening Zendikar Rising draft! ep5 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
@@ -38,7 +39,6 @@ YT: https://www.youtube.com/watch?v=PwCJkuAYR-o
 - [29 Sep 2020 10:16am](https://roytang.net/2020/09/1310886163369127937/): Early Tuesday evening Zendikar Rising draft! ep5 https://www.twitch.tv/twitchyroy
 Managed to do two drafts today, one was better than the other.
 YT: https://www.youtube.com/watch?v=B_IChZkldkw
-- [28 Sep 2020 11:18pm](https://roytang.net/2020/09/1310720616186540032/): I think I&rsquo;ll go ahead and turn these 4 mythic WCs from the Uro ban, turn them into Omnaths, then jam them into my Adventures deck. If Omnath gets the axe later, I get the WCs back! #mtg #magicarena
 
 [View all notes](https://roytang.net/notes)
 
