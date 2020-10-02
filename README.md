@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [2 Oct 2020 5:30am](https://roytang.net/2020/10/1311901405578358785/): @rovietoosin might be a strategy to avoid the next 2 debates
 - [1 Oct 2020 1:21pm](https://roytang.net/2020/10/j38fx5/): Posted on r/PlayStationPlus: My local store is selling 12mo PS+ codes, would these expire, or can I hold onto them until something I want is on plus? (I dont need the online) 
 - [1 Oct 2020 1:13pm](https://roytang.net/2020/10/1311655542008377346/): took me 5 tries to win at #SuperMarioBros35 #NintendoSwitchOnline #NintendoSwitch
 Your browser does not support the video tag.  
@@ -36,9 +37,6 @@ Your browser does not support the video tag.
 Best draft so far! Still doing well with UW party, but basically had good pulls
 YT: https://www.youtube.com/watch?v=PwCJkuAYR-o
 - [29 Sep 2020 1:26pm](https://roytang.net/2020/09/c11f9f76ed1a85539df66f3b898c45fc/): Today in how dumb I am: a replacement band for my fitbit that I had ordered arrived today. I easily removed the old band and quickly put the new one in place but when I tried to wear it, I realized I had put them on upside-down. =/ And now I can&rsquo;t remove it!
-- [29 Sep 2020 10:16am](https://roytang.net/2020/09/1310886163369127937/): Early Tuesday evening Zendikar Rising draft! ep5 https://www.twitch.tv/twitchyroy
-Managed to do two drafts today, one was better than the other.
-YT: https://www.youtube.com/watch?v=B_IChZkldkw
 
 [View all notes](https://roytang.net/notes)
 
