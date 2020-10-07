@@ -18,11 +18,11 @@ Latest blog posts:
 Latest shared links:
     
 
+- [Why do mirrors flip horizontally (but not vertically)?](https://roytang.net/2020/10/why-do-mirrors-flip-horizontally-but-not-vertically/)
 - [Types  — Sympolymathesy, by Chris Krycho](https://roytang.net/2020/09/types-sympolymathesy-by-chris-krycho/)
 - [The Era of Visual Studio Code](https://roytang.net/2020/09/the-era-of-visual-studio-code/)
 - [Hunting the Nearly-Invisible Personal Website](https://roytang.net/2020/08/hunting-the-nearly-invisible-personal-website/)
 - [Incremental progress](https://roytang.net/2020/08/incremental-progress/)
-- [What Windows 95 Changed](https://roytang.net/2020/08/what-windows-95-changed/)
 
 [View all links](https://roytang.net/links)
 
