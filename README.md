@@ -29,6 +29,10 @@ Latest shared links:
 Latest notes:
     
 
+- [7 Oct 2020 9:21pm](https://roytang.net/2020/10/1313952706197778432/): As an electronics engineer and someone who puts his own pcs together, this was great to watch, but damn that console is huge!
+Quoted PlayStation&#39;s tweet:   The official PS5 teardown video is here: http://play.st/3lgZ884
+Get up-close and personal with PS5&rsquo;s next-generation technology, a culmination of five years of design and development.
+Your browser does not support the video tag.   
 - [2 Oct 2020 5:30am](https://roytang.net/2020/10/1311901405578358785/): @rovietoosin might be a strategy to avoid the next 2 debates
 - [1 Oct 2020 1:21pm](https://roytang.net/2020/10/j38fx5/): Posted on r/PlayStationPlus: My local store is selling 12mo PS+ codes, would these expire, or can I hold onto them until something I want is on plus? (I dont need the online) 
 - [1 Oct 2020 1:13pm](https://roytang.net/2020/10/1311655542008377346/): took me 5 tries to win at #SuperMarioBros35 #NintendoSwitchOnline #NintendoSwitch
@@ -36,7 +40,6 @@ Your browser does not support the video tag.
 - [1 Oct 2020 9:44am](https://roytang.net/2020/10/1311602939891535872/): Early Thursday evening Zendikar Rising draft! ep5 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
 Best draft so far! Still doing well with UW party, but basically had good pulls
 YT: https://www.youtube.com/watch?v=PwCJkuAYR-o
-- [29 Sep 2020 1:26pm](https://roytang.net/2020/09/c11f9f76ed1a85539df66f3b898c45fc/): Today in how dumb I am: a replacement band for my fitbit that I had ordered arrived today. I easily removed the old band and quickly put the new one in place but when I tried to wear it, I realized I had put them on upside-down. =/ And now I can&rsquo;t remove it!
 
 [View all notes](https://roytang.net/notes)
 
