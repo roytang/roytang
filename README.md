@@ -29,6 +29,8 @@ Latest shared links:
 Latest notes:
     
 
+- [8 Oct 2020 3:20pm](https://roytang.net/2020/10/1314224120490389504/): I finished Super Mario Sunshine! #SuperMario3DAllStars #NintendoSwitch
+Your browser does not support the video tag.  
 - [7 Oct 2020 9:21pm](https://roytang.net/2020/10/1313952706197778432/): As an electronics engineer and someone who puts his own pcs together, this was great to watch, but damn that console is huge!
 Quoted PlayStation&#39;s tweet:   The official PS5 teardown video is here: http://play.st/3lgZ884
 Get up-close and personal with PS5&rsquo;s next-generation technology, a culmination of five years of design and development.
@@ -37,9 +39,6 @@ Your browser does not support the video tag.
 - [1 Oct 2020 1:21pm](https://roytang.net/2020/10/j38fx5/): Posted on r/PlayStationPlus: My local store is selling 12mo PS+ codes, would these expire, or can I hold onto them until something I want is on plus? (I dont need the online) 
 - [1 Oct 2020 1:13pm](https://roytang.net/2020/10/1311655542008377346/): took me 5 tries to win at #SuperMarioBros35 #NintendoSwitchOnline #NintendoSwitch
 Your browser does not support the video tag.  
-- [1 Oct 2020 9:44am](https://roytang.net/2020/10/1311602939891535872/): Early Thursday evening Zendikar Rising draft! ep5 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
-Best draft so far! Still doing well with UW party, but basically had good pulls
-YT: https://www.youtube.com/watch?v=PwCJkuAYR-o
 
 [View all notes](https://roytang.net/notes)
 
