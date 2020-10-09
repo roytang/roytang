@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [9 Oct 2020 8:40am](https://roytang.net/2020/10/1314485835119689728/): Friday afternoon Zendikar Rising draft! ep7 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
 - [8 Oct 2020 3:20pm](https://roytang.net/2020/10/1314224120490389504/): I finished Super Mario Sunshine! #SuperMario3DAllStars #NintendoSwitch
 Your browser does not support the video tag.  
 - [7 Oct 2020 9:21pm](https://roytang.net/2020/10/1313952706197778432/): As an electronics engineer and someone who puts his own pcs together, this was great to watch, but damn that console is huge!
@@ -37,8 +38,6 @@ Get up-close and personal with PS5&rsquo;s next-generation technology, a culmina
 Your browser does not support the video tag.   
 - [2 Oct 2020 5:30am](https://roytang.net/2020/10/1311901405578358785/): @rovietoosin might be a strategy to avoid the next 2 debates
 - [1 Oct 2020 1:21pm](https://roytang.net/2020/10/j38fx5/): Posted on r/PlayStationPlus: My local store is selling 12mo PS+ codes, would these expire, or can I hold onto them until something I want is on plus? (I dont need the online) 
-- [1 Oct 2020 1:13pm](https://roytang.net/2020/10/1311655542008377346/): took me 5 tries to win at #SuperMarioBros35 #NintendoSwitchOnline #NintendoSwitch
-Your browser does not support the video tag.  
 
 [View all notes](https://roytang.net/notes)
 
