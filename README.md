@@ -29,6 +29,11 @@ Latest shared links:
 Latest notes:
     
 
+- [10 Oct 2020 4:27pm](https://roytang.net/2020/10/1314965791847006208/): Low on funds for games?
+Or want to experience something fun and unique?
+The freeware indie scene has always been home to many of the most varied &amp; creative ideas in gaming.
+Here&rsquo;s my GIANT, regularly updated thread of completely, 100% free games! Plz try some!❤️
+Your browser does not support the video tag.  
 - [9 Oct 2020 8:40am](https://roytang.net/2020/10/1314485835119689728/): Friday afternoon Zendikar Rising draft! ep7 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
 Draft went reasonably well! Tried a new archetype this time (new for me at least)
 YT: https://www.youtube.com/watch?v=IQVHzOe2Y5c
@@ -39,7 +44,6 @@ Quoted PlayStation&#39;s tweet:   The official PS5 teardown video is here: http:
 Get up-close and personal with PS5&rsquo;s next-generation technology, a culmination of five years of design and development.
 Your browser does not support the video tag.   
 - [2 Oct 2020 5:30am](https://roytang.net/2020/10/1311901405578358785/): @rovietoosin might be a strategy to avoid the next 2 debates
-- [1 Oct 2020 1:21pm](https://roytang.net/2020/10/j38fx5/): Posted on r/PlayStationPlus: My local store is selling 12mo PS+ codes, would these expire, or can I hold onto them until something I want is on plus? (I dont need the online) 
 
 [View all notes](https://roytang.net/notes)
 
