@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [12 Oct 2020 12:30pm](https://roytang.net/2020/10/1315630798771380224/): i know it doesnt mean anything since theyre both spineless toadies anyway, but im lowkey hoping for a fistfight in congress tomorrow. if we can&rsquo;t get good governance, we can at least be entertained, amirite? sigh
 - [10 Oct 2020 4:27pm](https://roytang.net/2020/10/1314965791847006208/): Low on funds for games?
 Or want to experience something fun and unique?
 The freeware indie scene has always been home to many of the most varied &amp; creative ideas in gaming.
@@ -43,7 +44,6 @@ Your browser does not support the video tag.
 Quoted PlayStation&#39;s tweet:   The official PS5 teardown video is here: http://play.st/3lgZ884
 Get up-close and personal with PS5&rsquo;s next-generation technology, a culmination of five years of design and development.
 Your browser does not support the video tag.   
-- [2 Oct 2020 5:30am](https://roytang.net/2020/10/1311901405578358785/): @rovietoosin might be a strategy to avoid the next 2 debates
 
 [View all notes](https://roytang.net/notes)
 
