@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [12 Oct 2020 1:35pm](https://roytang.net/2020/10/1315647188999892997/): @mlq3 They want to see how this whole speaker nonsense shakes out first
 - [12 Oct 2020 12:30pm](https://roytang.net/2020/10/1315630798771380224/): i know it doesnt mean anything since theyre both spineless toadies anyway, but im lowkey hoping for a fistfight in congress tomorrow. if we can&rsquo;t get good governance, we can at least be entertained, amirite? sigh
 - [10 Oct 2020 4:27pm](https://roytang.net/2020/10/1314965791847006208/): Low on funds for games?
 Or want to experience something fun and unique?
@@ -40,10 +41,6 @@ Draft went reasonably well! Tried a new archetype this time (new for me at least
 YT: https://www.youtube.com/watch?v=IQVHzOe2Y5c
 - [8 Oct 2020 3:20pm](https://roytang.net/2020/10/1314224120490389504/): I finished Super Mario Sunshine! #SuperMario3DAllStars #NintendoSwitch
 Your browser does not support the video tag.  
-- [7 Oct 2020 9:21pm](https://roytang.net/2020/10/1313952706197778432/): As an electronics engineer and someone who puts his own pcs together, this was great to watch, but damn that console is huge!
-Quoted PlayStation&#39;s tweet:   The official PS5 teardown video is here: http://play.st/3lgZ884
-Get up-close and personal with PS5&rsquo;s next-generation technology, a culmination of five years of design and development.
-Your browser does not support the video tag.   
 
 [View all notes](https://roytang.net/notes)
 
