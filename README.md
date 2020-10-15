@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [15 Oct 2020 10:58am](https://roytang.net/2020/10/1316695018871099393/): 10/15 Thursday evening Zendikar Rising draft! ep8 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgznr #twitch
 - [13 Oct 2020 5:10am](https://roytang.net/2020/10/1315882634732429312/): @SeresaTagAraw boo walang nagsapakan
 - [12 Oct 2020 1:35pm](https://roytang.net/2020/10/1315647188999892997/): @mlq3 They want to see how this whole speaker nonsense shakes out first
 - [12 Oct 2020 12:30pm](https://roytang.net/2020/10/1315630798771380224/): i know it doesnt mean anything since theyre both spineless toadies anyway, but im lowkey hoping for a fistfight in congress tomorrow. if we can&rsquo;t get good governance, we can at least be entertained, amirite? sigh
@@ -37,9 +38,6 @@ Or want to experience something fun and unique?
 The freeware indie scene has always been home to many of the most varied &amp; creative ideas in gaming.
 Here&rsquo;s my GIANT, regularly updated thread of completely, 100% free games! Plz try some!❤️
 Your browser does not support the video tag.  
-- [9 Oct 2020 8:40am](https://roytang.net/2020/10/1314485835119689728/): Friday afternoon Zendikar Rising draft! ep7 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
-Draft went reasonably well! Tried a new archetype this time (new for me at least)
-YT: https://www.youtube.com/watch?v=IQVHzOe2Y5c
 
 [View all notes](https://roytang.net/notes)
 
