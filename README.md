@@ -29,17 +29,13 @@ Latest shared links:
 Latest notes:
     
 
+- [18 Oct 2020 12:25pm](https://roytang.net/2020/10/1317803889601564672/): @paulcatiang &hellip; why does an mmda asec need 70 admins? are we paying for those?
 - [15 Oct 2020 10:58am](https://roytang.net/2020/10/1316695018871099393/): 10/15 Thursday evening Zendikar Rising draft! ep8 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgznr #twitch
 Raredrafted a bunch, risky pool, mediocre finish. YT: https://www.youtube.com/watch?v=ZQhC07pawS8&amp;feature=youtu.be
 Wrong YT link! https://www.youtube.com/watch?v=yfnV1mnnmuI&amp;feature=youtu.be
 - [13 Oct 2020 5:10am](https://roytang.net/2020/10/1315882634732429312/): @SeresaTagAraw boo walang nagsapakan
 - [12 Oct 2020 1:35pm](https://roytang.net/2020/10/1315647188999892997/): @mlq3 They want to see how this whole speaker nonsense shakes out first
 - [12 Oct 2020 12:30pm](https://roytang.net/2020/10/1315630798771380224/): i know it doesnt mean anything since theyre both spineless toadies anyway, but im lowkey hoping for a fistfight in congress tomorrow. if we can&rsquo;t get good governance, we can at least be entertained, amirite? sigh
-- [10 Oct 2020 4:27pm](https://roytang.net/2020/10/1314965791847006208/): Low on funds for games?
-Or want to experience something fun and unique?
-The freeware indie scene has always been home to many of the most varied &amp; creative ideas in gaming.
-Here&rsquo;s my GIANT, regularly updated thread of completely, 100% free games! Plz try some!❤️
-Your browser does not support the video tag.  
 
 [View all notes](https://roytang.net/notes)
 
