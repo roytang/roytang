@@ -7,11 +7,11 @@ Visit the site: ![https://roytang.net](.Permalink)
 Latest blog posts:
     
 
+- [Weeknotes 2020-10-18](https://roytang.net/2020/10/weeknotes-2020-10-18/)
 - [Weeknotes 2020-10-11](https://roytang.net/2020/10/weeknotes-2020-10-11/)
 - [Weeknotes 2020-10-04 Switching It Up](https://roytang.net/2020/10/weeknotes-2020-10-04/)
 - [Weeknotes 2020-09-27](https://roytang.net/2020/09/weeknotes-2020-09-27/)
 - [Weeknotes 2020-09-20](https://roytang.net/2020/09/weeknotes-2020-09-20/)
-- [Weeknotes 2020-09-13](https://roytang.net/2020/09/weeknotes-2020-09-13/)
 
 [View all posts](https://roytang.net/blog)
 
