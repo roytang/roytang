@@ -26,10 +26,10 @@ Latest shared links:
 
 Latest notes:
 
-- [Oct. 19, 2020, 9:46 a.m.](/2020/10/inktober-19-dizzy/): {&#x27;content&#x27;: &#x27;Inktober 2020 day 19: DIZZY I will admit I was being kind of lazy here. Official prompt list: https://inktober.com/rules&#x27;, &#x27;truncated&#x27;: False, &#x27;wordcount&#x27;: 19}
-- [Oct. 19, 2020, 5:11 a.m.](/2020/10/1318057267246198784/): {&#x27;content&#x27;: &#x27;This is a test. Well, maybe all of life is a test.&#x27;, &#x27;truncated&#x27;: False, &#x27;wordcount&#x27;: 12}
-- [Oct. 18, 2020, 12:32 p.m.](/2020/10/1317805734554259456/): {&#x27;content&#x27;: &quot;Let’s ask @MMDA Quoted roytang&#x27;s tweet: @paulcatiang ... why does an mmda asec need 70 admins? are we paying for those?&quot;, &#x27;truncated&#x27;: False, &#x27;wordcount&#x27;: 21}
-- [Oct. 18, 2020, 12:25 p.m.](/2020/10/1317803889601564672/): {&#x27;content&#x27;: &#x27;@paulcatiang ... why does an mmda asec need 70 admins? are we paying for those?&#x27;, &#x27;truncated&#x27;: False, &#x27;wordcount&#x27;: 15}
-- [Oct. 18, 2020, 5:37 a.m.](/2020/10/inktober-18-trap/): {&#x27;content&#x27;: &#x27;Inktober 2020 day 18: TRAP (jaw) Official prompt list: https://inktober.com/rules&#x27;, &#x27;truncated&#x27;: False, &#x27;wordcount&#x27;: 10}
+- [Oct. 19, 2020, 9:46 a.m.](/2020/10/inktober-19-dizzy/): Inktober 2020 day 19: DIZZY I will admit I was being kind of lazy here. Official prompt list: https://inktober.com/rules
+- [Oct. 19, 2020, 5:11 a.m.](/2020/10/1318057267246198784/): This is a test. Well, maybe all of life is a test.
+- [Oct. 18, 2020, 12:32 p.m.](/2020/10/1317805734554259456/): Let’s ask @MMDA Quoted roytang&#x27;s tweet: @paulcatiang ... why does an mmda asec need 70 admins? are we paying for those?
+- [Oct. 18, 2020, 12:25 p.m.](/2020/10/1317803889601564672/): @paulcatiang ... why does an mmda asec need 70 admins? are we paying for those?
+- [Oct. 18, 2020, 5:37 a.m.](/2020/10/inktober-18-trap/): Inktober 2020 day 18: TRAP (jaw) Official prompt list: https://inktober.com/rules
 
 [View all notes](https://roytang.net/notes)
