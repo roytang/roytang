@@ -33,3 +33,14 @@ Latest notes:
 - [Oct. 18, 2020, 5:37 a.m.](/2020/10/inktober-18-trap/): Inktober 2020 day 18: TRAP (jaw) Official prompt list: https://inktober.com/rules
 
 [View all notes](https://roytang.net/notes)
+
+Elsewhere:
+
+- [Twitter](https://twitter.com/roytang)
+- [Mastodon](https://mastodon.technology/@roytang)
+- [Twitch](https://twitch.tv/twitchyroy)
+- [LinkedIn](https://www.linkedin.com/in/roytang)
+- [Instagram](https://instagram.com/roytang0400)
+- [Github](https://github.com/roytang)
+- [Reddit](https://reddit.com/u/hungryroy)
+- [Ko-fi](https://ko-fi.com/roytang)
