@@ -30,6 +30,7 @@ Latest notes:
     
 
 - [19 Oct 2020 5:11am](https://roytang.net/2020/10/1318057267246198784/): This is a test. Well, maybe all of life is a test.
+Edit: Updated.
 - [18 Oct 2020 12:32pm](https://roytang.net/2020/10/1317805734554259456/): Let’s ask @MMDA
 Quoted roytang&#39;s tweet:   @paulcatiang &hellip; why does an mmda asec need 70 admins? are we paying for those?  
 - [18 Oct 2020 12:25pm](https://roytang.net/2020/10/1317803889601564672/): @paulcatiang &hellip; why does an mmda asec need 70 admins? are we paying for those?
