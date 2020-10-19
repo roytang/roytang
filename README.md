@@ -29,6 +29,7 @@ Latest shared links:
 Latest notes:
     
 
+- [19 Oct 2020 5:11am](https://roytang.net/2020/10/1318057267246198784/): This is a test. Well, maybe all of life is a test.
 - [18 Oct 2020 12:32pm](https://roytang.net/2020/10/1317805734554259456/): Let’s ask @MMDA
 Quoted roytang&#39;s tweet:   @paulcatiang &hellip; why does an mmda asec need 70 admins? are we paying for those?  
 - [18 Oct 2020 12:25pm](https://roytang.net/2020/10/1317803889601564672/): @paulcatiang &hellip; why does an mmda asec need 70 admins? are we paying for those?
@@ -36,7 +37,6 @@ Quoted roytang&#39;s tweet:   @paulcatiang &hellip; why does an mmda asec need 7
 Raredrafted a bunch, risky pool, mediocre finish. YT: https://www.youtube.com/watch?v=ZQhC07pawS8&amp;feature=youtu.be
 Wrong YT link! https://www.youtube.com/watch?v=yfnV1mnnmuI&amp;feature=youtu.be
 - [13 Oct 2020 5:10am](https://roytang.net/2020/10/1315882634732429312/): @SeresaTagAraw boo walang nagsapakan
-- [12 Oct 2020 1:35pm](https://roytang.net/2020/10/1315647188999892997/): @mlq3 They want to see how this whole speaker nonsense shakes out first
 
 [View all notes](https://roytang.net/notes)
 
