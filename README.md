@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
-- [Oct. 20, 2020, 6:49 a.m.](https://roytang.net/2020/10/1318444091483459584/): #Inktober 2020 day 20: CORAL I didn&#x27;t spend too much time on this because I find corals weird and creepy. #inktober2020 https://roytang.net/2020/10/inktober-20-coral/
 - [Oct. 20, 2020, 6:24 a.m.](https://roytang.net/2020/10/inktober-20-coral/): Inktober 2020 day 20: CORAL I didn&#x27;t spend too much time on this because I find corals weird and creepy. Official prompt list: https://inktober.com/rules
 - [Oct. 19, 2020, 5:12 p.m.](https://roytang.net/2020/10/1318238520251621377/): 120 stars! I&#x27;ll probably save that Luigi run for some other time though #SuperMario3DAllStars #NintendoSwitch
 - [Oct. 19, 2020, 9:46 a.m.](https://roytang.net/2020/10/inktober-19-dizzy/): Inktober 2020 day 19: DIZZY I will admit I was being kind of lazy here. Official prompt list: https://inktober.com/rules
 - [Oct. 19, 2020, 5:11 a.m.](https://roytang.net/2020/10/1318057267246198784/): This is a test. Well, maybe all of life is a test.
+- [Oct. 18, 2020, 12:32 p.m.](https://roytang.net/2020/10/1317805734554259456/): Let’s ask @MMDA Quoted roytang&#x27;s tweet: @paulcatiang ... why does an mmda asec need 70 admins? are we paying for those?
 
 [View all notes](https://roytang.net/notes)
 
