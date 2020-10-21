@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Game Review: Super Mario 3d All-stars](https://roytang.net/2020/10/mario-3d-all-stars/)
 - [Weeknotes 2020-10-18](https://roytang.net/2020/10/weeknotes-2020-10-18/)
 - [Weeknotes 2020-10-11](https://roytang.net/2020/10/weeknotes-2020-10-11/)
 - [Weeknotes 2020-10-04 Switching It Up](https://roytang.net/2020/10/weeknotes-2020-10-04/)
 - [Weeknotes 2020-09-27](https://roytang.net/2020/09/weeknotes-2020-09-27/)
-- [Weeknotes 2020-09-20](https://roytang.net/2020/09/weeknotes-2020-09-20/)
 
 [View all posts](https://roytang.net/blog)
 
