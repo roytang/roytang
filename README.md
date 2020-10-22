@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The story behind Markdown.](https://roytang.net/2020/10/the-story-behind-markdown/)
 - [How Discord Won](https://roytang.net/2020/10/how-discord-won/)
 - [6 Ways to Build a Better Normal (If and When We Ever Get There)](https://roytang.net/2020/10/6-ways-to-build-a-better-normal-if-and-when-we-ever-get-there/)
 - [&#x27;Hyperbole and a Half&#x27; Blogger Allie Brosh Quit the Internet for Six Years. She&#x27;s Ready to Talk About It](https://roytang.net/2020/10/hyperbole-and-a-half-blogger-allie-brosh-quit-the-internet-for-six-years-she-s-ready-to-talk-about-i/)
 - [The 100 Sequences That Shaped Animation](https://roytang.net/2020/10/the-100-sequences-that-shaped-animation/)
-- [Why do mirrors flip horizontally (but not vertically)?](https://roytang.net/2020/10/why-do-mirrors-flip-horizontally-but-not-vertically/)
 
 [View all links](https://roytang.net/links)
 
