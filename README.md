@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 22, 2020, 8:08 p.m.](https://roytang.net/2020/10/1319370069479018496/): @rovietoosin ano reddit username mo?
 - [Oct. 22, 2020, 4:03 p.m.](https://roytang.net/2020/10/1319308503903731712/): Survey: Do you enjoy horror stories/movies?
 - [Oct. 22, 2020, 8:31 a.m.](https://roytang.net/2020/10/inktober-22-chef/): Inktober 2020 day 22: CHEF Official prompt list: https://inktober.com/rules
 - [Oct. 21, 2020, 9:05 a.m.](https://roytang.net/2020/10/inktober-21-sleep/): Inktober 2020 day 21: SLEEP Official prompt list: https://inktober.com/rules
 - [Oct. 20, 2020, 6:24 a.m.](https://roytang.net/2020/10/inktober-20-coral/): Inktober 2020 day 20: CORAL I didn&#x27;t spend too much time on this because I find corals weird and creepy. Official prompt list: https://inktober.com/rules
-- [Oct. 19, 2020, 5:12 p.m.](https://roytang.net/2020/10/1318238520251621377/): 120 stars! I&#x27;ll probably save that Luigi run for some other time though #SuperMario3DAllStars #NintendoSwitch
 
 [View all notes](https://roytang.net/notes)
 
