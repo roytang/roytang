@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 23, 2020, 9:24 a.m.](https://roytang.net/2020/10/1319570275986452480/): 10/23 Friday afternoon Zendikar Rising draft! ep9 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgznr #twitch
 - [Oct. 23, 2020, 6:59 a.m.](https://roytang.net/2020/10/4d61f87d13cb070725f8e993d517ee40/): This is a test. It has no beavers.
 - [Oct. 23, 2020, 4:16 a.m.](https://roytang.net/2020/10/1319492782478639104/): @rovietoosin hindi pa tayo level 99 huhu
 - [Oct. 22, 2020, 8:27 p.m.](https://roytang.net/2020/10/inktober-23-rip/): Inktober 2020 day 23: RIP I fully admit the head proportions got away from me, and I was too lazy to start over. Tried to fix it best as I could. Official prompt list: https://inktober.com/rules *day 23
 - [Oct. 22, 2020, 8:08 p.m.](https://roytang.net/2020/10/1319370069479018496/): @rovietoosin ano reddit username mo?
-- [Oct. 22, 2020, 4:03 p.m.](https://roytang.net/2020/10/1319308503903731712/): Survey: Do you enjoy horror stories/movies?
 
 [View all notes](https://roytang.net/notes)
 
