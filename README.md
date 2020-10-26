@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 26, 2020, 8:58 a.m.](https://roytang.net/2020/10/inktober-26-hide/): Inktober 2020 day 26: HIDE Official prompt list: https://inktober.com/rules
 - [Oct. 26, 2020, 3:05 a.m.](https://roytang.net/2020/10/1320562175245598721/): Local banks need to be making sure their websites work with Firefox. Not everyone uses Chrome!
 - [Oct. 25, 2020, 5:04 a.m.](https://roytang.net/2020/10/inktober-25-buddy/): Inktober 2020 day 25: BUDDY This was way too ambitious for my shaky hands. Proportions also a bit out of whack. Official prompt list: https://inktober.com/rules
 - [Oct. 24, 2020, 9:18 a.m.](https://roytang.net/2020/10/inktober-24-dig/): Inktober 2020 day 24: DIG Official prompt list: https://inktober.com/rules
 - [Oct. 24, 2020, 12:15 a.m.](https://roytang.net/2020/10/1319794495395745793/): Despite not having played Eternal since before the pandemic, after reading this tweet from LSV, I signed up for the event he described and got the 7 wins and qualified for the LCQ in the first try. I used Skelle&#x27;s decklist from here: https://direwolfdigital.com/news/throne-summer-championship-decklists/ I&#x27;m having fun! Quoted lsv&#x27;s tweet: This is the perfect time to get into Eternal - you can try any deck you want, you&#x27;ve got a high-stakes tournament to play in, and there are lots of resources in the article for decklists, strategy guides, and more. I&#x27;m really hype about this, and would love to see
-- [Oct. 23, 2020, 1:57 p.m.](https://roytang.net/2020/10/a38e76d18c18ef7048cd755f7374f753/): In a pandemic, we wear masks to protect others. On the internet, we should avoid Facebook to protect others.
 
 [View all notes](https://roytang.net/notes)
 
