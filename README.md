@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [“Fake COTS” and the one-day rule](https://roytang.net/2020/10/fake-cots-and-the-one-day-rule/)
 - [An ed-tech specialist spoke out about remote testing software — and now he’s being sued](https://roytang.net/2020/10/an-ed-tech-specialist-spoke-out-about-remote-testing-software-and-now-hes-being-sued/)
 - [The story behind Markdown.](https://roytang.net/2020/10/the-story-behind-markdown/)
 - [How Discord Won](https://roytang.net/2020/10/how-discord-won/)
 - [6 Ways to Build a Better Normal (If and When We Ever Get There)](https://roytang.net/2020/10/6-ways-to-build-a-better-normal-if-and-when-we-ever-get-there/)
-- [&#x27;Hyperbole and a Half&#x27; Blogger Allie Brosh Quit the Internet for Six Years. She&#x27;s Ready to Talk About It](https://roytang.net/2020/10/hyperbole-and-a-half-blogger-allie-brosh-quit-the-internet-for-six-years-she-s-ready-to-talk-about-i/)
 
 [View all links](https://roytang.net/links)
 
