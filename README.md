@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 27, 2020, 6:40 a.m.](https://roytang.net/2020/10/1320978632534228994/): @alvinjtang yeap. binili ni godaddy e
 - [Oct. 27, 2020, midnight](https://roytang.net/2020/10/current-status/): Summary: Like every other sensible person in the pandemic, I am staying hunkered down at home all of the time. Really only going out to get groceries and meds. Work/employment is not a priority. Current Location: still living in Quezon City, Philippines. Work I still work part-time as a software developer/technical lead/system architect consultant, with the emphasis on part-time. No specific clients I care to mention, though it&#x27;s easy to find out if you dig around a bit. I am very picky with taking on new work, and I usually have very few hours I&#x27;m willing to dedicate to any
 - [Oct. 26, 2020, 8:58 a.m.](https://roytang.net/2020/10/inktober-26-hide/): Inktober 2020 day 26: HIDE Official prompt list: https://inktober.com/rules
 - [Oct. 26, 2020, 3:05 a.m.](https://roytang.net/2020/10/1320562175245598721/): Local banks need to be making sure their websites work with Firefox. Not everyone uses Chrome!
 - [Oct. 25, 2020, 5:04 a.m.](https://roytang.net/2020/10/inktober-25-buddy/): Inktober 2020 day 25: BUDDY This was way too ambitious for my shaky hands. Proportions also a bit out of whack. Official prompt list: https://inktober.com/rules
-- [Oct. 24, 2020, 9:18 a.m.](https://roytang.net/2020/10/inktober-24-dig/): Inktober 2020 day 24: DIG Official prompt list: https://inktober.com/rules
 
 [View all notes](https://roytang.net/notes)
 
