@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Site Migration from Hugo to Django](https://roytang.net/2020/10/site-migration-to-django/)
 - [Weeknotes 2020-10-25](https://roytang.net/2020/10/weeknotes-2020-10-25/)
 - [Game Review: Super Mario 3d All-stars](https://roytang.net/2020/10/mario-3d-all-stars/)
 - [Weeknotes 2020-10-18](https://roytang.net/2020/10/weeknotes-2020-10-18/)
 - [Weeknotes 2020-10-11](https://roytang.net/2020/10/weeknotes-2020-10-11/)
-- [Weeknotes 2020-10-04 Switching It Up](https://roytang.net/2020/10/weeknotes-2020-10-04/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 27, 2020, midnight](https://roytang.net/2020/10/current-status/): Summary: Like every other sensible person in the pandemic, I am staying hunkered down at home all of the time. Really only going out to get groceries and meds. Work/employment is not a priority. Current Location: still living in Quezon City, Philippines. Work I still work part-time as a software developer/technical lead/system architect consultant, with the emphasis on part-time. No specific clients I care to mention, though it&#x27;s easy to find out if you dig around a bit. I am very picky with taking on new work, and I usually have very few hours I&#x27;m willing to dedicate to any
 - [Oct. 26, 2020, 8:58 a.m.](https://roytang.net/2020/10/inktober-26-hide/): Inktober 2020 day 26: HIDE Official prompt list: https://inktober.com/rules
 - [Oct. 26, 2020, 3:05 a.m.](https://roytang.net/2020/10/1320562175245598721/): Local banks need to be making sure their websites work with Firefox. Not everyone uses Chrome!
 - [Oct. 25, 2020, 5:04 a.m.](https://roytang.net/2020/10/inktober-25-buddy/): Inktober 2020 day 25: BUDDY This was way too ambitious for my shaky hands. Proportions also a bit out of whack. Official prompt list: https://inktober.com/rules
 - [Oct. 24, 2020, 9:18 a.m.](https://roytang.net/2020/10/inktober-24-dig/): Inktober 2020 day 24: DIG Official prompt list: https://inktober.com/rules
-- [Oct. 24, 2020, 12:15 a.m.](https://roytang.net/2020/10/1319794495395745793/): Despite not having played Eternal since before the pandemic, after reading this tweet from LSV, I signed up for the event he described and got the 7 wins and qualified for the LCQ in the first try. I used Skelle&#x27;s decklist from here: https://direwolfdigital.com/news/throne-summer-championship-decklists/ I&#x27;m having fun! Quoted lsv&#x27;s tweet: This is the perfect time to get into Eternal - you can try any deck you want, you&#x27;ve got a high-stakes tournament to play in, and there are lots of resources in the article for decklists, strategy guides, and more. I&#x27;m really hype about this, and would love to see
 
 [View all notes](https://roytang.net/notes)
 
