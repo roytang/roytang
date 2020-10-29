@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 29, 2020, 4:03 p.m.](https://roytang.net/2020/10/1321845000108306432/): In honor of our fifth anniversary, we&#x27;re giving away the first SIXTY games in our Switch collection. To enter: simply follow us, like, and retweet this. That&#x27;s it! We&#x27;ll draw a winner tomorrow. Thanks again for supporting us. 🥰 #LimitedRun5
 - [Oct. 29, 2020, 12:01 p.m.](https://roytang.net/2020/10/inktober-29-shoes/): Inktober 2020 day 29: SHOES Official prompt list: https://inktober.com/rules
 - [Oct. 28, 2020, 12:01 p.m.](https://roytang.net/2020/10/inktober-28-float/): Inktober 2020 day 28: FLOAT Official prompt list: https://inktober.com/rules
 - [Oct. 27, 2020, 11:11 a.m.](https://roytang.net/2020/10/inktober-27-music/): Inktober 2020 day 27: MUSIC Official prompt list: https://inktober.com/rules
 - [Oct. 27, 2020, 6:40 a.m.](https://roytang.net/2020/10/1320978632534228994/): @alvinjtang yeap. binili ni godaddy e
-- [Oct. 27, 2020, midnight](https://roytang.net/2020/10/current-status/): Summary: Like every other sensible person in the pandemic, I am staying hunkered down at home all of the time. Really only going out to get groceries and meds. Work/employment is not a priority. Current Location: still living in Quezon City, Philippines. Work I still work part-time as a software developer/technical lead/system architect consultant, with the emphasis on part-time. No specific clients I care to mention, though it&#x27;s easy to find out if you dig around a bit. I am very picky with taking on new work, and I usually have very few hours I&#x27;m willing to dedicate to any
 
 [View all notes](https://roytang.net/notes)
 
