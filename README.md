@@ -1,6 +1,6 @@
 Roy Tang :: Programmer, engineer, scientist, critic, gamer, dreamer, and kid-at-heart.
 
-![](https://roytang.net/img/profile.jpg)
+![](https://roytang.net/static/img/profile.jpg)
 
 Visit the site: ![https://roytang.net](https://roytang.net)
 
