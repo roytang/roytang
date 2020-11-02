@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
-- [Nov. 2, 2020, 9 a.m.](https://roytang.net/2020/11/1323188153411424256/): All Saints Day Zendikar Rising draft (final episode) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr
+- [Nov. 2, 2020, 3:57 p.m.](https://roytang.net/2020/11/1323293273360756736/): @jaymelynilao happy birthday!
+- [Nov. 2, 2020, 9 a.m.](https://roytang.net/2020/11/1323188153411424256/): All Saints Day Zendikar Rising draft (final episode) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgznr So I think the draft itself was fine, but spoiler: the outcome was terrible! Bonus: A couple of Eternal matches! YT: https://www.youtube.com/watch?v=X-b2d3VkIF0
 - [Oct. 31, 2020, 10:44 a.m.](https://roytang.net/2020/10/inktober-31-crawl/): Inktober 2020 day 31: CRAWL I always put far too many webs on that costume. Also, I managed to crawl my way through all of #inktober2020 without missing a day, go me! Official prompt list: https://inktober.com/rules
 - [Oct. 30, 2020, 4:31 p.m.](https://roytang.net/2020/10/1322214646221205504/): I finished #LinksAwakening ! #NintendoSwitch
 - [Oct. 30, 2020, 4:01 p.m.](https://roytang.net/2020/10/1322207028756930560/): Managed to hit mythic on #magicarena the day before rollover lol. I was using @karsten_frank &#x27;s Gruul Adventures list #mtg Quoted karsten_frank&#x27;s tweet: I went 20-5 with Gruul Adventures across #RedBullUntapped2020 and the Arena Qualifier this weekend. Deck&#x27;s great. @ArenaDecklists
-- [Oct. 30, 2020, 6:58 a.m.](https://roytang.net/2020/10/inktober-30-ominous/): Inktober 2020 day 30: OMINOUS It feels like this fancy black pen I bought 3-ish years ago is close to giving out on me. To be honest, it&#x27;s already a record for the longest time I&#x27;ve had a pen and not lost it somewhere. Official prompt list: https://inktober.com/rules
 
 [View all notes](https://roytang.net/notes)
 
