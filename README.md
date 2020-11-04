@@ -17,10 +17,10 @@ Latest blog posts:
 Latest shared links:
 
 - [&amp;quot;GO GO MARIO!!&amp;quot; Official Single (3/1986, English Subtitles) - NintendoComplete](https://roytang.net/2020/11/quotgo-go-marioquot-official-single-31986-english-subtitles-nintendocomplete/)
+- [&amp;quot;GO GO MARIO!!&amp;quot; Official Single (3/1986, English Subtitles) - NintendoComplete](https://roytang.net/2020/11/quotgo-go-marioquot-official-single-31986-english-subtitles-nintendocomplete/)
 - [How To Avoid Spoilers For Everything Forever](https://roytang.net/2020/11/how-to-avoid-spoilers-for-everything-forever/)
 - [13 Life-Learnings from 13 Years of Brain Pickings](https://roytang.net/2020/11/13-life-learnings-from-13-years-of-brain-pickings/)
 - [“Fake COTS” and the one-day rule](https://roytang.net/2020/10/fake-cots-and-the-one-day-rule/)
-- [An ed-tech specialist spoke out about remote testing software — and now he’s being sued](https://roytang.net/2020/10/an-ed-tech-specialist-spoke-out-about-remote-testing-software-and-now-hes-being-sued/)
 
 [View all links](https://roytang.net/links)
 
