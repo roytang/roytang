@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 4, 2020, 8:36 p.m.](https://roytang.net/2020/11/1324088239699816448/): Wow, the new @PlayStation web store is so much worse than the old one
 - [Nov. 4, 2020, 3:25 p.m.](https://roytang.net/2020/11/1324009839777861632/): I&#x27;ve been quiet on Twitter but rest assured like the rest of you I&#x27;ve been gnashing my teeth over these red and blue numbers that may very well decide the future of the planet
 - [Nov. 4, 2020, 1:36 a.m.](https://roytang.net/2020/11/1323801262966534145/): @wrongwaygoback may 2017
 - [Nov. 4, 2020, 12:50 a.m.](https://roytang.net/2020/11/1323789651421720576/): Shared via pocket: &amp;quot;GO GO MARIO!!&amp;quot; Official Single (3/1986, English Subtitles) - NintendoComplete https://www.youtube.com/watch?feature=youtu.be&amp;v=hYlm_9i5Dgc&amp;app=desktop
 - [Nov. 3, 2020, 4:52 p.m.](https://roytang.net/2020/11/1323669425216606208/): Okay, this feels a bit crazy. It&#x27;s a promoted tweet (basically an ad, for what idk), but then the video in the promoted tweet has an ad! Adception!
-- [Nov. 2, 2020, 3:57 p.m.](https://roytang.net/2020/11/1323293273360756736/): @jaymelynilao happy birthday!
 
 [View all notes](https://roytang.net/notes)
 
