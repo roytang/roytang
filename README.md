@@ -16,8 +16,8 @@ Latest blog posts:
 
 Latest shared links:
 
-- [How To Avoid Spoilers For Everything Forever](https://roytang.net/2020/11/how-to-avoid-spoilers-for-everything-forever/)
 - [13 Life-Learnings from 13 Years of Brain Pickings](https://roytang.net/2020/11/13-life-learnings-from-13-years-of-brain-pickings/)
+- [How To Avoid Spoilers For Everything Forever](https://roytang.net/2020/11/how-to-avoid-spoilers-for-everything-forever/)
 - [“Fake COTS” and the one-day rule](https://roytang.net/2020/10/fake-cots-and-the-one-day-rule/)
 - [An ed-tech specialist spoke out about remote testing software — and now he’s being sued](https://roytang.net/2020/10/an-ed-tech-specialist-spoke-out-about-remote-testing-software-and-now-hes-being-sued/)
 - [The story behind Markdown.](https://roytang.net/2020/10/the-story-behind-markdown/)
@@ -30,7 +30,7 @@ Latest notes:
 - [Nov. 4, 2020, 8:36 p.m.](https://roytang.net/2020/11/1324088239699816448/): Wow, the new @PlayStation web store is so much worse than the old one
 - [Nov. 4, 2020, 3:25 p.m.](https://roytang.net/2020/11/1324009839777861632/): I&#x27;ve been quiet on Twitter but rest assured like the rest of you I&#x27;ve been gnashing my teeth over these red and blue numbers that may very well decide the future of the planet
 - [Nov. 4, 2020, 1:36 a.m.](https://roytang.net/2020/11/1323801262966534145/): @wrongwaygoback may 2017
-- [Nov. 4, 2020, 12:50 a.m.](https://roytang.net/2020/11/1323789651421720576/): Shared via pocket: &amp;quot;GO GO MARIO!!&amp;quot; Official Single (3/1986, English Subtitles) - NintendoComplete https://www.youtube.com/watch?feature=youtu.be&amp;v=hYlm_9i5Dgc&amp;app=desktop
+- [Nov. 4, 2020, 12:52 a.m.](https://roytang.net/2020/11/1323669425216606208/): Okay, this feels a bit crazy. It&#x27;s a promoted tweet (basically an ad, for what idk), but then the video in the promoted tweet has an ad! Adception!
 
 [View all notes](https://roytang.net/notes)
 
