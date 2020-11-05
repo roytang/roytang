@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 5, 2020, 9:40 a.m.](https://roytang.net/2020/11/1324406196514729984/): One upside of this election is that I’ve learned a lot about where US states are on the map
 - [Nov. 5, 2020, 2:40 a.m.](https://roytang.net/2020/11/1324179840522596353/): He should just migrate here to the Philippines, thats how 90% of our politicians are Quoted bmemike&#x27;s tweet: @wrongwaygoback I heard something in coverage earlier today and it&#x27;s just 100% spot on: The only two outcomes for Trump is that he wins or the election was stolen. He can never be a loser. It&#x27;s just not part of his brand.
 - [Nov. 4, 2020, 8:36 p.m.](https://roytang.net/2020/11/1324088239699816448/): Wow, the new @PlayStation web store is so much worse than the old one
 - [Nov. 4, 2020, 3:25 p.m.](https://roytang.net/2020/11/1324009839777861632/): I&#x27;ve been quiet on Twitter but rest assured like the rest of you I&#x27;ve been gnashing my teeth over these red and blue numbers that may very well decide the future of the planet
 - [Nov. 4, 2020, 1:36 a.m.](https://roytang.net/2020/11/1323801262966534145/): @wrongwaygoback may 2017
-- [Nov. 4, 2020, 12:52 a.m.](https://roytang.net/2020/11/1323669425216606208/): Okay, this feels a bit crazy. It&#x27;s a promoted tweet (basically an ad, for what idk), but then the video in the promoted tweet has an ad! Adception!
 
 [View all notes](https://roytang.net/notes)
 
