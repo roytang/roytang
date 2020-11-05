@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Server Setup Notes: Ubuntu, Nginx, Django, MySQL](https://roytang.net/2020/11/server-setup-notes/)
 - [Weeknotes 2020-11-01 Storm&#x27;s comin&#x27;](https://roytang.net/2020/11/weeknotes-2020-11-01/)
 - [Site Migration from Hugo to Django](https://roytang.net/2020/10/site-migration-to-django/)
 - [Weeknotes 2020-10-25](https://roytang.net/2020/10/weeknotes-2020-10-25/)
 - [Game Review: Super Mario 3d All-stars](https://roytang.net/2020/10/mario-3d-all-stars/)
-- [Weeknotes 2020-10-18](https://roytang.net/2020/10/weeknotes-2020-10-18/)
 
 [View all posts](https://roytang.net/blog)
 
