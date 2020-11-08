@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 7, 2020, 10:58 p.m.](https://roytang.net/2020/11/1325331804165820416/): Congratulations, USA, on getting a smart, hardworking woman as a VP. We’ve had one since 2016.
+- [Nov. 7, 2020, 10:58 p.m.](https://roytang.net/2020/11/1325331778253414400/): I don&#x27;t know how to process my joy... so I made Elmo sing A Cruel Angel&#x27;s Thesis... Your browser does not support the video tag.
 - [Nov. 7, 2020, 12:55 a.m.](https://roytang.net/2020/11/1324998925598691339/): The Week in Review. Your browser does not support the video tag.
 - [Nov. 5, 2020, 10:45 p.m.](https://roytang.net/2020/11/1324603766390206465/): Who&#x27;d have thought it was actually a muppet that could defeat him Quoted CarcinogenSDA&#x27;s tweet:
 - [Nov. 5, 2020, 8:38 p.m.](https://roytang.net/2020/11/1324571861670227968/): Pag pinadalhanka ng bill ng meralco sabihan mo sila na mukhang pera Quoted PhilippineStar&#x27;s tweet: ‘MUKHANG PERA’ This was President Duterte’s comment when Health Secretary Francisco Duque III reported during a Cabinet meeting that the Philippine Red Cross has resumed conducting COVID-19 swab tests after the PhilHealth paid its close to P1-B debt. | @xtinamen Your browser does not support the video tag.
-- [Nov. 5, 2020, 9:40 a.m.](https://roytang.net/2020/11/1324406196514729984/): One upside of this election is that I’ve learned a lot about where US states are on the map
-- [Nov. 5, 2020, 2:40 a.m.](https://roytang.net/2020/11/1324179840522596353/): He should just migrate here to the Philippines, thats how 90% of our politicians are Quoted bmemike&#x27;s tweet: @wrongwaygoback I heard something in coverage earlier today and it&#x27;s just 100% spot on: The only two outcomes for Trump is that he wins or the election was stolen. He can never be a loser. It&#x27;s just not part of his brand.
 
 [View all notes](https://roytang.net/notes)
 
