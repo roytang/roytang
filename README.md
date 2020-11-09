@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 9, 2020, 5:48 a.m.](https://roytang.net/2020/11/1325797474070523904/): lols
 - [Nov. 8, 2020, 12:28 a.m.](https://roytang.net/2020/11/1325354399493877761/): This is genuinely the funniest piece of media I’ve ever seen in my life and should absolutely be what is shown to explain the 2020 election for generations to come Your browser does not support the video tag.
 - [Nov. 7, 2020, 10:58 p.m.](https://roytang.net/2020/11/1325331804165820416/): Congratulations, USA, on getting a smart, hardworking woman as a VP. We’ve had one since 2016.
 - [Nov. 7, 2020, 10:58 p.m.](https://roytang.net/2020/11/1325331778253414400/): I don&#x27;t know how to process my joy... so I made Elmo sing A Cruel Angel&#x27;s Thesis... Your browser does not support the video tag.
 - [Nov. 7, 2020, 12:55 a.m.](https://roytang.net/2020/11/1324998925598691339/): The Week in Review. Your browser does not support the video tag.
-- [Nov. 5, 2020, 10:45 p.m.](https://roytang.net/2020/11/1324603766390206465/): Who&#x27;d have thought it was actually a muppet that could defeat him Quoted CarcinogenSDA&#x27;s tweet:
 
 [View all notes](https://roytang.net/notes)
 
