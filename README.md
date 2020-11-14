@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 14, 2020, 5:36 a.m.](https://roytang.net/2020/11/1327606340764766209/): Kaladesh Remastered draft ep 1 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgkld
 - [Nov. 12, 2020, 8:49 p.m.](https://roytang.net/2020/11/1327111324728393728/): @amirrajan i dont have much other gamedev experience other than playing with unity a bit, but: I like that I can do most of the work in my text editor, and I like that it simplifies a lot of the work by making assumptions (like the 1280x720 resolution etc) so I can just focus on what I want
 - [Nov. 12, 2020, 8:48 p.m.](https://roytang.net/2020/11/1327110978798907392/): Decided to try a Kaladesh Remastered sealed before diving into draft. Didn&#x27;t do particularly well, but at least I got a feel of what the Kaladesh limited format is like (again) #mtg #magicarena #mtgkld
 - [Nov. 12, 2020, 8:08 a.m.](https://roytang.net/2020/11/1326919888472956928/): Past few days I&#x27;ve been playing around with this thing called Dragonruby Game Toolkit + some Kenney assets I got from the itch Racial Justice bundle. https://www.youtube.com/watch?v=MDRShB4psyU&amp;feature=youtu.be
 - [Nov. 11, 2020, 9:34 p.m.](https://roytang.net/2020/11/1326760344644059136/): Need to complete de-googlification in 4 years
-- [Nov. 9, 2020, 5:48 a.m.](https://roytang.net/2020/11/1325797474070523904/): lols
 
 [View all notes](https://roytang.net/notes)
 
