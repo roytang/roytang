@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 17, 2020, 10:54 a.m.](https://roytang.net/2020/11/1328773621007876096/): It&#x27;s a fantasy, but I&#x27;m kind of hoping @inquirerdotnet or @PhilstarNews manages to put the word &quot;Meltdown&quot; somewhere on their front page for Nov 18 #DuterteMeltdown
 - [Nov. 16, 2020, 7:24 a.m.](https://roytang.net/2020/11/1328358247061831680/): Okay I&#x27;m going to try to explain this, so bear with me. On Tiktok, an entire community has come together to create Ratatouille the Musical. What seemed like a joke has become an incredible undertaking. Or not? Here&#x27;s how it started, with a call: Your browser does not support the video tag.
 - [Nov. 14, 2020, 9:57 p.m.](https://roytang.net/2020/11/1327853276302217223/): [Team Camote] - Post-Trivia Trivia ni Seresa https://www.youtube.com/watch?v=no0sYBcU5LA via @YouTube
 - [Nov. 14, 2020, 5:36 a.m.](https://roytang.net/2020/11/1327606340764766209/): Kaladesh Remastered draft ep 1 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgkld Sadly, internet wasn&#x27;t too good so I just cut the stream short. Too bad, so sad Draft didn&#x27;t feel super good, but I managed to break even in the games. No video because no stream. (In hindsight I could have just recorded locally!) Maybe I&#x27;ll try streaming a draft again early next week.
 - [Nov. 12, 2020, 8:49 p.m.](https://roytang.net/2020/11/1327111324728393728/): @amirrajan i dont have much other gamedev experience other than playing with unity a bit, but: I like that I can do most of the work in my text editor, and I like that it simplifies a lot of the work by making assumptions (like the 1280x720 resolution etc) so I can just focus on what I want
-- [Nov. 12, 2020, 8:48 p.m.](https://roytang.net/2020/11/1327110978798907392/): Decided to try a Kaladesh Remastered sealed before diving into draft. Didn&#x27;t do particularly well, but at least I got a feel of what the Kaladesh limited format is like (again) #mtg #magicarena #mtgkld
 
 [View all notes](https://roytang.net/notes)
 
