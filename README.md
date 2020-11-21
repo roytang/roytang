@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 21, 2020, 3:40 a.m.](https://roytang.net/2020/11/1330113747550134277/): I&#x27;ve been binging Perfect Strangers. Fun show (and maybe best theme song), but 80% of the eps are like &quot;Balki says/does something naive, Larry overreacts and gets them into trouble, but it all works out in the end&quot;
 - [Nov. 21, 2020, 2:23 a.m.](https://roytang.net/2020/11/1330094403378163713/): Kaladesh Remastered draft really doesn&#x27;t like me; I thought this deck was pretty good, but it was yet another 0-3. D: At least I didn&#x27;t waste gems this time. #mtg #magicarena #mtgkld
 - [Nov. 20, 2020, 11:27 a.m.](https://roytang.net/2020/11/1329868993600004096/): Wasting time wandering through parallel universes
 - [Nov. 18, 2020, 3:21 a.m.](https://roytang.net/2020/11/1329022017753001988/): Streaming some more Kaladesh Remastered draft (ep 2) https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgkld Unfortunately, internet was too poor again tonight for streaming :( Ok, I went ahead and did two drafts which was a terrible idea because I did very poorly both times. (Didn&#x27;t bother getting a screenshot of the second result, they were the same!) Sigh, this format is tough. Hopefully I figure it out by next time.
 - [Nov. 17, 2020, 10:54 a.m.](https://roytang.net/2020/11/1328773621007876096/): It&#x27;s a fantasy, but I&#x27;m kind of hoping @inquirerdotnet or @PhilstarNews manages to put the word &quot;Meltdown&quot; somewhere on their front page for Nov 18 #DuterteMeltdown
-- [Nov. 16, 2020, 7:24 a.m.](https://roytang.net/2020/11/1328358247061831680/): Okay I&#x27;m going to try to explain this, so bear with me. On Tiktok, an entire community has come together to create Ratatouille the Musical. What seemed like a joke has become an incredible undertaking. Or not? Here&#x27;s how it started, with a call: Your browser does not support the video tag.
 
 [View all notes](https://roytang.net/notes)
 
