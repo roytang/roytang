@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2020-11-22 The Moments In Between](https://roytang.net/2020/11/weeknotes-2020-11-22/)
 - [Weeknotes 2020-11-15 Winds and Rain](https://roytang.net/2020/11/weeknotes-2020-11-15/)
 - [Weeknotes 2020-11-01 A Collective Sigh of Relief](https://roytang.net/2020/11/weeknotes-2020-11-08/)
 - [Server Setup Notes: Ubuntu, Nginx, Django, MySQL](https://roytang.net/2020/11/server-setup-notes/)
 - [Weeknotes 2020-11-01 Storm&#x27;s comin&#x27;](https://roytang.net/2020/11/weeknotes-2020-11-01/)
-- [Site Migration from Hugo to Django](https://roytang.net/2020/10/site-migration-to-django/)
 
 [View all posts](https://roytang.net/blog)
 
