@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Game Review: Super Mario Odyssey](https://roytang.net/2020/12/super-mario-odyssey/)
 - [Book Review: Rhythm of War by Sanderson, Brandon](https://roytang.net/2020/12/rhythm-of-war/)
 - [We Shouldn&#x27;t Need Heroes](https://roytang.net/2020/11/we-shouldnt-need-heroes/)
 - [Weeknotes 2020-11-29](https://roytang.net/2020/11/weeknotes-2020-11-29/)
 - [Weeknotes 2020-11-22 The Moments In Between](https://roytang.net/2020/11/weeknotes-2020-11-22/)
-- [Weeknotes 2020-11-15 Winds and Rain](https://roytang.net/2020/11/weeknotes-2020-11-15/)
 
 [View all posts](https://roytang.net/blog)
 
