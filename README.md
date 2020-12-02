@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 1, 2020, 8:42 p.m.](https://roytang.net/2020/12/1333994890338832384/): It&#x27;s only the 1st week of December and we&#x27;re already getting &quot;best of 2020&quot; lists. The year isn&#x27;t up yet, who knows what surprises await!
 - [Nov. 30, 2020, 5:48 a.m.](https://roytang.net/2020/11/1333407638336532480/): Streaming some Kaladesh Remastered draft! Watch me be terrible https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgkld As predicted; I was indeed terrible. Draft seemed to go well enough, but I made too many mistakes I guess? Seems like this format is not for me. YT: https://www.youtube.com/watch?v=S15AgtyStzw
 - [Nov. 29, 2020, 4:06 p.m.](https://roytang.net/2020/11/1333200765167366144/): Last minute mythic on #magicarena. Also hit master on Eternal last week, so it&#x27;s my first double month! #mtg
 - [Nov. 26, 2020, 5:46 a.m.](https://roytang.net/2020/11/10e889f1bfa7c8798065f6dcfe8b2278/): I wonder if any other Django devs always forgot what their local env&#x27;s superuser password is and just createsuperuser again every so often
 - [Nov. 23, 2020, 5:09 a.m.](https://roytang.net/2020/11/1330861073247813634/): @art_abon Ranma has a much bigger cast that can cause hijinx. Dito it&#x27;s always either Larry or Balki (and Larry most of the time)
-- [Nov. 23, 2020, 5:08 a.m.](https://roytang.net/2020/11/1330860801477885960/): @joyarmadamba uh, i have a copy
 
 [View all notes](https://roytang.net/notes)
 
