@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 9, 2020, 8:04 a.m.](https://roytang.net/2020/12/1336703174711803906/): The internet needs to stop telling me things about Tom Holland&#x27;s 3rd spider-man movie :/
 - [Dec. 9, 2020, 12:10 a.m.](https://roytang.net/2020/12/1336584083476946944/): I made the most of 2020 by learning Spanish on Duolingo. Check out my progress! #Duolingo365 https://2020.duolingo.com/share.html?rid=BDHTZTB5CWWKTAN665AG5I7KBY
 - [Dec. 5, 2020, 2:33 a.m.](https://roytang.net/2020/12/1335170496153841664/): @visakanv It kind of bothers me that the first tweet in that thread says “2019 tweets”. I know that refers to the quoted 2019 thread, but you otherwise typically start your threads with context for the rest of the thread
 - [Dec. 2, 2020, 3:23 a.m.](https://roytang.net/2020/12/1334095939020046336/): This is how my year sounded on @Spotify. Get your 2020 Wrapped now #2020Wrapped https://open.spotify.com/wrapped/share-fdd70c18adb14e70a29521ce4fc85e96-1080x1920?lang=en&amp;si=Wrpf3LjSQl2kQ6vLM3Olpw @Spotify basically exactly the same as last year&#x27;s lol Quoted roytang&#x27;s tweet: This is how my year sounded on Spotify. Get your 2019 Wrapped #spotifywrapped https://open.spotify.com/wrapped/ddf3e4a1ee43a067d9e011917a96978cb404b9e4
 - [Dec. 1, 2020, 8:42 p.m.](https://roytang.net/2020/12/1333994890338832384/): It&#x27;s only the 1st week of December and we&#x27;re already getting &quot;best of 2020&quot; lists. The year isn&#x27;t up yet, who knows what surprises await!
-- [Nov. 30, 2020, 5:48 a.m.](https://roytang.net/2020/11/1333407638336532480/): Streaming some Kaladesh Remastered draft! Watch me be terrible https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgkld As predicted; I was indeed terrible. Draft seemed to go well enough, but I made too many mistakes I guess? Seems like this format is not for me. YT: https://www.youtube.com/watch?v=S15AgtyStzw
 
 [View all notes](https://roytang.net/notes)
 
