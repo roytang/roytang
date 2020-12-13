@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2020-12-13](https://roytang.net/2020/12/weeknotes-2020-12-13/)
 - [Weeknotes 2020-12-06](https://roytang.net/2020/12/weeknotes-2020-12-06/)
 - [Perfect Strangers](https://roytang.net/2020/12/perfect-strangers/)
 - [Dress Codes](https://roytang.net/2020/12/dress-codes/)
 - [Ephemeral Echoes](https://roytang.net/2020/12/ephemeral-echoes/)
-- [Game Review: Super Mario Odyssey](https://roytang.net/2020/12/super-mario-odyssey/)
 
 [View all posts](https://roytang.net/blog)
 
