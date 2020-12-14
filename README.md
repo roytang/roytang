@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 13, 2020, 11:47 p.m.](https://roytang.net/2020/12/1338390255959883777/): @rovietoosin San ka na lumipat?
 - [Dec. 13, 2020, 2:15 a.m.](https://roytang.net/2020/12/1338064928628871168/): 700! #Duolingo
 - [Dec. 12, 2020, 7:56 p.m.](https://roytang.net/2020/12/1337969729902821376/): RTing so I know to clean up my mac later Quoted lorenb&#x27;s tweet: So it turns out that Google Chrome was making everything on my computer slow even when it wasn’t running, because it installs something called Keystone which is basically malware. I made a website because this shouldn’t happen: https://chromeisbad.com
 - [Dec. 11, 2020, 9:47 a.m.](https://roytang.net/2020/12/1337453916162703360/): Thread! Author @sparrowtrooper and I are giving away 3 signed copies &amp; 5 eBook copies of her book! @David__Cage @ChrisTheHoff and I were quoted on the back! It&#x27;s wild. RT this for a chance to win! Winners will be selected after this tweet gets 100 retweets https://www.amazon.com/How-Games-Get-Made-Stories/dp/1636765483/ref=tmm_pap_swatch_0?_encoding=UTF8&amp;qid=&amp;sr=
 - [Dec. 11, 2020, 1:26 a.m.](https://roytang.net/2020/12/1337327864992055304/): Every new @MTG_Arena patch brings new gifts
-- [Dec. 10, 2020, 3:43 p.m.](https://roytang.net/2020/12/1337181083952017412/): Star Wars looking to overtake Star Trek in number of TV series within the next two years
 
 [View all notes](https://roytang.net/notes)
 
