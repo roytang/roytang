@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 16, 2020, 6:38 a.m.](https://roytang.net/2020/12/gfyytvp/): Both the site (https://patawadpatawad.blogspot.com/) and the qr code are valid, props for that!
 - [Dec. 14, 2020, 8:46 p.m.](https://roytang.net/2020/12/1338707102395584512/): Cancel niyo na muna: ❌Pagpunta sa gym, coffee shop, indoor resto, mall, masisikip na lugar ❌Pakikipagkita sa jowa, barkada, kamag-anak Celebrate at home kung ayaw niyong may magkasakit o malagas sa pamilya niyo. Kahit may pera kayo kung puno ang ospital, di kayo magagamot.
 - [Dec. 14, 2020, 12:20 a.m.](https://roytang.net/2020/12/1338398359619469314/): @rovietoosin naku madaming pera jan ano lol
 - [Dec. 13, 2020, 11:47 p.m.](https://roytang.net/2020/12/1338390255959883777/): @rovietoosin San ka na lumipat?
 - [Dec. 13, 2020, 2:15 a.m.](https://roytang.net/2020/12/1338064928628871168/): 700! #Duolingo
-- [Dec. 12, 2020, 7:56 p.m.](https://roytang.net/2020/12/1337969729902821376/): RTing so I know to clean up my mac later Quoted lorenb&#x27;s tweet: So it turns out that Google Chrome was making everything on my computer slow even when it wasn’t running, because it installs something called Keystone which is basically malware. I made a website because this shouldn’t happen: https://chromeisbad.com
 
 [View all notes](https://roytang.net/notes)
 
