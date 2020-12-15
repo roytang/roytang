@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [How Not to Mentor Software Developers](https://roytang.net/2020/12/how-not-to-mentor/)
 - [Weeknotes 2020-12-13](https://roytang.net/2020/12/weeknotes-2020-12-13/)
 - [Weeknotes 2020-12-06](https://roytang.net/2020/12/weeknotes-2020-12-06/)
 - [Perfect Strangers](https://roytang.net/2020/12/perfect-strangers/)
 - [Dress Codes](https://roytang.net/2020/12/dress-codes/)
-- [Ephemeral Echoes](https://roytang.net/2020/12/ephemeral-echoes/)
 
 [View all posts](https://roytang.net/blog)
 
