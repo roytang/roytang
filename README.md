@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Facebook Is a Doomsday Machine](https://roytang.net/2020/12/facebook-is-a-doomsday-machine/)
 - [13 Life-Learnings from 13 Years of Brain Pickings](https://roytang.net/2020/11/13-life-learnings-from-13-years-of-brain-pickings/)
 - [How To Avoid Spoilers For Everything Forever](https://roytang.net/2020/11/how-to-avoid-spoilers-for-everything-forever/)
 - [“Fake COTS” and the one-day rule](https://roytang.net/2020/10/fake-cots-and-the-one-day-rule/)
 - [An ed-tech specialist spoke out about remote testing software — and now he’s being sued](https://roytang.net/2020/10/an-ed-tech-specialist-spoke-out-about-remote-testing-software-and-now-hes-being-sued/)
-- [The story behind Markdown.](https://roytang.net/2020/10/the-story-behind-markdown/)
 
 [View all links](https://roytang.net/links)
 
