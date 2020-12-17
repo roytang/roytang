@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 17, 2020, 9:43 a.m.](https://roytang.net/2020/12/1339627168947601408/): The metal Kaldheim previews reminded me of my favorite Lotus Cobra is Evil comic: https://mtgcolorpie.com/2010/09/26/lotus-cobra-is-evil-rock-on/ by @houseofsixten via @mtgcolorpie
 - [Dec. 17, 2020, 5:58 a.m.](https://roytang.net/2020/12/gg2qxa4/): Did this population number only happen during Hickman&#x27;s run? I forget if there was a mass resurgence of mutants post-decimation
 - [Dec. 16, 2020, 6:38 a.m.](https://roytang.net/2020/12/gfyytvp/): Both the site (https://patawadpatawad.blogspot.com/) and the qr code are valid, props for that!
 - [Dec. 15, 2020, 2:56 p.m.](https://roytang.net/2020/12/1338981232621703168/): https://asiatimes.com/2020/12/duterte-fatally-misplays-philippines-vaccine-diplomacy/ i would be infuriated but at this point I&#x27;m just tired
 - [Dec. 14, 2020, 8:46 p.m.](https://roytang.net/2020/12/1338707102395584512/): Cancel niyo na muna: ❌Pagpunta sa gym, coffee shop, indoor resto, mall, masisikip na lugar ❌Pakikipagkita sa jowa, barkada, kamag-anak Celebrate at home kung ayaw niyong may magkasakit o malagas sa pamilya niyo. Kahit may pera kayo kung puno ang ospital, di kayo magagamot.
-- [Dec. 14, 2020, 12:20 a.m.](https://roytang.net/2020/12/1338398359619469314/): @rovietoosin naku madaming pera jan ano lol
 
 [View all notes](https://roytang.net/notes)
 
