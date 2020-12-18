@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 18, 2020, 3:20 p.m.](https://roytang.net/2020/12/1340074409961222146/): A new thing arrived! #pickups
 - [Dec. 18, 2020, 3:10 p.m.](https://roytang.net/2020/12/1340072060886765568/): Props to all the people I follow who didn&#x27;t spoil The Mandalorian ending for me lol. That was wild
 - [Dec. 17, 2020, 9:43 a.m.](https://roytang.net/2020/12/1339627168947601408/): The metal Kaldheim previews reminded me of my favorite Lotus Cobra is Evil comic: https://mtgcolorpie.com/2010/09/26/lotus-cobra-is-evil-rock-on/ by @houseofsixten via @mtgcolorpie
 - [Dec. 17, 2020, 5:58 a.m.](https://roytang.net/2020/12/gg2qxa4/): Did this population number only happen during Hickman&#x27;s run? I forget if there was a mass resurgence of mutants post-decimation
 - [Dec. 16, 2020, 6:38 a.m.](https://roytang.net/2020/12/gfyytvp/): Both the site (https://patawadpatawad.blogspot.com/) and the qr code are valid, props for that!
-- [Dec. 15, 2020, 2:56 p.m.](https://roytang.net/2020/12/1338981232621703168/): https://asiatimes.com/2020/12/duterte-fatally-misplays-philippines-vaccine-diplomacy/ i would be infuriated but at this point I&#x27;m just tired
 
 [View all notes](https://roytang.net/notes)
 
