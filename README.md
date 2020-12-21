@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [“Turn your audience into a business”](https://roytang.net/2020/12/turn-your-audience-into-a-business/)
 - [This used to be our playground](https://roytang.net/2020/12/this-used-to-be-our-playground/)
 - [HTML Tags Memory Test](https://roytang.net/2020/12/html-tags-memory-test/)
 - [The Beat&#x27;s list of the 50 best comics of 2020 includes titles by seasoned creators and up-and-coming talents.](https://roytang.net/2020/12/the-beats-list-of-the-50-best-comics-of-2020-includes-titles-by-seasoned-creators-and-up-and-coming-/)
 - [Facebook Is a Doomsday Machine](https://roytang.net/2020/12/facebook-is-a-doomsday-machine/)
-- [13 Life-Learnings from 13 Years of Brain Pickings](https://roytang.net/2020/11/13-life-learnings-from-13-years-of-brain-pickings/)
 
 [View all links](https://roytang.net/links)
 
