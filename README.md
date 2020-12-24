@@ -27,10 +27,10 @@ Latest shared links:
 Latest notes:
 
 - [Dec. 24, 2020, 6:20 p.m.](https://roytang.net/2020/12/ggvzbuq/): For people like me who dislike watching videos: Before you start drafting a set, craft all the common/uncommon cards from the new set, so that each common/uncommon you open in draft adds to the vault percentage.
+- [Dec. 24, 2020, 4:05 a.m.](https://roytang.net/2020/12/1342078964311834627/): We’re doing #nochebuena early this year. Merry Christmas everyone!
 - [Dec. 23, 2020, 7:43 p.m.](https://roytang.net/2020/12/1341952566423273473/): 
 - [Dec. 22, 2020, 1:12 p.m.](https://roytang.net/2020/12/1341491804571455490/): This has to be one of my most satisfying Words with Friends plays
 - [Dec. 21, 2020, 10:35 a.m.](https://roytang.net/2020/12/1341090027996999680/): I bet I could make an earthquake detection machine where all it does is check PH twitter for &quot;lindol&quot; tweets
-- [Dec. 20, 2020, 7:55 p.m.](https://roytang.net/2020/12/1340868417394331648/): Kung akala mo ay walang kinalaman ang administrasyon na &#x27;to sa pagpatay ng isang pulis sa mag-inang walang laban, isa kang hangal.
 
 [View all notes](https://roytang.net/notes)
 
