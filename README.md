@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [52 things I learned in 2020](https://roytang.net/2020/12/52-things-i-learned-in-2020/)
 - [My favorite essays of life advice](https://roytang.net/2020/12/my-favorite-essays-of-life-advice/)
 - [“Turn your audience into a business”](https://roytang.net/2020/12/turn-your-audience-into-a-business/)
 - [This used to be our playground](https://roytang.net/2020/12/this-used-to-be-our-playground/)
 - [HTML Tags Memory Test](https://roytang.net/2020/12/html-tags-memory-test/)
-- [The Beat&#x27;s list of the 50 best comics of 2020 includes titles by seasoned creators and up-and-coming talents.](https://roytang.net/2020/12/the-beats-list-of-the-50-best-comics-of-2020-includes-titles-by-seasoned-creators-and-up-and-coming-/)
 
 [View all links](https://roytang.net/links)
 
