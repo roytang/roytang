@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 29, 2020, 5:11 a.m.](https://roytang.net/2020/12/c12b1185667d4adc5a2c99224584a981/): The circle of life: I want to do so many things - things cost time - I don&#x27;t have enough time - I don&#x27;t want to prioritize the things, I want to do them all - I end up just going to sleep
 - [Dec. 26, 2020, 6:17 a.m.](https://roytang.net/2020/12/1342836877942931456/): @Westraid Merry Christmas!
 - [Dec. 25, 2020, 2:29 a.m.](https://roytang.net/2020/12/1342417270094479360/): @wrongwaygoback the token can&#x27;t be used for quick draft or for arena cube
 - [Dec. 24, 2020, 6:20 p.m.](https://roytang.net/2020/12/ggvzbuq/): For people like me who dislike watching videos: Before you start drafting a set, craft all the common/uncommon cards from the new set, so that each common/uncommon you open in draft adds to the vault percentage.
 - [Dec. 24, 2020, 4:05 a.m.](https://roytang.net/2020/12/1342078964311834627/): We’re doing #nochebuena early this year. Merry Christmas everyone!
-- [Dec. 23, 2020, 7:43 p.m.](https://roytang.net/2020/12/1341952566423273473/): 
 
 [View all notes](https://roytang.net/notes)
 
