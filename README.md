@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2020 Year in Review](https://roytang.net/2021/01/2020-year-in-review/)
 - [New Year&#x27;s Checklist 2021](https://roytang.net/2021/01/new-years-checklist/)
 - [Weeknotes 2020-12-27 Season Finale](https://roytang.net/2020/12/weeknotes-2020-12-27/)
 - [Christmas Traditions](https://roytang.net/2020/12/xmas-traditions/)
 - [Weeknotes 2020-12-20](https://roytang.net/2020/12/weeknotes-2020-12-20/)
-- [How Not to Mentor Software Developers](https://roytang.net/2020/12/how-not-to-mentor/)
 
 [View all posts](https://roytang.net/blog)
 
