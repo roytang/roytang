@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 2, 2021, 3:58 a.m.](https://roytang.net/2021/01/1345338625655861248/): Snacktime! 2/365 #sketchdaily
 - [Jan. 1, 2021, 9:19 p.m.](https://roytang.net/2021/01/1345238294896918529/): Tryna get back into it #sketchdaily #SpiderMan
 - [Jan. 1, 2021, 4:10 a.m.](https://roytang.net/2021/01/1344979283568050176/): It&#x27;s Jan first, let&#x27;s just restart all the habits and see which ones stick
 - [Dec. 31, 2020, 10:56 p.m.](https://roytang.net/2020/12/1344900329939161097/): Timely. #FireEmblem #ThreeHouses #NintendoSwitch
 - [Dec. 31, 2020, 3:33 p.m.](https://roytang.net/2020/12/1344788913697669120/): Since I do Google Takeout on a regular basis, it would be nice if they had an option to generate a delta export since the last one, instead of making me download 100+ gigs everytime
-- [Dec. 31, 2020, 8:04 a.m.](https://roytang.net/2020/12/1344675891784212485/): Andami pa ding paputok
 
 [View all notes](https://roytang.net/notes)
 
