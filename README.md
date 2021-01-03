@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 3, 2021, 8:10 a.m.](https://roytang.net/2021/01/1345764522150174722/): One Piece has hit chapter 1000!
 - [Jan. 3, 2021, 7:51 a.m.](https://roytang.net/2021/01/1345759587618627585/): Underwater 3/365 #sketchdaily
 - [Jan. 2, 2021, 2:58 p.m.](https://roytang.net/2021/01/1345504732060663808/): PSA: if you keep your timeline in &quot;latest tweets&quot; mode (click sparkly blue icon on top right of app) you will have a chronological timeline and never have to see what your follows like. I always forget that&#x27;s a thing since I never see it Quoted daretorant&#x27;s tweet: I feel like folks don’t fully realize that liking a tweet puts it into their followers’ feeds (almost at the same rate that RTs do). When I see a tweet because “X liked this”, I am now re-evaluating whether I should follow them because of their “like curations”
 - [Jan. 2, 2021, 3:58 a.m.](https://roytang.net/2021/01/1345338625655861248/): Snacktime! 2/365 #sketchdaily
 - [Jan. 1, 2021, 9:19 p.m.](https://roytang.net/2021/01/1345238294896918529/): Tryna get back into it #sketchdaily #SpiderMan
-- [Jan. 1, 2021, 4:10 a.m.](https://roytang.net/2021/01/1344979283568050176/): It&#x27;s Jan first, let&#x27;s just restart all the habits and see which ones stick
 
 [View all notes](https://roytang.net/notes)
 
