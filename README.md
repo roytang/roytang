@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-01-03 Every New Beginning Is Some Other Beginning&#x27;s End](https://roytang.net/2021/01/weeknotes-2021-01-03/)
 - [2020 Year in Review](https://roytang.net/2021/01/2020-year-in-review/)
 - [New Year&#x27;s Checklist 2021](https://roytang.net/2021/01/new-years-checklist/)
 - [Weeknotes 2020-12-27 Season Finale](https://roytang.net/2020/12/weeknotes-2020-12-27/)
 - [Christmas Traditions](https://roytang.net/2020/12/xmas-traditions/)
-- [Weeknotes 2020-12-20](https://roytang.net/2020/12/weeknotes-2020-12-20/)
 
 [View all posts](https://roytang.net/blog)
 
