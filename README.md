@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 5, 2021, 10:01 p.m.](https://roytang.net/2021/01/gi6ha57/): I can’t relate to this request (I guess because I’m spiky), but I’m always curious whenever this comes up: are there other ccgs that do this (having systems that reward things other than winning, aside from daily quests)?
 - [Jan. 5, 2021, 4:40 a.m.](https://roytang.net/2021/01/1346436487819116544/): Senate: We will investigate the PSG vaccination Duterte: Your browser does not support the video tag. Quoted cnnphilippines&#x27;s tweet: Roque: The President said that he will invoke the executive privilege and forbid his security group from attending the Senate hearing, it&#x27;s not really a gag order http://bit.ly/2KTomNC
 - [Jan. 4, 2021, 10:43 a.m.](https://roytang.net/2021/01/1346165491451056128/): &quot;What, I thought you liked rocks!&quot; #sketchdaily 4/365
 - [Jan. 3, 2021, 8:10 a.m.](https://roytang.net/2021/01/1345764522150174722/): One Piece has hit chapter 1000!
 - [Jan. 3, 2021, 7:51 a.m.](https://roytang.net/2021/01/1345759587618627585/): Underwater 3/365 #sketchdaily
-- [Jan. 2, 2021, 2:58 p.m.](https://roytang.net/2021/01/1345504732060663808/): PSA: if you keep your timeline in &quot;latest tweets&quot; mode (click sparkly blue icon on top right of app) you will have a chronological timeline and never have to see what your follows like. I always forget that&#x27;s a thing since I never see it Quoted daretorant&#x27;s tweet: I feel like folks don’t fully realize that liking a tweet puts it into their followers’ feeds (almost at the same rate that RTs do). When I see a tweet because “X liked this”, I am now re-evaluating whether I should follow them because of their “like curations”
 
 [View all notes](https://roytang.net/notes)
 
