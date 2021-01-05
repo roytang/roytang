@@ -27,10 +27,10 @@ Latest shared links:
 Latest notes:
 
 - [Jan. 5, 2021, 10:01 p.m.](https://roytang.net/2021/01/gi6ha57/): I can’t relate to this request (I guess because I’m spiky), but I’m always curious whenever this comes up: are there other ccgs that do this (having systems that reward things other than winning, aside from daily quests)?
+- [Jan. 5, 2021, 7:29 a.m.](https://roytang.net/2021/01/1346478913908707328/): Pancakes! 5/365 #sketchdaily
 - [Jan. 5, 2021, 4:40 a.m.](https://roytang.net/2021/01/1346436487819116544/): Senate: We will investigate the PSG vaccination Duterte: Your browser does not support the video tag. Quoted cnnphilippines&#x27;s tweet: Roque: The President said that he will invoke the executive privilege and forbid his security group from attending the Senate hearing, it&#x27;s not really a gag order http://bit.ly/2KTomNC
 - [Jan. 4, 2021, 10:43 a.m.](https://roytang.net/2021/01/1346165491451056128/): &quot;What, I thought you liked rocks!&quot; #sketchdaily 4/365
 - [Jan. 3, 2021, 8:10 a.m.](https://roytang.net/2021/01/1345764522150174722/): One Piece has hit chapter 1000!
-- [Jan. 3, 2021, 7:51 a.m.](https://roytang.net/2021/01/1345759587618627585/): Underwater 3/365 #sketchdaily
 
 [View all notes](https://roytang.net/notes)
 
