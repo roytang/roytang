@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Jan. 6, 2021, 2:18 a.m.](https://roytang.net/2021/01/1346763019800334337/): @secretGeek how to disable this?
+- [Jan. 6, 2021, 2:18 a.m.](https://roytang.net/2021/01/1346763019800334337/): @secretGeek how to disable this? @secretGeek just checked mine and found it wasn&#x27;t enabled. Probably because I don&#x27;t actually have enough free dropbox space for it lol
 - [Jan. 5, 2021, 11:23 p.m.](https://roytang.net/2021/01/1346718914764369927/): There was no New Year&#x27;s Eve in the Philippines in 1844. The Philippines redrew the International Date Line to simplify trade with its Asian neighbors. As a result, local time in the Philippines jumped from December 30, 1844 to January 1, 1845. https://www.atlasobscura.com/articles/in-1844-the-philippines-skipped-a-day-and-it-took-decades-for-the-rest-of-the-world-to-notice
 - [Jan. 5, 2021, 10:01 p.m.](https://roytang.net/2021/01/gi6ha57/): I can’t relate to this request (I guess because I’m spiky), but I’m always curious whenever this comes up: are there other ccgs that do this (having systems that reward things other than winning, aside from daily quests)?
 - [Jan. 5, 2021, 7:29 a.m.](https://roytang.net/2021/01/1346478913908707328/): Pancakes! 5/365 #sketchdaily
