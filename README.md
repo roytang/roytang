@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Year in Cheer](https://roytang.net/2021/01/the-year-in-cheer/)
 - [Newsletters; or, an enormous rant about writing on the web that doesn’t really go anywhere and that’s okay with me](https://roytang.net/2021/01/newsletters-or-an-enormous-rant-about-writing-on-the-web-that-doesnt-really-go-anywhere-and-thats-ok/)
 - [You can now listen to the Persona game soundtracks on Spotify](https://roytang.net/2021/01/you-can-now-listen-to-the-persona-game-soundtracks-on-spotify/)
 - [It’s Okay If You Didn’t Read This Year](https://roytang.net/2021/01/its-okay-if-you-didnt-read-this-year/)
 - [52 things I learned in 2020](https://roytang.net/2020/12/52-things-i-learned-in-2020/)
-- [My favorite essays of life advice](https://roytang.net/2020/12/my-favorite-essays-of-life-advice/)
 
 [View all links](https://roytang.net/links)
 
