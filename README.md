@@ -27,10 +27,10 @@ Latest shared links:
 Latest notes:
 
 - [Jan. 8, 2021, 1:08 a.m.](https://roytang.net/2021/01/gify580/): Best is probably to call a judge.
+- [Jan. 7, 2021, 1:56 p.m.](https://roytang.net/2021/01/1347301175016656897/): @switchfollows I&#x27;ve been meaning to do something like that, but I mine aren&#x27;t something I&#x27;ve really concretely/formally defined ever (though I guess the blog does some of that work for me). I feel like a lot of my thought processes are straightforward and obvious, but maybe that&#x27;s just my POV
 - [Jan. 7, 2021, 8:35 a.m.](https://roytang.net/2021/01/1347220440322768902/): Amazing Friend number 1 #sketchdaily 7/365 ** When I was young, I always mixed up Iceman and Silver Surfer.
 - [Jan. 6, 2021, 8:20 p.m.](https://roytang.net/2021/01/1347035294416007168/): 【スラムダンク】 映画になります！ #slamdunkmovie Your browser does not support the video tag.
 - [Jan. 6, 2021, 8:08 p.m.](https://roytang.net/2021/01/1347032343945510915/): @bloodyvints What did he do
-- [Jan. 6, 2021, 7:12 p.m.](https://roytang.net/2021/01/1347018337990021122/): The last time the US considered the 25th amendment was back in 1997 when president James Marshall was held hostage by terrorist and Radek loyalist Egor Korshunov aboard Air Force One
 
 [View all notes](https://roytang.net/notes)
 
