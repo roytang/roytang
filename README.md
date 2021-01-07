@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Jan. 7, 2021, 8:35 a.m.](https://roytang.net/2021/01/1347220440322768902/): Amazing Friend number 1 #sketchdaily 7/365
+- [Jan. 7, 2021, 8:35 a.m.](https://roytang.net/2021/01/1347220440322768902/): Amazing Friend number 1 #sketchdaily 7/365 ** When I was young, I always mixed up Iceman and Silver Surfer.
 - [Jan. 6, 2021, 8:20 p.m.](https://roytang.net/2021/01/1347035294416007168/): 【スラムダンク】 映画になります！ #slamdunkmovie Your browser does not support the video tag.
 - [Jan. 6, 2021, 8:08 p.m.](https://roytang.net/2021/01/1347032343945510915/): @bloodyvints What did he do
 - [Jan. 6, 2021, 7:12 p.m.](https://roytang.net/2021/01/1347018337990021122/): The last time the US considered the 25th amendment was back in 1997 when president James Marshall was held hostage by terrorist and Radek loyalist Egor Korshunov aboard Air Force One
