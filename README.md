@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 6, 2021, 8:20 p.m.](https://roytang.net/2021/01/1347035294416007168/): 【スラムダンク】 映画になります！ #slamdunkmovie Your browser does not support the video tag.
 - [Jan. 6, 2021, 8:08 p.m.](https://roytang.net/2021/01/1347032343945510915/): @bloodyvints What did he do
 - [Jan. 6, 2021, 7:12 p.m.](https://roytang.net/2021/01/1347018337990021122/): The last time the US considered the 25th amendment was back in 1997 when president James Marshall was held hostage by terrorist and Radek loyalist Egor Korshunov aboard Air Force One
 - [Jan. 6, 2021, 7:08 p.m.](https://roytang.net/2021/01/1347017186317983745/): I was watching the CNN live feed for around 2hrs in the early morning over here as the insurrection was breaking. It invoked memories of watching the twin towers collapse on the news from half a world away, less than 20 years ago
 - [Jan. 6, 2021, 12:53 p.m.](https://roytang.net/2021/01/1346922745234223104/): Morning coffee. 6/365 #sketchdaily ** I once drew Beast and Spider-man having coffee while upside down and now that I think about it that&#x27;s probably not physically possible for humans lol.
-- [Jan. 6, 2021, 2:18 a.m.](https://roytang.net/2021/01/1346763019800334337/): @secretGeek how to disable this? @secretGeek just checked mine and found it wasn&#x27;t enabled. Probably because I don&#x27;t actually have enough free dropbox space for it lol
 
 [View all notes](https://roytang.net/notes)
 
