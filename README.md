@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Quotes!](https://roytang.net/2021/01/quotes/)
 - [Regular Reviews and Tracking](https://roytang.net/2021/01/regular-reviews/)
 - [Pinoy Drawing Memes](https://roytang.net/2021/01/pinoy-drawing-memes/)
 - [2020 Word Clouds](https://roytang.net/2021/01/word-clouds/)
 - [Goodbye Flipboard](https://roytang.net/2021/01/goodbye-flipboard/)
-- [Weeknotes 2021-01-03 Every New Beginning Is Some Other Beginning&#x27;s End](https://roytang.net/2021/01/weeknotes-2021-01-03/)
 
 [View all posts](https://roytang.net/blog)
 
