@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 8, 2021, 11:47 a.m.](https://roytang.net/2021/01/1347631047215702016/): I have yet to see any Valki Vartokamus jokes and I am disappointed in all of you #mtg #MTGKaldheim Quoted SaffronOlive&#x27;s tweet: Geez, god/planeswalker MDFC. At first glance it seems really solid. Valki is good early, Tibalt gives you late game utility.
 - [Jan. 8, 2021, 11:37 a.m.](https://roytang.net/2021/01/1347628452577304576/): If this isn&#x27;t some allegory for what we face as a country, IDK what is Quoted PhilippineStar&#x27;s tweet: The Philippine Eagle Foundation (PEF) on Friday announced the passing of Philippine Eagle Pag-asa, the icon of conservation efforts in the country.
 - [Jan. 8, 2021, 11:31 a.m.](https://roytang.net/2021/01/1347626957047877632/): I wonder if the US cop procedurals (NCIS, etc) have started putting white supremacists/altright nazis/homegrown terrorists into their regular rotation of villains
 - [Jan. 8, 2021, 10:02 a.m.](https://roytang.net/2021/01/1347604495987982336/): Taking a break from spider-man and procreate for a bit. Just a random dude 8/365 #sketchdaily
 - [Jan. 8, 2021, 2:23 a.m.](https://roytang.net/2021/01/1347488989385613312/): So far the only thing we can be sure about in the Dacera case is how incompetent our cops are. So, nothing new.
-- [Jan. 8, 2021, 2:16 a.m.](https://roytang.net/2021/01/1347487434125111297/): @wrongwaygoback happy birthday!
 
 [View all notes](https://roytang.net/notes)
 
