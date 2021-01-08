@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Lockdown Productivity: Spaceship You](https://roytang.net/2021/01/lockdown-productivity-spaceship-you/)
 - [Into the Personal-Website-Verse](https://roytang.net/2021/01/into-the-personal-website-verse/)
 - [Pieces of Thinking](https://roytang.net/2021/01/pieces-of-thinking/)
 - [100 Tips For A Better Life](https://roytang.net/2021/01/100-tips-for-a-better-life/)
 - [The Year in Cheer](https://roytang.net/2021/01/the-year-in-cheer/)
-- [Newsletters; or, an enormous rant about writing on the web that doesn’t really go anywhere and that’s okay with me](https://roytang.net/2021/01/newsletters-or-an-enormous-rant-about-writing-on-the-web-that-doesnt-really-go-anywhere-and-thats-ok/)
 
 [View all links](https://roytang.net/links)
 
