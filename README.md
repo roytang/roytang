@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Who Wants To Be a Thousandaire?](https://roytang.net/2021/01/who-wants-to-be-a-thousandaire/)
 - [Lockdown Productivity: Spaceship You](https://roytang.net/2021/01/lockdown-productivity-spaceship-you/)
 - [Into the Personal-Website-Verse](https://roytang.net/2021/01/into-the-personal-website-verse/)
 - [Pieces of Thinking](https://roytang.net/2021/01/pieces-of-thinking/)
 - [100 Tips For A Better Life](https://roytang.net/2021/01/100-tips-for-a-better-life/)
-- [The Year in Cheer](https://roytang.net/2021/01/the-year-in-cheer/)
 
 [View all links](https://roytang.net/links)
 
