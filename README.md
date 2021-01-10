@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 10, 2021, 3:09 a.m.](https://roytang.net/2021/01/1348225436602437636/): Over 40. I think yes, even in the 90s. I do remember hearing about things like Saddam invading Kuwait, fall of the Soviet Union, Desert Storm, etc. The main difference for me today is that we get a lot more &quot;internal to the US&quot; news, or maybe that&#x27;s just the sources I follow. Quoted itxaropena&#x27;s tweet: Over 30s of Twitter, Was your teenage life surrounded with many world events? Was the world this crazy back then?
+- [Jan. 10, 2021, 3:05 a.m.](https://roytang.net/2021/01/1348224373384241152/): Some kind of cake? 10/365 #sketchdaily
 - [Jan. 10, 2021, 1:29 a.m.](https://roytang.net/2021/01/1348200238675226626/): I just noticed that @duolingo web has great keyboard support, even in this &quot;click to select words&quot; mode. You can type to select words from the list, and enter/backspace work as you expect (embarrassingly, the answer I have in the above screenshot is already wrong lol) Unsurprisingly, the keyboard support doesn&#x27;t work for Japanese mode
 - [Jan. 9, 2021, 4:28 a.m.](https://roytang.net/2021/01/1347882847969837058/): Skate 9/365 #sketchdaily
 - [Jan. 8, 2021, 11:47 a.m.](https://roytang.net/2021/01/1347631047215702016/): I have yet to see any Valki Vartokamus jokes and I am disappointed in all of you #mtg #MTGKaldheim Quoted SaffronOlive&#x27;s tweet: Geez, god/planeswalker MDFC. At first glance it seems really solid. Valki is good early, Tibalt gives you late game utility.
-- [Jan. 8, 2021, 11:37 a.m.](https://roytang.net/2021/01/1347628452577304576/): If this isn&#x27;t some allegory for what we face as a country, IDK what is Quoted PhilippineStar&#x27;s tweet: The Philippine Eagle Foundation (PEF) on Friday announced the passing of Philippine Eagle Pag-asa, the icon of conservation efforts in the country.
-- [Jan. 8, 2021, 11:31 a.m.](https://roytang.net/2021/01/1347626957047877632/): I wonder if the US cop procedurals (NCIS, etc) have started putting white supremacists/altright nazis/homegrown terrorists into their regular rotation of villains
 
 [View all notes](https://roytang.net/notes)
 
