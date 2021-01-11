@@ -27,7 +27,7 @@ Latest shared links:
 Latest notes:
 
 - [Jan. 11, 2021, 3:10 p.m.](https://roytang.net/2021/01/giuoap8/): That seems to be for a text link?
-- [Jan. 11, 2021, 5:39 a.m.](https://roytang.net/2021/01/1348625596683673604/): Some kind of cat in a tree #sketchdaily 11/365
+- [Jan. 11, 2021, 1:39 p.m.](https://roytang.net/2021/01/1348625596683673604/): Some kind of cat in a tree #sketchdaily 11/365
 - [Jan. 10, 2021, 3:09 a.m.](https://roytang.net/2021/01/1348225436602437636/): Over 40. I think yes, even in the 90s. I do remember hearing about things like Saddam invading Kuwait, fall of the Soviet Union, Desert Storm, etc. The main difference for me today is that we get a lot more &quot;internal to the US&quot; news, or maybe that&#x27;s just the sources I follow. Quoted itxaropena&#x27;s tweet: Over 30s of Twitter, Was your teenage life surrounded with many world events? Was the world this crazy back then?
 - [Jan. 10, 2021, 3:05 a.m.](https://roytang.net/2021/01/1348224373384241152/): Some kind of cake? 10/365 #sketchdaily
 - [Jan. 10, 2021, 1:29 a.m.](https://roytang.net/2021/01/1348200238675226626/): I just noticed that @duolingo web has great keyboard support, even in this &quot;click to select words&quot; mode. You can type to select words from the list, and enter/backspace work as you expect (embarrassingly, the answer I have in the above screenshot is already wrong lol) Unsurprisingly, the keyboard support doesn&#x27;t work for Japanese mode
