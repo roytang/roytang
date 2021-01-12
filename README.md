@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 13, 2021, 4:24 a.m.](https://roytang.net/2021/01/1349089955872534528/): Cloudy 12/365 #sketchdaily
 - [Jan. 12, 2021, 10:40 p.m.](https://roytang.net/2021/01/1349003322246754304/): @Westraid what is that?
 - [Jan. 12, 2021, 12:31 p.m.](https://roytang.net/2021/01/gix8ts5/): Philippines. Very little impact as few people use it here. The dominant messaging apps here are Messenger and Viber
 - [Jan. 12, 2021, 11:50 a.m.](https://roytang.net/2021/01/1348839756042391552/): @MaoiArroyo Happy birthday!
 - [Jan. 11, 2021, 11:10 p.m.](https://roytang.net/2021/01/giuoap8/): That seems to be for a text link?
-- [Jan. 11, 2021, 10:53 p.m.](https://roytang.net/2021/01/1348644221733883905/): Has this &quot;government&quot; actually made any comment on the price difference as compared to other vaccines? Quoted cnnphilippines&#x27;s tweet: Roque on govt&#x27;s suppposed preference for Sinovac: Yun ang vaccine na una nating nakuha, at ang Western brands, na lantad ang colonial mentality sa mga Pilipino, July pa natin makukuha earliest
 
 [View all notes](https://roytang.net/notes)
 
