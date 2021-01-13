@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 13, 2021, 2:44 p.m.](https://roytang.net/2021/01/kw2qun/): Posted on r/MagicArena: Foretell and Revealed Cards in Hand on Arena I&#x27;m wondering how Arena will handle using Foretell when some of the cards in the opponent&#x27;s hand are revealed to you, since the card you exile with foretell should be hidden information. i.e., if I thoughtseize you and you&#x27;re holding 3 different foretell cards, then during your turn you pay 2 and exile one of them, the other 2 should no longer be revealed to me, since I would be able to deduce which card was exiled. Have they made any statement about this? I&#x27;m not super confident they&#x27;d
 - [Jan. 13, 2021, 2:14 p.m.](https://roytang.net/2021/01/1349238475199979521/): There will be people who leave your life without closure and sometimes even many years after you thought you’d moved on, they will appear in your dreams and you will find that the sadness remains
 - [Jan. 13, 2021, 4:24 a.m.](https://roytang.net/2021/01/1349089955872534528/): Cloudy 12/365 #sketchdaily
 - [Jan. 12, 2021, 10:40 p.m.](https://roytang.net/2021/01/1349003322246754304/): @Westraid what is that?
 - [Jan. 12, 2021, 12:31 p.m.](https://roytang.net/2021/01/gix8ts5/): Philippines. Very little impact as few people use it here. The dominant messaging apps here are Messenger and Viber
-- [Jan. 12, 2021, 11:50 a.m.](https://roytang.net/2021/01/1348839756042391552/): @MaoiArroyo Happy birthday!
 
 [View all notes](https://roytang.net/notes)
 
