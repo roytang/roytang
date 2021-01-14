@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 14, 2021, 10:14 p.m.](https://roytang.net/2021/01/1349721480636948487/): Fondue? 14/365 #sketchdaily
 - [Jan. 14, 2021, 8:37 a.m.](https://roytang.net/2021/01/1349515835971256323/): @TagoFabic Happy birthday!
 - [Jan. 13, 2021, 11:26 p.m.](https://roytang.net/2021/01/1349377300593197057/): Web of Spider-man (1985) no 1, Spectacular Spider-man S01E12, Spider-man 3 (2017) #comicbooks
 - [Jan. 13, 2021, 7:45 p.m.](https://roytang.net/2021/01/1349321771489447939/): @zaaaldehyde it&#x27;s more like you learn to live with how your life turned out
 - [Jan. 13, 2021, 7:26 p.m.](https://roytang.net/2021/01/1349316880712941570/): The librarian #sketchdaily 13/365
-- [Jan. 13, 2021, 7:03 p.m.](https://roytang.net/2021/01/gj2o5nv/): Ah, that&#x27;s good to know! Thanks
 
 [View all notes](https://roytang.net/notes)
 
