@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Why can&#x27;t I write code inside my browser?](https://roytang.net/2021/01/why-cant-i-write-code-inside-my-browser/)
 - [The Platform Is The Enemy](https://roytang.net/2021/01/the-platform-is-the-enemy/)
 - [Who Wants To Be a Thousandaire?](https://roytang.net/2021/01/who-wants-to-be-a-thousandaire/)
 - [Lockdown Productivity: Spaceship You](https://roytang.net/2021/01/lockdown-productivity-spaceship-you/)
 - [Into the Personal-Website-Verse](https://roytang.net/2021/01/into-the-personal-website-verse/)
-- [Pieces of Thinking](https://roytang.net/2021/01/pieces-of-thinking/)
 
 [View all links](https://roytang.net/links)
 
