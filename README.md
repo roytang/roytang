@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 15, 2021, 7:14 a.m.](https://roytang.net/2021/01/gj8fwa0/): Fun use of the counters to get around memory issues in paper. If it only has the flying counter -&gt; it&#x27;s a 4/4 Spirit Warrior Angel If it has the flying counter and the 2 +1/+1s -&gt; It has the Ophidian ability (If the +1/+1s get removed, you start to get confused.) There is no counter to help with the 2/3 mode.
 - [Jan. 15, 2021, 3:11 a.m.](https://roytang.net/2021/01/1349796416042856448/): Finally finished #FireEmblem #ThreeHouses, or one run at least! Doing the other two might take a while! #NintendoSwitch And yes, I could have gotten a much better screenshot from the ending I suppose, but I&#x27;m too lazy to go back and get one lol
 - [Jan. 14, 2021, 11:59 p.m.](https://roytang.net/2021/01/1349748048096727040/): OK, I don&#x27;t have high expectations or anything, but that trailer animation was pretty good Voltes V: Legacy, soon on GMA! https://www.youtube.com/watch?v=XJ4ChZPlikM&amp;feature=youtu.be via @YouTube
 - [Jan. 14, 2021, 10:14 p.m.](https://roytang.net/2021/01/1349721480636948487/): Fondue? 14/365 #sketchdaily
 - [Jan. 14, 2021, 8:37 a.m.](https://roytang.net/2021/01/1349515835971256323/): @TagoFabic Happy birthday!
-- [Jan. 13, 2021, 11:26 p.m.](https://roytang.net/2021/01/1349377300593197057/): Web of Spider-man (1985) no 1, Spectacular Spider-man S01E12, Spider-man 3 (2017) #comicbooks
 
 [View all notes](https://roytang.net/notes)
 
