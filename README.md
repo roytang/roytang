@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 16, 2021, 8:35 p.m.](https://roytang.net/2021/01/1350421401690394627/): Pretzel dragon #sketchdaily 16/365
 - [Jan. 16, 2021, 4:39 p.m.](https://roytang.net/2021/01/1350361902149324800/): 2021 #movies no 2: The Godfather part 2 (1974). This is two movies rolled into one. Still pretty good, but I think I liked the singular focus of the first one more.
 - [Jan. 16, 2021, 1:11 a.m.](https://roytang.net/2021/01/1350128457104068609/): Wanda #sketchdaily 15/365
 - [Jan. 15, 2021, 7:29 p.m.](https://roytang.net/2021/01/1350042544567029763/): 2021 movies no. 1: The Godfather (1972). Everyone is so young! Such a well-told gangster tale. Looking forward to the sequel
 - [Jan. 15, 2021, 11:01 a.m.](https://roytang.net/2021/01/1349914464309501954/): Sea shanty tiktok Quoted etelsverdlov&#x27;s tweet: The biggest compilation I’ve seen so far of the Wellerman sea shanty. It’s chefs kiss! 🤩 Your browser does not support the video tag.
-- [Jan. 15, 2021, 7:14 a.m.](https://roytang.net/2021/01/gj8fwa0/): Fun use of the counters to get around memory issues in paper. If it only has the flying counter -&gt; it&#x27;s a 4/4 Spirit Warrior Angel If it has the flying counter and the 2 +1/+1s -&gt; It has the Ophidian ability (If the +1/+1s get removed, you start to get confused.) There is no counter to help with the 2/3 mode.
 
 [View all notes](https://roytang.net/notes)
 
