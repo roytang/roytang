@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-01-17 There May Or May Not Be Sea Shanties](https://roytang.net/2021/01/weeknotes-2021-01-17/)
 - [Weeknotes 2021-01-10 Now With More Links](https://roytang.net/2021/01/weeknotes-2021-01-10/)
 - [Quotes!](https://roytang.net/2021/01/quotes/)
 - [Regular Reviews and Tracking](https://roytang.net/2021/01/regular-reviews/)
 - [Pinoy Drawing Memes](https://roytang.net/2021/01/pinoy-drawing-memes/)
-- [2020 Word Clouds](https://roytang.net/2021/01/word-clouds/)
 
 [View all posts](https://roytang.net/blog)
 
