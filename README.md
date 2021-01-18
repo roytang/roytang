@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 18, 2021, 2:38 p.m.](https://roytang.net/2021/01/763b493ae866e86f9f0fdff5202e072e/): Survey: What was your favorite movie of 2020?
 - [Jan. 18, 2021, 3:52 a.m.](https://roytang.net/2021/01/1350893668127830016/): Crane. Please excuse the comically poorly drawn hand #sketchdaily 17/365
 - [Jan. 17, 2021, 11:04 p.m.](https://roytang.net/2021/01/1350821282380615682/): The daily covid death stats hit you differently when you know one of them
 - [Jan. 17, 2021, 7:28 p.m.](https://roytang.net/2021/01/1350766994576982022/): @Westraid happy birthday!
 - [Jan. 16, 2021, 8:35 p.m.](https://roytang.net/2021/01/1350421401690394627/): Pretzel dragon #sketchdaily 16/365
-- [Jan. 16, 2021, 4:39 p.m.](https://roytang.net/2021/01/1350361902149324800/): 2021 #movies no 2: The Godfather part 2 (1974). This is two movies rolled into one. Still pretty good, but I think I liked the singular focus of the first one more.
 
 [View all notes](https://roytang.net/notes)
 
