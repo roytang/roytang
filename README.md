@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Book Review: The End of Everything by Katie Mack](https://roytang.net/2021/01/end-of-everything/)
 - [Weeknotes 2021-01-17 There May Or May Not Be Sea Shanties](https://roytang.net/2021/01/weeknotes-2021-01-17/)
 - [Weeknotes 2021-01-10 Now With More Links](https://roytang.net/2021/01/weeknotes-2021-01-10/)
 - [Quotes!](https://roytang.net/2021/01/quotes/)
 - [Regular Reviews and Tracking](https://roytang.net/2021/01/regular-reviews/)
-- [Pinoy Drawing Memes](https://roytang.net/2021/01/pinoy-drawing-memes/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Jan. 21, 2021, 12:19 a.m.](https://roytang.net/2021/01/1351927271817322498/): Gotta go fast #sketchdaily 20/365
+- [Jan. 21, 2021, 12:19 a.m.](https://roytang.net/2021/01/1351927271817322498/): Gotta go fast #sketchdaily 20/365 In the Sonic the Hedgehog movie, his arms are blue.
 - [Jan. 20, 2021, 12:17 p.m.](https://roytang.net/2021/01/1351745725428768769/): PRRD said that its unfair that only UP &amp; PUP have a pact... I completely agree!!!! So why not enter into a similar pact with ALL THE OTHER UNIVERSITIES or, better yet, pass a law that will guaramtee this to ALL UNIVERSITIES instead of abrogating these two. #TrustTheFilipinoYouth
 - [Jan. 19, 2021, 7:32 p.m.](https://roytang.net/2021/01/1351492716731895810/): Goaaaaalll! #sketchdaily 19/365
 - [Jan. 19, 2021, 7:47 a.m.](https://roytang.net/2021/01/1351315278152359936/): Vision #sketchdaily 18/365
