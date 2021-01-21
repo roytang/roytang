@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Jan. 21, 2021, 10:04 p.m.](https://roytang.net/2021/01/1352255863466049540/): Out for a walk? #sketchdaily 21/365
+- [Jan. 21, 2021, 10:04 p.m.](https://roytang.net/2021/01/1352255863466049540/): Out for a walk? #sketchdaily 21/365 This is one of those things where I didn&#x27;t have any kind of plan and just started drawing.
 - [Jan. 21, 2021, 5:19 p.m.](https://roytang.net/2021/01/1352184058369871874/): @rom thank you!
 - [Jan. 21, 2021, 5:17 p.m.](https://roytang.net/2021/01/1352183495053852672/): @rom what device is that?
 - [Jan. 21, 2021, 3:02 p.m.](https://roytang.net/2021/01/1352149509652922373/): The guy from Toto looks like Pedro Pascal
