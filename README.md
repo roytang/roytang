@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Thoughts on Tech Censorship and Social Media](https://roytang.net/2021/01/tech-censorship/)
 - [Book Review: The End of Everything by Katie Mack](https://roytang.net/2021/01/end-of-everything/)
 - [Weeknotes 2021-01-17 There May Or May Not Be Sea Shanties](https://roytang.net/2021/01/weeknotes-2021-01-17/)
 - [Weeknotes 2021-01-10 Now With More Links](https://roytang.net/2021/01/weeknotes-2021-01-10/)
 - [Quotes!](https://roytang.net/2021/01/quotes/)
-- [Regular Reviews and Tracking](https://roytang.net/2021/01/regular-reviews/)
 
 [View all posts](https://roytang.net/blog)
 
