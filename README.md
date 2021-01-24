@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Facebook Disabled My Account After I Criticized Them](https://roytang.net/2021/01/facebook-disabled-my-account-after-i-criticized-them/)
+- [How homogeneous is Japan?](https://roytang.net/2021/01/how-homogeneous-is-japan/)
+- [The man third in the line of presidential succession has been in five &#x27;Batman&#x27; movies](https://roytang.net/2021/01/the-man-third-in-the-line-of-presidential-succession-has-been-in-five-batman-movies/)
 - [Online speech and publishing](https://roytang.net/2021/01/online-speech-and-publishing/)
 - [What social networks can learn from public spaces](https://roytang.net/2021/01/what-social-networks-can-learn-from-public-spaces/)
-- [How to Start Fixing Social Media](https://roytang.net/2021/01/how-to-start-fixing-social-media/)
-- [Why can&#x27;t I write code inside my browser?](https://roytang.net/2021/01/why-cant-i-write-code-inside-my-browser/)
-- [The Platform Is The Enemy](https://roytang.net/2021/01/the-platform-is-the-enemy/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
-- [Jan. 24, 2021, 12:20 p.m.](https://roytang.net/2021/01/1353196047548354561/): Ghost #sketchdaily 23/365
-- [Jan. 22, 2021, 10:23 p.m.](https://roytang.net/2021/01/1352622799383261185/): I think I&#x27;ll just phone it in today #sketchdaily 22/365
-- [Jan. 22, 2021, 10 p.m.](https://roytang.net/2021/01/1352617235739623424/): @jaymelynilao congrats! kelan alis mo
-- [Jan. 21, 2021, 11:43 p.m.](https://roytang.net/2021/01/1352280628490747906/): Platforms should not be responsible for a person making awful content. They are absolutely responsible when they put it in front of people who didn’t even know it existed. They should know the difference between hosting awful content and choosing to broadcast it. We all should.
-- [Jan. 21, 2021, 10:04 p.m.](https://roytang.net/2021/01/1352255863466049540/): Out for a walk? #sketchdaily 21/365 This is one of those things where I didn&#x27;t have any kind of plan and just started drawing.
+- [Jan. 24, 2021, 7:52 p.m.](https://roytang.net/2021/01/1353309670799073285/): TIL shambolically: in a confused or disorganised manner Quoted TheEconomist&#x27;s tweet: Few countries have handled vaccine procurement as shambolically as the Philippines https://econ.st/394APqN
+- [Jan. 24, 2021, 7:43 p.m.](https://roytang.net/2021/01/1353307357166542851/): @davewiner the US imposes a large shadow over the rest of us
+- [Jan. 24, 2021, 7:31 p.m.](https://roytang.net/2021/01/1353304383803379712/): uh did anyone have “nickelback turns their own song rockstar into a sea shanty and frankly it’s really good” on their 2021 bingo card? Your browser does not support the video tag.
+- [Jan. 24, 2021, 7:27 p.m.](https://roytang.net/2021/01/1353303486662811648/): Maybe someday I&#x27;ll be able to read a long form economics article without my eyes glazing over halfway through
+- [Jan. 24, 2021, 1:54 p.m.](https://roytang.net/2021/01/1353219552054657025/): My results on the difficult person test. Seems about right.
 
 [View all notes](https://roytang.net/notes)
 
