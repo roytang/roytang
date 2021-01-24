@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 24, 2021, 10:06 p.m.](https://roytang.net/2021/01/1353343377157181443/): Write despite rejection. Write like the world is ending. Write like this may be the last minute you have to say the inarticulable thing. And write in spite of the world--with love for this irredeemable beautiful ravaged planet. Write for the mouse in the kitchen.
 - [Jan. 24, 2021, 7:52 p.m.](https://roytang.net/2021/01/1353309670799073285/): TIL shambolically: in a confused or disorganised manner Quoted TheEconomist&#x27;s tweet: Few countries have handled vaccine procurement as shambolically as the Philippines https://econ.st/394APqN
 - [Jan. 24, 2021, 7:43 p.m.](https://roytang.net/2021/01/1353307357166542851/): @davewiner the US imposes a large shadow over the rest of us
 - [Jan. 24, 2021, 7:31 p.m.](https://roytang.net/2021/01/1353304383803379712/): uh did anyone have “nickelback turns their own song rockstar into a sea shanty and frankly it’s really good” on their 2021 bingo card? Your browser does not support the video tag.
 - [Jan. 24, 2021, 7:27 p.m.](https://roytang.net/2021/01/1353303486662811648/): Maybe someday I&#x27;ll be able to read a long form economics article without my eyes glazing over halfway through
-- [Jan. 24, 2021, 1:54 p.m.](https://roytang.net/2021/01/1353219552054657025/): My results on the difficult person test. Seems about right.
 
 [View all notes](https://roytang.net/notes)
 
