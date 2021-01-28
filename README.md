@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 28, 2021, 1:57 p.m.](https://roytang.net/2021/01/1354670019045584899/): The whole Gamestop brouhaha reminds me of the explanation I made for stock market prices a while back on reddit&#x27;s ELI5 forum: https://www.reddit.com/r/explainlikeimfive/comments/6c9plk/eli5_stock_prices_constantly_changing/dhtc9qo/?context=3 &quot;There is no magic formula that predicts what stock prices will be (whoever discovers that first will be rich). It&#x27;s largely a matter of perception and psychology. Sometimes stock prices move mainly because of rumors or speculation.&quot; -&gt; basically everything&#x27;s made up, lol And if I may add, if this reddit thing ends up as a catalyst to topple/reform capitalism, unlikely as it may seem, I would find that hilarious
+- [Jan. 28, 2021, 8:08 a.m.](https://roytang.net/2021/01/gkyo689/): No, I only got the one search result and that was the matching one
+- [Jan. 28, 2021, 3:13 a.m.](https://roytang.net/2021/01/gkxp5u8/): I followed the Sporza feed that was the result of pasting that url, and it looks like it&#x27;s the correct one: https://i.imgur.com/RK7pNDG.png
 - [Jan. 27, 2021, 1:26 p.m.](https://roytang.net/2021/01/1354299701521047559/): Vacation? #sketchdaily 26/365
 - [Jan. 25, 2021, 8:07 p.m.](https://roytang.net/2021/01/1353675940832792576/): Some old guy and his birds #sketchdaily 25/365
-- [Jan. 25, 2021, 1:14 p.m.](https://roytang.net/2021/01/1353571824806727680/): @angelicaaira I think most people naman are dealing with some level of fear and/or anxiety, it&#x27;s just that hindi sya visible for most people, and there are those who can handle it better, so sometimes you can feel like ikaw lang ang ganun sa mundo. Rest assured, it gets better
-- [Jan. 25, 2021, 11:26 a.m.](https://roytang.net/2021/01/1353544847815131142/): Hades is bored. +terrible first attempt #sketchdaily 24/365
-- [Jan. 24, 2021, 10:06 p.m.](https://roytang.net/2021/01/1353343377157181443/): Write despite rejection. Write like the world is ending. Write like this may be the last minute you have to say the inarticulable thing. And write in spite of the world--with love for this irredeemable beautiful ravaged planet. Write for the mouse in the kitchen.
 
 [View all notes](https://roytang.net/notes)
 
