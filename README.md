@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Jan. 29, 2021, 10:43 p.m.](https://roytang.net/2021/01/1355164547842248704/): Streaming some late-night Kaldheim sealed! https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena
+- [Jan. 29, 2021, 10:43 p.m.](https://roytang.net/2021/01/1355164547842248704/): Streaming some late-night Kaldheim sealed! https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena I ended up playing a dumb 3-color deck and only went 2-3 due to mana issues and being unable to kill big dudes. Draft next week probably!
 - [Jan. 29, 2021, 12:56 p.m.](https://roytang.net/2021/01/1355016829169754115/): Streaming some Civ 6 with Vietnam! https://www.twitch.tv/twitchyroy #twitch #civ6
 - [Jan. 28, 2021, 8:08 p.m.](https://roytang.net/2021/01/1354763190983290883/): Three turtles #sketchdaily 28/365 Nobody likes Leonardo.
 - [Jan. 28, 2021, 8:07 p.m.](https://roytang.net/2021/01/1354763044119699461/): This is a werewolf eating a calzone #sketchdaily 27/365
