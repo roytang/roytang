@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [So you&#x27;ve made a mistake and it&#x27;s public...](https://roytang.net/2021/01/so-youve-made-a-mistake-and-its-public/)
 - [Software development topics I&#x27;ve changed my mind on after 6 years in the industry](https://roytang.net/2021/01/software-development-topics-ive-changed-my-mind-on-after-6-years-in-the-industry/)
 - [Doomscrolling at Scale](https://roytang.net/2021/01/doomscrolling-at-scale/)
 - [Andrea Zittel: These things I know for sure](https://roytang.net/2021/01/andrea-zittel-these-things-i-know-for-sure/)
 - [Facebook Disabled My Account After I Criticized Them](https://roytang.net/2021/01/facebook-disabled-my-account-after-i-criticized-them/)
-- [How homogeneous is Japan?](https://roytang.net/2021/01/how-homogeneous-is-japan/)
 
 [View all links](https://roytang.net/links)
 
