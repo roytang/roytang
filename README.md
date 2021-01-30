@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 30, 2021, 9:43 a.m.](https://roytang.net/2021/01/1355330692813516804/): @switchfollows but wala pa rin balita when we&#x27;ll get D+ here D:
 - [Jan. 30, 2021, 8:49 a.m.](https://roytang.net/2021/01/gl991w8/): This is great. Any tips for capturing people&#x27;s likenesses?
 - [Jan. 30, 2021, 1:37 a.m.](https://roytang.net/2021/01/1355208484178939906/): No spoilers: WandaVision is so so good.
 - [Jan. 29, 2021, 10:43 p.m.](https://roytang.net/2021/01/1355164547842248704/): Streaming some late-night Kaldheim sealed! https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena I ended up playing a dumb 3-color deck and only went 2-3 due to mana issues and being unable to kill big dudes. Draft next week probably! YT: https://www.youtube.com/watch?v=5Afau62kS1w
 - [Jan. 29, 2021, 12:56 p.m.](https://roytang.net/2021/01/1355016829169754115/): Streaming some Civ 6 with Vietnam! https://www.twitch.tv/twitchyroy #twitch #civ6 YT export: https://www.youtube.com/watch?v=yJFiA4HBCi8
-- [Jan. 28, 2021, 8:08 p.m.](https://roytang.net/2021/01/1354763190983290883/): Three turtles #sketchdaily 28/365 Nobody likes Leonardo.
 
 [View all notes](https://roytang.net/notes)
 
