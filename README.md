@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Jan. 31, 2021, 1:52 p.m.](https://roytang.net/2021/01/1355755874015449089/): Drafting Kaldheim ep1 https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena #kaldheim
+- [Jan. 31, 2021, 1:52 p.m.](https://roytang.net/2021/01/1355755874015449089/): Drafting Kaldheim ep1 https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena #kaldheim Ran RW, only managed a meager 3-3, but that&#x27;s plenty since I feel like I drafted terribly lol. YT: https://www.youtube.com/watch?v=zao0PjGKlyw
 - [Jan. 30, 2021, 8:14 p.m.](https://roytang.net/2021/01/1355489577423654915/): Sharkticon #sketchdaily 30/365
 - [Jan. 30, 2021, 8:13 p.m.](https://roytang.net/2021/01/1355489425698906115/): Penguin #sketchdaily 29/365
 - [Jan. 30, 2021, 9:52 a.m.](https://roytang.net/2021/01/1355333156157591552/): @wrongwaygoback @mtgaaron @maro254 I just woke up, what&#x27;s happening?
