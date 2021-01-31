@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 31, 2021, 1:52 p.m.](https://roytang.net/2021/01/1355755874015449089/): Drafting Kaldheim ep1 https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena #kaldheim
 - [Jan. 30, 2021, 8:14 p.m.](https://roytang.net/2021/01/1355489577423654915/): Sharkticon #sketchdaily 30/365
 - [Jan. 30, 2021, 8:13 p.m.](https://roytang.net/2021/01/1355489425698906115/): Penguin #sketchdaily 29/365
 - [Jan. 30, 2021, 9:52 a.m.](https://roytang.net/2021/01/1355333156157591552/): @wrongwaygoback @mtgaaron @maro254 I just woke up, what&#x27;s happening?
 - [Jan. 30, 2021, 9:43 a.m.](https://roytang.net/2021/01/1355330692813516804/): @switchfollows but wala pa rin balita when we&#x27;ll get D+ here D:
-- [Jan. 30, 2021, 8:49 a.m.](https://roytang.net/2021/01/gl991w8/): This is great. Any tips for capturing people&#x27;s likenesses?
 
 [View all notes](https://roytang.net/notes)
 
