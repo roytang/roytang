@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
-- [Feb. 1, 2021, 7:08 p.m.](https://roytang.net/2021/02/1356197700480479232/): Drafting Kaldheim ep2 https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena #kaldheim
+- [Feb. 1, 2021, 9:45 p.m.](https://roytang.net/2021/02/1356237231090876418/): Some kind of car #sketchdaily 32/365
+- [Feb. 1, 2021, 7:08 p.m.](https://roytang.net/2021/02/1356197700480479232/): Drafting Kaldheim ep2 https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena #kaldheim Today&#x27;s draft went slightly better than the last one, though I still lost to some mana issues because I went for the greedy 5-color snow build. YT: https://www.youtube.com/watch?v=EKkEC5DEe8E
 - [Feb. 1, 2021, 2:48 p.m.](https://roytang.net/2021/02/1356132294101065730/): @rocketkeis good luck!
 - [Jan. 31, 2021, 11:14 p.m.](https://roytang.net/2021/01/1355897363999547395/): &quot;Why are you all asking me questions, I&#x27;m a lemur&quot; #sketchdaily 31/365
 - [Jan. 31, 2021, 1:52 p.m.](https://roytang.net/2021/01/1355755874015449089/): Drafting Kaldheim ep1 https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena #kaldheim Ran RW, only managed a meager 3-3, but that&#x27;s plenty since I feel like I drafted terribly lol. YT: https://www.youtube.com/watch?v=zao0PjGKlyw
-- [Jan. 30, 2021, 8:14 p.m.](https://roytang.net/2021/01/1355489577423654915/): Sharkticon #sketchdaily 30/365
 
 [View all notes](https://roytang.net/notes)
 
