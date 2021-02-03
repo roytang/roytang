@@ -27,7 +27,7 @@ Latest shared links:
 Latest notes:
 
 - [Feb. 3, 2021, 9:24 p.m.](https://roytang.net/2021/02/1356956698443800583/): The fires of invention #sketchdaily 34/365
-- [Feb. 3, 2021, 7:21 p.m.](https://roytang.net/2021/02/1356925836297981955/): Drafting Kaldheim ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim
+- [Feb. 3, 2021, 7:21 p.m.](https://roytang.net/2021/02/1356925836297981955/): Drafting Kaldheim ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Wasn&#x27;t able to screencap the results, but this draft went quite well! Tergrid&#x27;s Lantern is definitely a bomb, and even the squirrel overperformed I think. YT: https://www.youtube.com/watch?v=n9FPB1Ivl7U
 - [Feb. 2, 2021, 11:36 p.m.](https://roytang.net/2021/02/1356627504354656259/): Drawing people is hard #sketchdaily 33/365 So is placing numbers on a clock face, apparently.
 - [Feb. 1, 2021, 9:45 p.m.](https://roytang.net/2021/02/1356237231090876418/): Some kind of car #sketchdaily 32/365
 - [Feb. 1, 2021, 9:20 p.m.](https://roytang.net/2021/02/1356230925277822976/): Shared via pocket: Why Generation X will save the web https://webdevlaw.uk/2021/01/30/why-generation-x-will-save-the-web/
