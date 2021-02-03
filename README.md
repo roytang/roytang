@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 3, 2021, 7:21 p.m.](https://roytang.net/2021/02/1356925836297981955/): Drafting Kaldheim ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim
 - [Feb. 2, 2021, 11:36 p.m.](https://roytang.net/2021/02/1356627504354656259/): Drawing people is hard #sketchdaily 33/365 So is placing numbers on a clock face, apparently.
 - [Feb. 1, 2021, 9:45 p.m.](https://roytang.net/2021/02/1356237231090876418/): Some kind of car #sketchdaily 32/365
 - [Feb. 1, 2021, 9:20 p.m.](https://roytang.net/2021/02/1356230925277822976/): Shared via pocket: Why Generation X will save the web https://webdevlaw.uk/2021/01/30/why-generation-x-will-save-the-web/
 - [Feb. 1, 2021, 7:08 p.m.](https://roytang.net/2021/02/1356197700480479232/): Drafting Kaldheim ep2 https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena #kaldheim Today&#x27;s draft went slightly better than the last one, though I still lost to some mana issues because I went for the greedy 5-color snow build. YT: https://www.youtube.com/watch?v=EKkEC5DEe8E
-- [Feb. 1, 2021, 2:48 p.m.](https://roytang.net/2021/02/1356132294101065730/): @rocketkeis good luck!
 
 [View all notes](https://roytang.net/notes)
 
