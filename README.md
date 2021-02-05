@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 5, 2021, 7:19 p.m.](https://roytang.net/2021/02/1357650153709142017/): Gonna draft some more Kaldheim, keep me company if you like: https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim
+- [Feb. 5, 2021, 7:15 p.m.](https://roytang.net/2021/02/1357649120769445890/): I finished the WandaVision ep 10 mins ago and I&#x27;m still in OMGWTH mode
 - [Feb. 4, 2021, 10:59 p.m.](https://roytang.net/2021/02/1357343071902437385/): Need a light? #sketchdaily 35/365
 - [Feb. 3, 2021, 11:11 p.m.](https://roytang.net/2021/02/23ef43058c482c829265e01e331d53c2/): Please write more. Not just on social media, FB, Twitter, whatever. Write on your own sites and blogs. On your tumblrs, wordpresses, whatever. Long-form, rambling, incessant. The world could use more sincere blogging.
 - [Feb. 3, 2021, 9:24 p.m.](https://roytang.net/2021/02/1356956698443800583/): The fires of invention #sketchdaily 34/365
-- [Feb. 3, 2021, 7:21 p.m.](https://roytang.net/2021/02/1356925836297981955/): Drafting Kaldheim ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Wasn&#x27;t able to screencap the results, but this draft went quite well! Tergrid&#x27;s Lantern is definitely a bomb, and even the squirrel overperformed I think. YT: https://www.youtube.com/watch?v=n9FPB1Ivl7U
-- [Feb. 2, 2021, 11:36 p.m.](https://roytang.net/2021/02/1356627504354656259/): Drawing people is hard #sketchdaily 33/365 So is placing numbers on a clock face, apparently.
 
 [View all notes](https://roytang.net/notes)
 
