@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 7, 2021, 2:44 p.m.](https://roytang.net/2021/02/1358305512517849089/): Sometimes I consider writing a regular newsletter about daily goings-on in the country, but I quickly realize I would quickly burn out on the sheer density of shenanigans our politicians/&quot;leaders&quot; get into. Probably not a job for a single person.
 - [Feb. 5, 2021, 10:07 p.m.](https://roytang.net/2021/02/1357692249409155072/): The Riddler? #sketchdaily 36/365
 - [Feb. 5, 2021, 7:19 p.m.](https://roytang.net/2021/02/1357650153709142017/): Gonna draft some more Kaldheim, keep me company if you like: https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim I got the lantern again, but this draft didn&#x27;t go as well as the last one. Might have needed more lands. YT: https://www.youtube.com/watch?v=wGC-9xAO1Kk
 - [Feb. 5, 2021, 7:15 p.m.](https://roytang.net/2021/02/1357649120769445890/): I finished the WandaVision ep 10 mins ago and I&#x27;m still in OMGWTH mode
 - [Feb. 4, 2021, 10:59 p.m.](https://roytang.net/2021/02/1357343071902437385/): Need a light? #sketchdaily 35/365
-- [Feb. 3, 2021, 11:11 p.m.](https://roytang.net/2021/02/23ef43058c482c829265e01e331d53c2/): Please write more. Not just on social media, FB, Twitter, whatever. Write on your own sites and blogs. On your tumblrs, wordpresses, whatever. Long-form, rambling, incessant. The world could use more sincere blogging.
 
 [View all notes](https://roytang.net/notes)
 
