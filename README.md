@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 8, 2021, 2:35 p.m.](https://roytang.net/2021/02/1358665660318928898/): I&#x27;ve never seen this show #sketchdaily 39/365
 - [Feb. 8, 2021, 2:24 p.m.](https://roytang.net/2021/02/1358662954086932481/): Visiting some little friends #sketchdaily 38/365
 - [Feb. 8, 2021, 2:17 p.m.](https://roytang.net/2021/02/1358661180684869633/): Wall lizard #sketchdaily 37/365
 - [Feb. 8, 2021, 6:48 a.m.](https://roytang.net/2021/02/146ce75d91951cde348df07bbf175ad4/): My computer greets me in the morning as it always has for the past few months: with &quot;Your dropbox is almost full&quot;.
 - [Feb. 8, 2021, 3:54 a.m.](https://roytang.net/2021/02/gmeu5pi/): “please respect my belief that your beliefs are bullshit”
-- [Feb. 7, 2021, 2:44 p.m.](https://roytang.net/2021/02/1358305512517849089/): Sometimes I consider writing a regular newsletter about daily goings-on in the country, but I quickly realize I would quickly burn out on the sheer density of shenanigans our politicians/&quot;leaders&quot; get into. Probably not a job for a single person.
 
 [View all notes](https://roytang.net/notes)
 
