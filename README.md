@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Feb. 8, 2021, 7:11 p.m.](https://roytang.net/2021/02/1358735311971483650/): Drafting Kaldheim ep5 https://www.twitch.tv/twitchyroy
+- [Feb. 8, 2021, 7:11 p.m.](https://roytang.net/2021/02/1358735311971483650/): Drafting Kaldheim ep5 https://www.twitch.tv/twitchyroy Managed to do two drafts this time. One of them was a monowhite deck, while the other was a 3 color pile. Easy to predict which one did better. YT: https://www.youtube.com/watch?v=7XjAGkOPGk4
 - [Feb. 8, 2021, 2:35 p.m.](https://roytang.net/2021/02/1358665660318928898/): I&#x27;ve never seen this show #sketchdaily 39/365
 - [Feb. 8, 2021, 2:24 p.m.](https://roytang.net/2021/02/1358662954086932481/): Visiting some little friends #sketchdaily 38/365
 - [Feb. 8, 2021, 2:17 p.m.](https://roytang.net/2021/02/1358661180684869633/): Wall lizard #sketchdaily 37/365
