@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Sincere Blogging](https://roytang.net/2021/02/sincere_blogging/)
+- [Book Review: The Year Without Pants](https://roytang.net/2021/02/year_without_pants/)
 - [Link Rot](https://roytang.net/2021/02/link-rot/)
 - [Weeknotes 2021-02-07](https://roytang.net/2021/02/weeknotes-2021-02-07/)
 - [Weeknotes 2021-01-31 Stonks!](https://roytang.net/2021/01/weeknotes-2021-01-31/)
-- [Weeknotes 2021-01-24](https://roytang.net/2021/01/weeknotes-2021-01-24/)
-- [Thoughts on Tech Censorship and Social Media](https://roytang.net/2021/01/tech-censorship/)
 
 [View all posts](https://roytang.net/blog)
 
