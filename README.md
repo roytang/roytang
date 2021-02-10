@@ -6,8 +6,8 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
-- [Decentralization](https://roytang.net/2021/02/decentralization/)
 - [Don&#x27;t Be Ashamed of Joy](https://roytang.net/2021/02/dont-be-ashamed-of-joy/)
+- [Decentralization](https://roytang.net/2021/02/decentralization/)
 - [Irregular Calendars](https://roytang.net/2021/02/irregular-calendars/)
 - [Newsletters, Redux](https://roytang.net/2021/02/newsletters-redux/)
 - [Sincere Blogging](https://roytang.net/2021/02/sincere_blogging/)
