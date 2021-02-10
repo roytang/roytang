@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Feb. 10, 2021, 6:27 p.m.](https://roytang.net/2021/02/1359448935409025027/): Drafting Kaldheim ep6 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim
+- [Feb. 10, 2021, 6:27 p.m.](https://roytang.net/2021/02/1359448935409025027/): Drafting Kaldheim ep6 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Today was another double draft day. One of these was the worst Kaldheim run so far, the other was a bit better. Guess which is which! YT: https://www.youtube.com/watch?v=sCxRbfwbGvs
 - [Feb. 9, 2021, 9:46 p.m.](https://roytang.net/2021/02/1359136696764227589/): https://www.youtube.com/watch?v=vYmSAMcwXA8&amp;feature=youtu.be
 - [Feb. 9, 2021, 9:04 p.m.](https://roytang.net/2021/02/1359126069219971073/): Triceratops #sketchdaily 40/365
 - [Feb. 9, 2021, 6:36 p.m.](https://roytang.net/2021/02/1359088716749234179/): @Westraid isnt it tough to bike in the snow?
