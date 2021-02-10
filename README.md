@@ -7,10 +7,10 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 Latest blog posts:
 
 - [Decentralization](https://roytang.net/2021/02/decentralization/)
+- [Irregular Calendars](https://roytang.net/2021/02/irregular-calendars/)
 - [Newsletters, Redux](https://roytang.net/2021/02/newsletters-redux/)
 - [Sincere Blogging](https://roytang.net/2021/02/sincere_blogging/)
 - [Book Review: The Year Without Pants](https://roytang.net/2021/02/year_without_pants/)
-- [Link Rot](https://roytang.net/2021/02/link-rot/)
 
 [View all posts](https://roytang.net/blog)
 
