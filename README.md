@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 11, 2021, 5:01 p.m.](https://roytang.net/2021/02/1359789639494606848/): Goblin Snowman #sketchdaily 42/365
 - [Feb. 11, 2021, 3:03 p.m.](https://roytang.net/2021/02/1359759899765317636/): @SeresaTagAraw nagtratrabaho ka pa ba? lol
 - [Feb. 11, 2021, midnight](https://roytang.net/2021/02/1359532578227638275/): This is my new favorite #mtg Secret Lair. Also, Uro is getting banned via a secret lair announcement lol https://magic.wizards.com/en/articles/archive/news/announcing-secret-lairs-smitten-superdrop-2021-02-10
 - [Feb. 10, 2021, 11:54 p.m.](https://roytang.net/2021/02/1359531216542724097/): The phrase “respect the hustle” makes me sad. We deserve a world where nobody has to hustle. https://bit.ly/2HZOYVS
 - [Feb. 10, 2021, 11:15 p.m.](https://roytang.net/2021/02/1359521320334053377/): A light meal #sketchdaily 41/365
-- [Feb. 10, 2021, 6:27 p.m.](https://roytang.net/2021/02/1359448935409025027/): Drafting Kaldheim ep6 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Today was another double draft day. One of these was the worst Kaldheim run so far, the other was a bit better. Guess which is which! YT: https://www.youtube.com/watch?v=sCxRbfwbGvs
 
 [View all notes](https://roytang.net/notes)
 
