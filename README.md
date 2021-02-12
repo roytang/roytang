@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Feb. 12, 2021, 7:29 p.m.](https://roytang.net/2021/02/1360189270577844230/): Drafting Kaldheim ep7 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim
+- [Feb. 12, 2021, 7:29 p.m.](https://roytang.net/2021/02/1360189270577844230/): Drafting Kaldheim ep7 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Ugh, I continued to be terrible
 - [Feb. 11, 2021, 5:01 p.m.](https://roytang.net/2021/02/1359789639494606848/): Goblin Snowman #sketchdaily 42/365
 - [Feb. 11, 2021, 3:03 p.m.](https://roytang.net/2021/02/1359759899765317636/): @SeresaTagAraw nagtratrabaho ka pa ba? lol
 - [Feb. 11, 2021, midnight](https://roytang.net/2021/02/1359532578227638275/): This is my new favorite #mtg Secret Lair. Also, Uro is getting banned via a secret lair announcement lol https://magic.wizards.com/en/articles/archive/news/announcing-secret-lairs-smitten-superdrop-2021-02-10
