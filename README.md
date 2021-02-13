@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 13, 2021, 7:17 p.m.](https://roytang.net/2021/02/1360548734229045255/): Back before the 2016 elections, somebody I used to know claimed that we needed a &quot;rottweiler&quot; like Duterte as president because he would be tough against China. I remember this sometimes and laugh and then am also sad Quoted momblogger&#x27;s tweet: This is an unhealthy kind of love ... Duterte says he &#x27;cannot afford to be brave in the mouth against China&#x27; https://www.rappler.com/nation/duterte-cannot-afford-be-brave-in-mouth-against-china
 - [Feb. 13, 2021, 3 p.m.](https://roytang.net/2021/02/f9e8b66a362f9a61612057f4db10b9cf/): After watching an episode of: Brooklyn 99: Oh, Netflix already queued up the next episode, might as well - WandaVision: I need to wait one more week to find out what happens?? - The Expanse: So many things happened, I need time to digest
 - [Feb. 12, 2021, 7:29 p.m.](https://roytang.net/2021/02/1360189270577844230/): Drafting Kaldheim ep7 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Ugh, I continued to be terrible I drafted two BW decks today, both performed terribly. Or I did, whatever. YT: https://www.youtube.com/watch?v=cXc-gyBtfvE
 - [Feb. 11, 2021, 5:01 p.m.](https://roytang.net/2021/02/1359789639494606848/): Goblin Snowman #sketchdaily 42/365
 - [Feb. 11, 2021, 3:03 p.m.](https://roytang.net/2021/02/1359759899765317636/): @SeresaTagAraw nagtratrabaho ka pa ba? lol
-- [Feb. 11, 2021, midnight](https://roytang.net/2021/02/1359532578227638275/): This is my new favorite #mtg Secret Lair. Also, Uro is getting banned via a secret lair announcement lol https://magic.wizards.com/en/articles/archive/news/announcing-secret-lairs-smitten-superdrop-2021-02-10
 
 [View all notes](https://roytang.net/notes)
 
