@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 14, 2021, 7:33 p.m.](https://roytang.net/2021/02/1360915041088757761/): cc: all those influencers/celebrities who have parties and make excuses that “we all got tested” Quoted DrEricDing&#x27;s tweet: “False sense of security”—high tech gathering of 49 tech thinkers was held in 4 day “bubble” without mask mandate after arrival+daily testing. Result? ~43% (21 of 49) of tech attendees got #COVID19 soon after, including organizer @PeterDiamandis. 0% of masked support staff. 🧵
 - [Feb. 13, 2021, 9:30 p.m.](https://roytang.net/2021/02/1360582155915591685/): Shields up! #sketchdaily 44/365
 - [Feb. 13, 2021, 9:17 p.m.](https://roytang.net/2021/02/1360578744553930753/): Punch! #sketchdaily 43/365
 - [Feb. 13, 2021, 7:17 p.m.](https://roytang.net/2021/02/1360548734229045255/): Back before the 2016 elections, somebody I used to know claimed that we needed a &quot;rottweiler&quot; like Duterte as president because he would be tough against China. I remember this sometimes and laugh and then am also sad Quoted momblogger&#x27;s tweet: This is an unhealthy kind of love ... Duterte says he &#x27;cannot afford to be brave in the mouth against China&#x27; https://www.rappler.com/nation/duterte-cannot-afford-be-brave-in-mouth-against-china
 - [Feb. 13, 2021, 3 p.m.](https://roytang.net/2021/02/f9e8b66a362f9a61612057f4db10b9cf/): After watching an episode of: Brooklyn 99: Oh, Netflix already queued up the next episode, might as well WandaVision: I need to wait one more week to find out what happens?? The Expanse: So many things happened, I need time to digest
-- [Feb. 12, 2021, 7:29 p.m.](https://roytang.net/2021/02/1360189270577844230/): Drafting Kaldheim ep7 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Ugh, I continued to be terrible I drafted two BW decks today, both performed terribly. Or I did, whatever. YT: https://www.youtube.com/watch?v=cXc-gyBtfvE
 
 [View all notes](https://roytang.net/notes)
 
