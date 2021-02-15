@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Digital Boardgames Review: Sentinels of the Multiverse](https://roytang.net/2021/02/sentinels-multiverse/)
 - [Weeknotes 2021-02-14](https://roytang.net/2021/02/weeknotes-2021-02-14/)
 - [Don&#x27;t Be Ashamed of Joy](https://roytang.net/2021/02/dont-be-ashamed-of-joy/)
 - [Decentralization](https://roytang.net/2021/02/decentralization/)
 - [Irregular Calendars](https://roytang.net/2021/02/irregular-calendars/)
-- [Newsletters, Redux](https://roytang.net/2021/02/newsletters-redux/)
 
 [View all posts](https://roytang.net/blog)
 
