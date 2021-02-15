@@ -27,7 +27,7 @@ Latest shared links:
 Latest notes:
 
 - [Feb. 15, 2021, 8:50 p.m.](https://roytang.net/2021/02/1361296867020038144/): Emu Knight (IDK where the guy&#x27;s lower body is) #sketchdaily 46/365
-- [Feb. 15, 2021, 7:14 p.m.](https://roytang.net/2021/02/1361272787231514627/): Drafting Kaldheim ep8 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim
+- [Feb. 15, 2021, 7:14 p.m.](https://roytang.net/2021/02/1361272787231514627/): Drafting Kaldheim ep8 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Ended up having to cut yesterday&#x27;s stream short because of technical issues. Draft deck felt decent, though the run started poorly. YT: https://www.youtube.com/watch?v=GKFafLV-pSw
 - [Feb. 14, 2021, 9:15 p.m.](https://roytang.net/2021/02/1360940607032594433/): Flying squirrel knight #sketchdaily 45/365
 - [Feb. 14, 2021, 7:33 p.m.](https://roytang.net/2021/02/1360915041088757761/): cc: all those influencers/celebrities who have parties and make excuses that “we all got tested” Quoted DrEricDing&#x27;s tweet: “False sense of security”—high tech gathering of 49 tech thinkers was held in 4 day “bubble” without mask mandate after arrival+daily testing. Result? ~43% (21 of 49) of tech attendees got #COVID19 soon after, including organizer @PeterDiamandis. 0% of masked support staff. 🧵
 - [Feb. 13, 2021, 9:30 p.m.](https://roytang.net/2021/02/1360582155915591685/): Shields up! #sketchdaily 44/365
