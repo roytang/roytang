@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 17, 2021, 7:15 a.m.](https://roytang.net/2021/02/1361816433877917699/): Globe fiber&#x27;s been down in the house since yesterday afternoon. On the bright side, I managed to finish a book and a game yesterday. Reading and playing, not writing and making, unfortunately. It&#x27;s Ash Wednesday, so I guess it&#x27;s a bit of penitensya for me =/
 - [Feb. 16, 2021, 4:22 p.m.](https://roytang.net/2021/02/1361591861454852098/): @talk2GLOBE is there any fiber outage currently in tsora qc area?
 - [Feb. 16, 2021, 2:30 p.m.](https://roytang.net/2021/02/1361563612385398785/): I feel like I&#x27;ve seen this episode before Quoted ABSCBNNews&#x27;s tweet: BREAKING: Pwersahang inililikas ng Philippine Coast Guard ang mga nasa Taal Volcano Island sa utos ng Batangas PDRRMO dahil sa pag-aalburuto ng bulkan. | via @Dennis_Datu #TaalVolcano
 - [Feb. 15, 2021, 8:50 p.m.](https://roytang.net/2021/02/1361296867020038144/): Emu Knight (IDK where the guy&#x27;s lower body is) #sketchdaily 46/365
 - [Feb. 15, 2021, 7:14 p.m.](https://roytang.net/2021/02/1361272787231514627/): Drafting Kaldheim ep8 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Ended up having to cut yesterday&#x27;s stream short because of technical issues. Draft deck felt decent, though the run started poorly. YT: https://www.youtube.com/watch?v=GKFafLV-pSw
-- [Feb. 14, 2021, 9:15 p.m.](https://roytang.net/2021/02/1360940607032594433/): Flying squirrel knight #sketchdaily 45/365
 
 [View all notes](https://roytang.net/notes)
 
