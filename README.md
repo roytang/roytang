@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The web didn&#x27;t change; you did](https://roytang.net/2021/02/the-web-didnt-change-you-did/)
 - [General Unstructured Thoughts On “Being Cancelled”](https://roytang.net/2021/02/general-unstructured-thoughts-on-being-cancelled/)
 - [Why Generation X will save the web](https://roytang.net/2021/02/why-generation-x-will-save-the-web/)
 - [Grow the IndieWeb with Webmentions](https://roytang.net/2021/01/grow-the-indieweb-with-webmentions/)
 - [20 Lessons from 5 years of developing Academia: School Simulator](https://roytang.net/2021/01/20-lessons-from-5-years-of-developing-academia-school-simulator/)
-- [So you&#x27;ve made a mistake and it&#x27;s public...](https://roytang.net/2021/01/so-youve-made-a-mistake-and-its-public/)
 
 [View all links](https://roytang.net/links)
 
