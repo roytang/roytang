@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 18, 2021, 5:16 p.m.](https://roytang.net/2021/02/1362330261174689793/): Probably too optimistic, but maybe this well help governments realize their platforms for information delivery shouldnt center around private social media platforms. Quoted ZaidJilani&#x27;s tweet: Just a private company, controlling chokepoints of vital information and shutting them down when they&#x27;re trying to intimidate a country&#x27;s government.
 - [Feb. 18, 2021, 5:07 p.m.](https://roytang.net/2021/02/1362327948783575041/): ATTACK AND DETHRONE CAPITALISM Quoted westonpagano&#x27;s tweet: let’s check in on how America/capitalism is handling the latest crisis
 - [Feb. 18, 2021, 4:58 p.m.](https://roytang.net/2021/02/1362325561754808322/): @ChelDiokno Sir, hindi po ba pwedeng kasuhan ng cyberlibel ang mga ganyan
 - [Feb. 18, 2021, 8:37 a.m.](https://roytang.net/2021/02/1362199481677086731/): Off roading #sketchdaily 48/365
 - [Feb. 18, 2021, 8:36 a.m.](https://roytang.net/2021/02/1362199362126843904/): Clandestine meeting #sketchdaily 47/365
-- [Feb. 18, 2021, 7:57 a.m.](https://roytang.net/2021/02/1362189435815698433/): Our internet service has thankfully been restored, now I no longer have any excuse for not being productive. I am once again living in a society
 
 [View all notes](https://roytang.net/notes)
 
