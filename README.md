@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Feb. 18, 2021, 6:48 p.m.](https://roytang.net/2021/02/1362353266387021827/): Drafting Kaldheim ep9 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim
+- [Feb. 18, 2021, 6:48 p.m.](https://roytang.net/2021/02/1362353266387021827/): Drafting Kaldheim ep9 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Looks like my internet isn&#x27;t very good for streaming tonight though =/
 - [Feb. 18, 2021, 5:16 p.m.](https://roytang.net/2021/02/1362330261174689793/): Probably too optimistic, but maybe this well help governments realize their platforms for information delivery shouldnt center around private social media platforms. Quoted ZaidJilani&#x27;s tweet: Just a private company, controlling chokepoints of vital information and shutting them down when they&#x27;re trying to intimidate a country&#x27;s government.
 - [Feb. 18, 2021, 5:07 p.m.](https://roytang.net/2021/02/1362327948783575041/): ATTACK AND DETHRONE CAPITALISM Quoted westonpagano&#x27;s tweet: let’s check in on how America/capitalism is handling the latest crisis
 - [Feb. 18, 2021, 4:58 p.m.](https://roytang.net/2021/02/1362325561754808322/): @ChelDiokno Sir, hindi po ba pwedeng kasuhan ng cyberlibel ang mga ganyan
