@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 20, 2021, 9:21 a.m.](https://roytang.net/2021/02/1362935326239465472/): @art_abon the only surviving humans are the descendants of the first Mars colonists. Their only government: The SpaceX board of directors
 - [Feb. 19, 2021, 11:18 p.m.](https://roytang.net/2021/02/1362783672357724161/): The year is 2398. Earth is no longer habitable, the surviving humans have migrated to space colonies. The entire Earth has been converted into a supercluster of quantum computers with one purpose: to mine bitcoin
 - [Feb. 19, 2021, 8:31 p.m.](https://roytang.net/2021/02/1362741510282747906/): @talk2GLOBE please reply to my PM
 - [Feb. 19, 2021, 6:34 p.m.](https://roytang.net/2021/02/1362712229636898817/): Friday night Kaldheim sealed! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim I played two sealed pools today, both felt decent but didn&#x27;t do so well, mostly because of my own bad plays =/ YT: https://www.youtube.com/watch?v=0pSfh3h058A
 - [Feb. 18, 2021, 9:39 p.m.](https://roytang.net/2021/02/1362396228122677248/): Dragonfly knights #sketchdaily 49/365
-- [Feb. 18, 2021, 6:48 p.m.](https://roytang.net/2021/02/1362353266387021827/): Drafting Kaldheim ep9 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #kaldheim Looks like my internet isn&#x27;t very good for streaming tonight though =/ Managed to play 2 drafts, but both had terrible outcomes. I did take local recordings, but I&#x27;m not gonna bother uploading lol
 
 [View all notes](https://roytang.net/notes)
 
