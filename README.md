@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 21, 2021, 3:15 p.m.](https://roytang.net/2021/02/1363386731240726533/): To finish my run at #Kaldheim limited, I decided to yolo some gems away at the Sealed Arena Open! Here&#x27;s the video: https://www.youtube.com/watch?v=Qyjl8Rzdga4 Sealed deck (image attached as well): https://sealeddeck.tech/qKZoD5KeXM Kaldheim limited playlist: https://www.youtube.com/playlist?list=PLmU0vkKslGXgza5YFq3PfZZGHwyRIYYU- #mtg #magicarena
 - [Feb. 20, 2021, 8:18 p.m.](https://roytang.net/2021/02/1363100652730085378/): Woman #sketchdaily 51/365
 - [Feb. 20, 2021, 8:17 p.m.](https://roytang.net/2021/02/1363100526896906242/): Big blue #sketchdaily 50/365
 - [Feb. 20, 2021, 3:24 p.m.](https://roytang.net/2021/02/1363026665819938819/): I did a couple of #kaldheim sealed events again to practice for the open. I felt like the pools were good, but I had so many misplays, I only finished 2-3 and 3-3. Here&#x27;s hoping I perform better tomorrow #mtg #magicarena
 - [Feb. 20, 2021, 9:21 a.m.](https://roytang.net/2021/02/1362935326239465472/): @art_abon the only surviving humans are the descendants of the first Mars colonists. Their only government: The SpaceX board of directors
-- [Feb. 19, 2021, 11:18 p.m.](https://roytang.net/2021/02/1362783672357724161/): The year is 2398. Earth is no longer habitable, the surviving humans have migrated to space colonies. The entire Earth has been converted into a supercluster of quantum computers with one purpose: to mine bitcoin
 
 [View all notes](https://roytang.net/notes)
 
