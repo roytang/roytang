@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Digital Boardgames Review: Scythe](https://roytang.net/2021/02/scythe/)
 - [Weeknotes 2021-02-21](https://roytang.net/2021/02/weeknotes-2021-02-21/)
 - [Book Review: Walkaway by Cory Doctorow](https://roytang.net/2021/02/walkaway/)
 - [Digital Boardgames Review: Sentinels of the Multiverse](https://roytang.net/2021/02/sentinels-multiverse/)
 - [Weeknotes 2021-02-14](https://roytang.net/2021/02/weeknotes-2021-02-14/)
-- [Don&#x27;t Be Ashamed of Joy](https://roytang.net/2021/02/dont-be-ashamed-of-joy/)
 
 [View all posts](https://roytang.net/blog)
 
