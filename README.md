@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 23, 2021, 3:49 a.m.](https://roytang.net/2021/02/1363939008481353729/): TIL that opossums are not the same as possums #sketchdaily 53/365
 - [Feb. 22, 2021, 7:07 p.m.](https://roytang.net/2021/02/5d9c9ac4060b440cdd16fcf15bf78000/): Sometimes I find some long ago note or tweet that I wrote implying something bad or disappointing happened and I have no other notes or any idea what happened on that date, a mystery forever lost to time, but also a reminder that THIS TOO SHALL PASS always applies
 - [Feb. 22, 2021, 4:19 p.m.](https://roytang.net/2021/02/1363765401742569474/): Time to (re)mix it up! This pixel perfect adventure is one you don’t want to miss. Your browser does not support the video tag.
 - [Feb. 22, 2021, 3:09 p.m.](https://roytang.net/2021/02/1363747640391860225/): For some reason, I watched Space Sweepers, a Korean sci-fi movie on Netflix. Fun ride, fairly entertaining, pretty good setpieces and special effects. (They are so far ahead of the local film industry.) Plot a bit predictable. Villain made no sense.
 - [Feb. 21, 2021, 5:12 p.m.](https://roytang.net/2021/02/1363416285535604741/): Liliana of the dark #sketchdaily 52/365. Probably wasnt the best idea to try this with black and blue pens
-- [Feb. 21, 2021, 3:15 p.m.](https://roytang.net/2021/02/1363386731240726533/): To finish my run at #Kaldheim limited, I decided to yolo some gems away at the Sealed Arena Open! Here&#x27;s the video: https://www.youtube.com/watch?v=Qyjl8Rzdga4 Sealed deck (image attached as well): https://sealeddeck.tech/qKZoD5KeXM Kaldheim limited playlist: https://www.youtube.com/playlist?list=PLmU0vkKslGXgza5YFq3PfZZGHwyRIYYU- #mtg #magicarena
 
 [View all notes](https://roytang.net/notes)
 
