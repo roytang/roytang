@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Feb. 23, 2021, 6:56 p.m.](https://roytang.net/2021/02/512f30a007215436724cc156c524ff00/): &quot;Let everything happen to you: beauty and terror. Just keep going. No feeling is final.&quot; -Rainer Maria Rilke, &quot;Go to the Limits of Your Longing&quot;
+- [Feb. 23, 2021, 10:56 a.m.](https://roytang.net/2021/02/512f30a007215436724cc156c524ff00/): &quot;Let everything happen to you: beauty and terror. Just keep going. No feeling is final.&quot; -Rainer Maria Rilke, &quot;Go to the Limits of Your Longing&quot;
 - [Feb. 23, 2021, 3:49 a.m.](https://roytang.net/2021/02/1363939008481353729/): TIL that opossums are not the same as possums #sketchdaily 53/365
 - [Feb. 22, 2021, 7:07 p.m.](https://roytang.net/2021/02/5d9c9ac4060b440cdd16fcf15bf78000/): Sometimes I find some long ago note or tweet that I wrote implying something bad or disappointing happened and I have no other notes or any idea what happened on that date, a mystery forever lost to time, but also a reminder that THIS TOO SHALL PASS always applies
 - [Feb. 22, 2021, 4:19 p.m.](https://roytang.net/2021/02/1363765401742569474/): Time to (re)mix it up! This pixel perfect adventure is one you don’t want to miss. Your browser does not support the video tag.
