@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 24, 2021, 9:58 p.m.](https://roytang.net/2021/02/gokyy83/): Wait, so having the icon is good, right? I checked just now and I do have it.
 - [Feb. 24, 2021, 9:42 p.m.](https://roytang.net/2021/02/1364571440150839303/): Penguins! Wait what? (Remix) #sketchdaily 55/365 This one is a digital redraw of one I did back in 2016.
 - [Feb. 24, 2021, 6 a.m.](https://roytang.net/2021/02/lquag0/): Posted on r/StreetFighter: SF5 - is it expected to be so hard to find a match? Filthy casual here. I haven&#x27;t booted up the game in a while, I play on Steam (though I also have the PS4 copy... somewhere). Tried to find a match (ranked) last night, around 10pm. My settings are connection 4-5, platform any. Waited for 10 mins, couldn&#x27;t find a match. Not sure if it&#x27;s because I&#x27;m low ranked (ultra bronze i think) while everyone&#x27;s already silver and up or something? Or are there so few people playing nowadays that it&#x27;s difficult to find matches. Or
 - [Feb. 23, 2021, 8:04 p.m.](https://roytang.net/2021/02/1364184462137847809/): Some kind of moose #sketchdaily 54/365
 - [Feb. 23, 2021, 6:01 p.m.](https://roytang.net/2021/02/1364153348023226368/): I think #MagicArena should have a random deck mode. You queue up, you get paired, it chooses one of the decks in your collection at random (any format), you don&#x27;t know which until your mulligan decision. (People with &lt; 10 decks get starter decks added to their pool)
-- [Feb. 23, 2021, 10:56 a.m.](https://roytang.net/2021/02/512f30a007215436724cc156c524ff00/): &quot;Let everything happen to you: beauty and terror. Just keep going. No feeling is final.&quot; -Rainer Maria Rilke, &quot;Go to the Limits of Your Longing&quot;
 
 [View all notes](https://roytang.net/notes)
 
