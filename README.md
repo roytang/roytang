@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 26, 2021, 8:22 p.m.](https://roytang.net/2021/02/1365276093977038852/): &quot;What is grief if not love preserving&quot;
 - [Feb. 25, 2021, 11:28 p.m.](https://roytang.net/2021/02/1364960546588676106/): Dogs on a sled #sketchdaily 56/365
 - [Feb. 25, 2021, 6:38 p.m.](https://roytang.net/2021/02/1364887445842485253/): Disappointed that they didn&#x27;t go with my suggestion of &quot;Spider-man: Home Along Da Riles&quot; Quoted verge&#x27;s tweet: The next Spider-Man movie will be titled Spider-Man: No Way Home https://trib.al/EwukXbI
 - [Feb. 25, 2021, 5:37 p.m.](https://roytang.net/2021/02/1364872141993222144/): @MarnelEstrada data privacy e. wut
 - [Feb. 25, 2021, 5:08 p.m.](https://roytang.net/2021/02/1364864803529846784/): Meanwhile, somewhere in Quezon City...
-- [Feb. 25, 2021, 10:06 a.m.](https://roytang.net/2021/02/1364758520885772288/): Action Comics #1 (1938) / Superman and Lois S01E01 (2021) #comicbooks #comics
 
 [View all notes](https://roytang.net/notes)
 
