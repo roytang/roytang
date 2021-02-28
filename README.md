@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 28, 2021, 11:44 p.m.](https://roytang.net/2021/02/1366051729058402306/): Dhalism #sketchdaily 59/365
+- [Feb. 28, 2021, 11:44 p.m.](https://roytang.net/2021/02/1366051629745676289/): Some kind of berry #sketchdaily 58/365
 - [Feb. 28, 2021, 6:17 p.m.](https://roytang.net/2021/02/1365969286905298952/): @EashanKotha
 - [Feb. 27, 2021, 12:39 p.m.](https://roytang.net/2021/02/1365521974533914624/): Waiting outside the doctor’s clinic #sketchdaily 57/365
 - [Feb. 26, 2021, 8:22 p.m.](https://roytang.net/2021/02/1365276093977038852/): &quot;What is grief if not love preserving&quot;
-- [Feb. 25, 2021, 11:28 p.m.](https://roytang.net/2021/02/1364960546588676106/): Dogs on a sled #sketchdaily 56/365
-- [Feb. 25, 2021, 6:38 p.m.](https://roytang.net/2021/02/1364887445842485253/): Disappointed that they didn&#x27;t go with my suggestion of &quot;Spider-man: Home Along Da Riles&quot; Quoted verge&#x27;s tweet: The next Spider-Man movie will be titled Spider-Man: No Way Home https://trib.al/EwukXbI
 
 [View all notes](https://roytang.net/notes)
 
