@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 1, 2021, 1:42 p.m.](https://roytang.net/2021/03/lv1ajp/): 
 - [Feb. 28, 2021, 11:44 p.m.](https://roytang.net/2021/02/1366051729058402306/): Dhalism #sketchdaily 59/365 Ugh, *Dhalsim
 - [Feb. 28, 2021, 11:44 p.m.](https://roytang.net/2021/02/1366051629745676289/): Some kind of berry #sketchdaily 58/365
 - [Feb. 28, 2021, 6:17 p.m.](https://roytang.net/2021/02/1365969286905298952/): @EashanKotha
 - [Feb. 27, 2021, 12:39 p.m.](https://roytang.net/2021/02/1365521974533914624/): Waiting outside the doctor’s clinic #sketchdaily 57/365
-- [Feb. 26, 2021, 8:22 p.m.](https://roytang.net/2021/02/1365276093977038852/): &quot;What is grief if not love preserving&quot;
 
 [View all notes](https://roytang.net/notes)
 
