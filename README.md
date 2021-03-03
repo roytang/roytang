@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 3, 2021, 11:22 a.m.](https://roytang.net/2021/03/1366952145623281670/): I&#x27;m torn, because I know I&#x27;m supposed to get the second vaccine shot, but I&#x27;m also supposed to avoid sequel injection
 - [March 2, 2021, 10:25 p.m.](https://roytang.net/2021/03/1366756482553843719/): THREAD: Lots of us learned classical music from watching old cartoons, so I’m going to identify the pieces that frequently popped up. One of the most recognizable is Franz Liszt’s “Hungarian Rhapsody No. 2,” performed by those great piano virtuosos Bugs Bunny and Tom &amp; Jerry. Your browser does not support the video tag.
 - [March 2, 2021, 9:40 p.m.](https://roytang.net/2021/03/1366745272647225345/): Cow. #sketchdaily 61/365
 - [March 1, 2021, 10:49 p.m.](https://roytang.net/2021/03/1366400219231842308/): Montblanc #sketchdaily 60/365
 - [March 1, 2021, 7:26 p.m.](https://roytang.net/2021/03/1366349139559129088/): I haven’t been to the QC circle in a year! Quoted desamting&#x27;s tweet: We&#x27;re approaching the anniversary of the COVID-19 lockdown. -_- Show me your last photos outside before you went into the bunker. Last call on the night they announced the lockdown https://twitter.com/NoOneDelaCruz/status/1366266878444756995
-- [Feb. 28, 2021, 11:44 p.m.](https://roytang.net/2021/02/1366051729058402306/): Dhalism #sketchdaily 59/365 Ugh, *Dhalsim
 
 [View all notes](https://roytang.net/notes)
 
