@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 6, 2021, 10:54 p.m.](https://roytang.net/2021/03/1368213410534465537/): IDK some kinda castle #sketchdaily 64/365
 - [March 5, 2021, 9:59 p.m.](https://roytang.net/2021/03/wandavision/): #WandaVision spoiler-free review: Overall, I really liked it, and I think they did well with the one-episode-per-week format. The show certainly would not have been this hyped if it all came in one drop Really difficult to not spoil. If you have somehow avoid being spoiled by the internet until it all dropped, good for you! A very emotional story of Wanda dealing with the aftermath of Infinity War/Endgame good usage of the sitcom tropes fantastic performance by Elisabeth Olsen lots of fan service for comic book fans to dig into. Maybe too much even; don&#x27;t overthink or overhype it
 - [March 5, 2021, 7:47 p.m.](https://roytang.net/2021/03/1367804028604674052/): &quot;We have said goodbye before, so it stands to reason...&quot; &quot;...we&#x27;ll say hello again.&quot;
 - [March 4, 2021, 8:53 p.m.](https://roytang.net/2021/03/1367458289546526726/): Mailbox. #sketchdaily 63/365
 - [March 4, 2021, 9:29 a.m.](https://roytang.net/2021/03/1367286107361054724/): Ladies and gentlemen……..”What if Wes Anderson directed X-Men?” https://www.youtube.com/watch?v=UngE0qn3VRY
-- [March 4, 2021, 7:42 a.m.](https://roytang.net/2021/03/gplein5/): Ugh, my bad. I posted the Feb 28th drawing into the Feb 27th thread instead. Thanks for checking, have reposted it into the correct thread!
 
 [View all notes](https://roytang.net/notes)
 
