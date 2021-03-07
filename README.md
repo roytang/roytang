@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 7, 2021, 11:46 p.m.](https://roytang.net/2021/03/1368588830589128708/): Prinny! #sketchdaily 66/365
 - [March 7, 2021, 1:37 p.m.](https://roytang.net/2021/03/1368435737884909568/): [Team Camote] - StarCraft 2 Showmatch - hungryroy (me) vs tzia_n #starcraft2 #gaming https://www.youtube.com/watch?v=1bINjaPjt1M The rest of our games are in this youtube playlist: https://www.youtube.com/playlist?list=PL5c1J8DcHGjdzou13Vcn9eydWENvFb652
 - [March 7, 2021, 1:11 a.m.](https://roytang.net/2021/03/1368247995003670528/): Duckling. 65/365 #sketchdaily
 - [March 6, 2021, 10:54 p.m.](https://roytang.net/2021/03/1368213410534465537/): IDK some kinda castle #sketchdaily 64/365
 - [March 5, 2021, 9:59 p.m.](https://roytang.net/2021/03/wandavision/): #WandaVision spoiler-free review: Overall, I really liked it, and I think they did well with the one-episode-per-week format. The show certainly would not have been this hyped if it all came in one drop Really difficult to not spoil. If you have somehow avoid being spoiled by the internet until it all dropped, good for you! A very emotional story of Wanda dealing with the aftermath of Infinity War/Endgame good usage of the sitcom tropes fantastic performance by Elisabeth Olsen lots of fan service for comic book fans to dig into. Maybe too much even; don&#x27;t overthink or overhype it
-- [March 5, 2021, 7:47 p.m.](https://roytang.net/2021/03/1367804028604674052/): &quot;We have said goodbye before, so it stands to reason...&quot; &quot;...we&#x27;ll say hello again.&quot;
 
 [View all notes](https://roytang.net/notes)
 
