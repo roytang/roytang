@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 8, 2021, 8:53 p.m.](https://roytang.net/2021/03/1368907669755490306/): Johnny-5 is alive? #sketchdaily 67/365
 - [March 8, 2021, 6:54 p.m.](https://roytang.net/2021/03/1368877891543564289/): Quoted ANCALERTS&#x27;s tweet: As pandemic lockdown nears one year, Malacañang says: &#x27;We were excellent&#x27; #COVID19Quarantine https://news.abs-cbn.com/news/03/08/21/as-pandemic-lockdown-nears-one-year-malacaang-says-we-were-excellent
 - [March 8, 2021, 4:19 p.m.](https://roytang.net/2021/03/1368838880833630208/): Quantic gamer profile survey: https://apps.quanticfoundry.com/surveys/start/gamerprofile/ Not sure I&#x27;d agree with the &quot;acrobat&quot; part
 - [March 7, 2021, 11:46 p.m.](https://roytang.net/2021/03/1368588830589128708/): Prinny! #sketchdaily 66/365
 - [March 7, 2021, 1:37 p.m.](https://roytang.net/2021/03/1368435737884909568/): [Team Camote] - StarCraft 2 Showmatch - hungryroy (me) vs tzia_n #starcraft2 #gaming https://www.youtube.com/watch?v=1bINjaPjt1M The rest of our games are in this youtube playlist: https://www.youtube.com/playlist?list=PL5c1J8DcHGjdzou13Vcn9eydWENvFb652
-- [March 7, 2021, 1:11 a.m.](https://roytang.net/2021/03/1368247995003670528/): Duckling. 65/365 #sketchdaily
 
 [View all notes](https://roytang.net/notes)
 
