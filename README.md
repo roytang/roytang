@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 10, 2021, 4:04 p.m.](https://roytang.net/2021/03/951fcfe07a7cbb8d04ee6dd219c181fb/): Is there any good privacy respecting recaptcha alternative?
 - [March 10, 2021, 3:40 p.m.](https://roytang.net/2021/03/2b14f8356f57460da0a4790b27b44b8a/): Haven&#x27;t seen any of the pre-Brosnan Bond films, so I started today with Dr No (1962). Pretty good, but if this were a modern film, I&#x27;d have expected some kind of plot twist with Honey Rider, like maybe she would have turned out to be the actual Dr No
 - [March 9, 2021, 8:28 p.m.](https://roytang.net/2021/03/1369263851393409027/): Some kind of kangaroo #sketchdaily 68/365
 - [March 8, 2021, 8:53 p.m.](https://roytang.net/2021/03/1368907669755490306/): Johnny-5 is alive? #sketchdaily 67/365
 - [March 8, 2021, 6:54 p.m.](https://roytang.net/2021/03/1368877891543564289/): Quoted ANCALERTS&#x27;s tweet: As pandemic lockdown nears one year, Malacañang says: &#x27;We were excellent&#x27; #COVID19Quarantine https://news.abs-cbn.com/news/03/08/21/as-pandemic-lockdown-nears-one-year-malacaang-says-we-were-excellent
-- [March 8, 2021, 4:19 p.m.](https://roytang.net/2021/03/1368838880833630208/): Quantic gamer profile survey: https://apps.quanticfoundry.com/surveys/start/gamerprofile/ Not sure I&#x27;d agree with the &quot;acrobat&quot; part
 
 [View all notes](https://roytang.net/notes)
 
