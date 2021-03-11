@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 11, 2021, 5:14 p.m.](https://roytang.net/2021/03/096b7c67797c165b01283d0c7cd6c016/): James Bond movie no. 2: To Russia With Love (1963). This one actually had more bits that felt like actual espionage. And Bond didn&#x27;t need to get captured this time!
 - [March 10, 2021, 9:20 p.m.](https://roytang.net/2021/03/gqfxqv1/): They should release the 3 Kaldra equipment into historic one at a time, one every three years or so
 - [March 10, 2021, 9:14 p.m.](https://roytang.net/2021/03/1369637833011437572/): Fighting off zombies #sketchdaily 69/365
 - [March 10, 2021, 4:04 p.m.](https://roytang.net/2021/03/951fcfe07a7cbb8d04ee6dd219c181fb/): Is there any good privacy respecting recaptcha alternative?
 - [March 10, 2021, 3:40 p.m.](https://roytang.net/2021/03/2b14f8356f57460da0a4790b27b44b8a/): Haven&#x27;t seen any of the pre-Brosnan Bond films, so I started today with Dr No (1962). Pretty good, but if this were a modern film, I&#x27;d have expected some kind of plot twist with Honey Rider, like maybe she would have turned out to be the actual Dr No
-- [March 9, 2021, 8:28 p.m.](https://roytang.net/2021/03/1369263851393409027/): Some kind of kangaroo #sketchdaily 68/365
 
 [View all notes](https://roytang.net/notes)
 
