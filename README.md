@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 13, 2021, 10:07 p.m.](https://roytang.net/2021/03/1370738330615226368/): Sea turtle #sketchdaily 72/365
 - [March 13, 2021, 9:36 p.m.](https://roytang.net/2021/03/1370730440940605445/): Some kind of shot put? #sketchdaily 71/365
 - [March 12, 2021, 7:33 p.m.](https://roytang.net/2021/03/1370337073874411525/): Happy anniversary! #covid19
 - [March 12, 2021, 6:59 a.m.](https://roytang.net/2021/03/1370147506114289667/): A friend asked for help with her first year HS kid’s homework. Is it just me or is there at least 1-2 pieces of information missing here? (and also poor subject verb agreement, whatever)
 - [March 11, 2021, 10:07 p.m.](https://roytang.net/2021/03/1370013446775873540/): Bird of paradise #sketchdaily 70/365
-- [March 11, 2021, 7:29 p.m.](https://roytang.net/2021/03/1369973843050164226/): A bit worse off, since we didn&#x27;t have a pandemic in 1985 afaik. Quoted LaTtEX&#x27;s tweet: Massacres openly conducted by the police and military. Opposition figures in jail. A dying but belligerent despot. Deputies jockeying for power. A crashed economy. Infrastructure projects burying us in decades of debt. Aminin na natin Pilipinas, bumalik lang tayo sa 1985.
 
 [View all notes](https://roytang.net/notes)
 
