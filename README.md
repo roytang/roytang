@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Stop Keeping Score](https://roytang.net/2021/03/stop-keeping-score/)
 - [writings](https://roytang.net/2021/03/writings/)
 - [An opinionated list of best practices for textual websites](https://roytang.net/2021/03/an-opinionated-list-of-best-practices-for-textual-websites/)
 - [How I cut GTA Online loading times by 70%](https://roytang.net/2021/03/how-i-cut-gta-online-loading-times-by-70/)
 - [The Big List of Personal Websites](https://roytang.net/2021/02/the-big-list-of-personal-websites/)
-- [The web didn&#x27;t change; you did](https://roytang.net/2021/02/the-web-didnt-change-you-did/)
 
 [View all links](https://roytang.net/links)
 
