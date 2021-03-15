@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 15, 2021, 4:29 p.m.](https://roytang.net/2021/03/1371377955478245376/): Samurai pizza cat #sketchdaily 73/365
 - [March 14, 2021, 1:50 p.m.](https://roytang.net/2021/03/1370975568712269828/): I did this series of tests on https://humanbenchmark.com/ and it basically confirms why I am so bad at twitchy games.
 - [March 13, 2021, 10:07 p.m.](https://roytang.net/2021/03/1370738330615226368/): Sea turtle #sketchdaily 72/365
 - [March 13, 2021, 9:36 p.m.](https://roytang.net/2021/03/1370730440940605445/): Some kind of shot put? #sketchdaily 71/365
 - [March 12, 2021, 7:33 p.m.](https://roytang.net/2021/03/1370337073874411525/): Happy anniversary! #covid19
-- [March 12, 2021, 6:59 a.m.](https://roytang.net/2021/03/1370147506114289667/): A friend asked for help with her first year HS kid’s homework. Is it just me or is there at least 1-2 pieces of information missing here? (and also poor subject verb agreement, whatever)
 
 [View all notes](https://roytang.net/notes)
 
