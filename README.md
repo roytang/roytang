@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 16, 2021, 9:58 p.m.](https://roytang.net/2021/03/1371823072148299780/): Air guitar #sketchdaily 75/365
 - [March 16, 2021, 1:34 p.m.](https://roytang.net/2021/03/4d1fb5fa3502d4df0ff4f70f9891a7c3/): I changed my Windows color preferences to Light mode for like 10 minutes to test something and I was like &quot;How do people live like this?&quot;
 - [March 15, 2021, 11:11 p.m.](https://roytang.net/2021/03/1371479192315994122/): Bellowing elk #sketchdaily 74/365 Reference: https://gamepedia.cursecdn.com/mtgsalvation_gamepedia/6/63/Elk.jpg (original art Lucas Graciano)
 - [March 15, 2021, 5:54 p.m.](https://roytang.net/2021/03/273eae12d668c24135d4db358511c9d4/): Bond movie no. 3: Goldfinger (1964). Lot of the classic Bond tropes introduced. Bad guy&#x27;s plan was actually pretty good, even had the escape contingency. Disappointed he did not have an actual gold finger. Great fight between Bond and Oddjob.
 - [March 15, 2021, 4:29 p.m.](https://roytang.net/2021/03/1371377955478245376/): Samurai pizza cat #sketchdaily 73/365
-- [March 14, 2021, 1:50 p.m.](https://roytang.net/2021/03/1370975568712269828/): I did this series of tests on https://humanbenchmark.com/ and it basically confirms why I am so bad at twitchy games.
 
 [View all notes](https://roytang.net/notes)
 
