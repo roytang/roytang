@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 18, 2021, 12:27 a.m.](https://roytang.net/2021/03/1372223129209208838/): Star Trek episode where a magician named Robert Angier accidentally time travels to the Enterprise in the 23rd century. When Scotty explains the transporter to him, he weeps.
 - [March 17, 2021, 9:42 p.m.](https://roytang.net/2021/03/1372181649820053514/): Chili peppers #sketchdaily 76/365
 - [March 16, 2021, 10:28 p.m.](https://roytang.net/2021/03/gr4j6py/): Oh wow, when people joke about not having seen the homepage, I thought they meant the logged in home page with the Top Questions list. I really have never seen this before!
 - [March 16, 2021, 9:58 p.m.](https://roytang.net/2021/03/1371823072148299780/): Air guitar #sketchdaily 75/365
 - [March 16, 2021, 1:34 p.m.](https://roytang.net/2021/03/4d1fb5fa3502d4df0ff4f70f9891a7c3/): I changed my Windows color preferences to Light mode for like 10 minutes to test something and I was like &quot;How do people live like this?&quot;
-- [March 15, 2021, 11:11 p.m.](https://roytang.net/2021/03/1371479192315994122/): Bellowing elk #sketchdaily 74/365 Reference: https://gamepedia.cursecdn.com/mtgsalvation_gamepedia/6/63/Elk.jpg (original art Lucas Graciano)
 
 [View all notes](https://roytang.net/notes)
 
