@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 18, 2021, 9:32 p.m.](https://roytang.net/2021/03/1372541524437700614/): Yellow-billed stork #sketchdaily 77/365
 - [March 18, 2021, 4:43 p.m.](https://roytang.net/2021/03/1372468780039688193/): @paulcatiang might be a while before I consider the other books in the trilogy haha
 - [March 18, 2021, 10:54 a.m.](https://roytang.net/2021/03/1372380839728713730/): Huh, just found out someone with a nontrivial following on PH twitter has blocked me. Not anyone I know personally and not anyone I remember getting into any argument with, but still curious as I find myself largely inoffensive lol. Still, achievement unlocked I guess?
 - [March 18, 2021, 12:27 a.m.](https://roytang.net/2021/03/1372223129209208838/): Star Trek episode where a magician named Robert Angier accidentally time travels to the Enterprise in the 23rd century. When Scotty explains the transporter to him, he weeps.
 - [March 17, 2021, 9:42 p.m.](https://roytang.net/2021/03/1372181649820053514/): Chili peppers #sketchdaily 76/365
-- [March 16, 2021, 10:28 p.m.](https://roytang.net/2021/03/gr4j6py/): Oh wow, when people joke about not having seen the homepage, I thought they meant the logged in home page with the Top Questions list. I really have never seen this before!
 
 [View all notes](https://roytang.net/notes)
 
