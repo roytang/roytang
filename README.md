@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 19, 2021, 3:15 p.m.](https://roytang.net/2021/03/1372808885900222466/): Bond movie no. 4: Thunderball (1965). This is the first one I didn&#x27;t like very much. Too many boring/confusing underwater parts. There&#x27;s a jetpack! Wasn&#x27;t there an atomic bomb aboard that boat when it exploded? And did they just leave the guy who helped Domino escape floating alone in the ocean?
+- [March 19, 2021, 3:13 p.m.](https://roytang.net/2021/03/c6152994fa5ddf4b9c3302bcddfdd699/): Bond movie no. 4: Thunderball (1965). This is the first one I didn&#x27;t like very much. Too many boring/confusing underwater parts. There&#x27;s a jetpack! Wasn&#x27;t there an atomic bomb aboard that boat when it exploded? And did they just leave the guy who helped Domino escape floating alone in the ocean?
 - [March 18, 2021, 9:32 p.m.](https://roytang.net/2021/03/1372541524437700614/): Yellow-billed stork #sketchdaily 77/365
 - [March 18, 2021, 4:43 p.m.](https://roytang.net/2021/03/1372468780039688193/): @paulcatiang might be a while before I consider the other books in the trilogy haha
 - [March 18, 2021, 10:54 a.m.](https://roytang.net/2021/03/1372380839728713730/): Huh, just found out someone with a nontrivial following on PH twitter has blocked me. Not anyone I know personally and not anyone I remember getting into any argument with, but still curious as I find myself largely inoffensive lol. Still, achievement unlocked I guess?
-- [March 18, 2021, 12:27 a.m.](https://roytang.net/2021/03/1372223129209208838/): Star Trek episode where a magician named Robert Angier accidentally time travels to the Enterprise in the 23rd century. When Scotty explains the transporter to him, he weeps.
-- [March 17, 2021, 9:42 p.m.](https://roytang.net/2021/03/1372181649820053514/): Chili peppers #sketchdaily 76/365
 
 [View all notes](https://roytang.net/notes)
 
