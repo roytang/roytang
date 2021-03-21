@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-03-21](https://roytang.net/2021/03/weeknotes-2021-03-21/)
 - [2021 Site Update](https://roytang.net/2021/03/2021-site-update/)
 - [Book Review: Neuromancer by William Gibson](https://roytang.net/2021/03/neuromancer/)
 - [Alignment Shift: No Longer Lawful](https://roytang.net/2021/03/no-longer-lawful/)
 - [Weeknotes 2021-03-14](https://roytang.net/2021/03/weeknotes-2021-03-14/)
-- [Digital Boardgames Review: Blood Rage](https://roytang.net/2021/03/blood-rage/)
 
 [View all posts](https://roytang.net/blog)
 
