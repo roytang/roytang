@@ -34,6 +34,16 @@ Latest notes:
 
 [View all notes](https://roytang.net/notes)
 
+Latest sketches:
+
+
+- ![](https://roytang.net/media/content/photos/2021/03/1371479192315994122/1_1371479192315994122_Ewh5DOyVkAAI_vV.jpg)
+- ![](https://roytang.net/media/content/photos/2021/03/1371823072148299780/1_1371823072148299780_EwmxzzwVgAYNhzu.jpg)
+- ![](https://roytang.net/media/content/photos/2021/03/1372181649820053514/1_1372181649820053514_Ewr372lU8AIidrD.jpg)
+
+[View sketchbook](https://roytang.net/albums/sketchbook)
+
+
 Elsewhere:
 
 - [Twitter](https://twitter.com/roytang)
