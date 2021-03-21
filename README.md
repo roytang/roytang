@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 21, 2021, 2:17 p.m.](https://roytang.net/2021/03/1373518994993336320/): Snow ritual #sketchdaily 79/365
 - [March 19, 2021, 11:02 p.m.](https://roytang.net/2021/03/1372926424533794822/): Amazon #sketchdaily 78/365
 - [March 19, 2021, 3:13 p.m.](https://roytang.net/2021/03/c6152994fa5ddf4b9c3302bcddfdd699/): Bond movie no. 4: Thunderball (1965). This is the first one I didn&#x27;t like very much. Too many boring/confusing underwater parts. There&#x27;s a jetpack! Wasn&#x27;t there an atomic bomb aboard that boat when it exploded? And did they just leave the guy who helped Domino escape floating alone in the ocean?
 - [March 18, 2021, 9:32 p.m.](https://roytang.net/2021/03/1372541524437700614/): Yellow-billed stork #sketchdaily 77/365
 - [March 18, 2021, 4:43 p.m.](https://roytang.net/2021/03/1372468780039688193/): @paulcatiang might be a while before I consider the other books in the trilogy haha
-- [March 18, 2021, 10:54 a.m.](https://roytang.net/2021/03/1372380839728713730/): Huh, just found out someone with a nontrivial following on PH twitter has blocked me. Not anyone I know personally and not anyone I remember getting into any argument with, but still curious as I find myself largely inoffensive lol. Still, achievement unlocked I guess?
 
 [View all notes](https://roytang.net/notes)
 
