@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [March 22, 2021, 8:32 p.m.](https://roytang.net/2021/03/1373975944654770179/): Doctor Octopus enjoys some takoyaki #sketchdaily 80/365
 - [March 22, 2021, 5:36 p.m.](https://roytang.net/2021/03/1373931556079759363/): @paulcatiang @miithinks https://www.philstar.com/headlines/2021/03/22/2086189/ncr-plus-messaging-unclear-pnp-says-tourism-allowed-palace-says-stay-home
 - [March 22, 2021, 3:12 p.m.](https://roytang.net/2021/03/1373895279812911104/): @paulcatiang Wait so there&#x27;s no free movement even within the &quot;bubble&quot;?
 - [March 21, 2021, 9:51 p.m.](https://roytang.net/2021/03/1373633368936620036/): now that people know who both thanos and darkseid are, it’s time to bring back the greatest parody comic of all time
 - [March 21, 2021, 5:10 p.m.](https://roytang.net/2021/03/1373562580375986178/): PH quarantine levels: Extremely Confusing Quarantine Generally Confusing Quarantine Medyo Generally Confusing Quarantine Medyo Generally Confusing Quarantine ver 1.1.1.1 FINAL FINAL NA TALAGA
-- [March 21, 2021, 2:56 p.m.](https://roytang.net/2021/03/1373528862726885377/): I&#x27;ve got to get better at marking funny things I read on Twitter so I can reference them later
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/30/b3/30b3a58673ee70471070b76c2c5993db.jpg)
 - ![](https://roytang.net/media/cache/8a/73/8a73ee2d47bf9ae4b62869f562ed8428.jpg)
 - ![](https://roytang.net/media/cache/cb/ad/cbad0150999831a85e28a87b2893bbd8.jpg)
+- ![](https://roytang.net/media/cache/5e/40/5e40fa638947882af38ec3e31d82bca4.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
