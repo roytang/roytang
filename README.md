@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 23, 2021, 12:13 p.m.](https://roytang.net/2021/03/1374212757189369861/): 800! #duolingo
 - [March 22, 2021, 10:26 p.m.](https://roytang.net/2021/03/1374004519529422851/): Wolverine in sheep’s clothing #sketchdaily 81/365
 - [March 22, 2021, 8:32 p.m.](https://roytang.net/2021/03/1373975944654770179/): Doctor Octopus enjoys some takoyaki #sketchdaily 80/365
 - [March 22, 2021, 5:36 p.m.](https://roytang.net/2021/03/1373931556079759363/): @paulcatiang @miithinks https://www.philstar.com/headlines/2021/03/22/2086189/ncr-plus-messaging-unclear-pnp-says-tourism-allowed-palace-says-stay-home
 - [March 22, 2021, 3:12 p.m.](https://roytang.net/2021/03/1373895279812911104/): @paulcatiang Wait so there&#x27;s no free movement even within the &quot;bubble&quot;?
-- [March 21, 2021, 9:51 p.m.](https://roytang.net/2021/03/1373633368936620036/): now that people know who both thanos and darkseid are, it’s time to bring back the greatest parody comic of all time
 
 [View all notes](https://roytang.net/notes)
 
