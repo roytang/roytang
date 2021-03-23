@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [March 23, 2021, 11:18 p.m.](https://roytang.net/2021/03/1374380033117016075/): Petra (from Fire Emblem Three Houses) #sketchdaily 82/365
 - [March 23, 2021, 10:28 p.m.](https://roytang.net/2021/03/1374367400276025345/): After five years of languishing in the bronze ranks of Street Fighter V, I somehow managed to break through to silver!! #gaming
 - [March 23, 2021, 3:50 p.m.](https://roytang.net/2021/03/1374267414192353281/): Give people aid so they can stay at home, you cowards Quoted PhilippineStar&#x27;s tweet: READ: Amid rising COVID-19 cases, NEDA acting secretary @_karlchua says the issue now is the total health of the people, including hunger and other sickness apart from COVID-19. Localized lockdowns and managing risks should be the focus. | @maureensimeon
 - [March 23, 2021, 3:39 p.m.](https://roytang.net/2021/03/1374264516414894085/): Whenever I deliver any software to clients I should go “Please enjoy the gifts from me, please make a commitment that you will take care of this code, you will take car of this database, you will take care of these bugs..” Quoted paulcatiang&#x27;s tweet: Managed to get the receipt for the crass display by @DOTrPH. Remember, the people&#x27;s taxes paid for those and continue to put food on your tables, you ungrateful public servants. By the way, we&#x27;ve lost so many hours in traffic thanks to your incompetence. Umayos nga kayo.
 - [March 23, 2021, 12:13 p.m.](https://roytang.net/2021/03/1374212757189369861/): 800! #duolingo
-- [March 22, 2021, 10:26 p.m.](https://roytang.net/2021/03/1374004519529422851/): Wolverine in sheep’s clothing #sketchdaily 81/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/cb/ad/cbad0150999831a85e28a87b2893bbd8.jpg)
 - ![](https://roytang.net/media/cache/5e/40/5e40fa638947882af38ec3e31d82bca4.jpg)
 - ![](https://roytang.net/media/cache/7a/36/7a36371fbf135704050d88b2ff515360.jpg)
+- ![](https://roytang.net/media/cache/6d/29/6d2900f68064e1e686eabee82051018f.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
