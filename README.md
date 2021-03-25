@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 26, 2021, 1:58 a.m.](https://roytang.net/2021/03/1375144979174019072/): @mtgcolorpie I would guess Negate more likely than Mana Leak
 - [March 25, 2021, 11:42 p.m.](https://roytang.net/2021/03/1375110861237325824/): So @MTG_Arena why isn&#x27;t your iOS app available in my region? #mtgarena
 - [March 25, 2021, 11:15 p.m.](https://roytang.net/2021/03/1375104128427302913/): Just a panda #sketchdaily 84/365
 - [March 25, 2021, 4:39 p.m.](https://roytang.net/2021/03/1375004320916144133/): Moonlit masquerade #sketcheaily 83/365
 - [March 24, 2021, 4:01 p.m.](https://roytang.net/2021/03/fb71576d1974213ea471b5cda8a20948/): Bond movie no. 5: You Only Live Twice (1967). Such Japan. Much wow. Cringe at trying to pass Bond off as Japanese. Introduction of secret volcano lair trope. Ninjas with guns! First screen appearance of the head of SPECTRE, inspiration for Dr Evil. That endgame scene of ninjas invading the secret volcano lair reminded me of the Simpsons episode You Only Move Twice. Bond&#x27;s &quot;wife&quot; never named despite being only Bond girl to survive the movie.
-- [March 23, 2021, 11:41 p.m.](https://roytang.net/2021/03/1374385938273476623/): Why it&#x27;s hard to trust either the Chinese government or Sinovac, exhibit 22,316 Quoted rthk_enews&#x27;s tweet: The #HongKong government stops a doctor from giving out #COVID19 jabs after he allegedly told people that the BioNTech vaccine has a much better reputation than the one made by China&#x27;s Sinovac. https://news.rthk.hk/rthk/en/component/k2/1582148-20210323.htm
 
 [View all notes](https://roytang.net/notes)
 
