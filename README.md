@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 26, 2021, 2:09 a.m.](https://roytang.net/2021/03/1375147827110629379/): Both the normal and alt art Strixhaven mystical archive treatments are probably my favorite “expedition” -style treatments of all time. Glad these are coming to #magicarena #mtg
 - [March 26, 2021, 1:58 a.m.](https://roytang.net/2021/03/1375144979174019072/): @mtgcolorpie I would guess Negate more likely than Mana Leak
 - [March 25, 2021, 11:42 p.m.](https://roytang.net/2021/03/1375110861237325824/): So @MTG_Arena why isn&#x27;t your iOS app available in my region? #mtgarena
 - [March 25, 2021, 11:15 p.m.](https://roytang.net/2021/03/1375104128427302913/): Just a panda #sketchdaily 84/365
 - [March 25, 2021, 4:39 p.m.](https://roytang.net/2021/03/1375004320916144133/): Moonlit masquerade #sketcheaily 83/365
-- [March 24, 2021, 4:01 p.m.](https://roytang.net/2021/03/fb71576d1974213ea471b5cda8a20948/): Bond movie no. 5: You Only Live Twice (1967). Such Japan. Much wow. Cringe at trying to pass Bond off as Japanese. Introduction of secret volcano lair trope. Ninjas with guns! First screen appearance of the head of SPECTRE, inspiration for Dr Evil. That endgame scene of ninjas invading the secret volcano lair reminded me of the Simpsons episode You Only Move Twice. Bond&#x27;s &quot;wife&quot; never named despite being only Bond girl to survive the movie.
 
 [View all notes](https://roytang.net/notes)
 
