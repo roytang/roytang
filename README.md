@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [March 27, 2021, 4:01 a.m.](https://roytang.net/2021/03/1375538318578966528/): Winter Soldier #sketchdaily 85/365 #procreate #Marvel #comicbooks
 - [March 26, 2021, 12:10 p.m.](https://roytang.net/2021/03/gs98o1v/): So what does that mean? Are we never getting iOS/Android versions in SEA? Will they (Tencent) release it later? Or there&#x27;s no word at all?
 - [March 26, 2021, 11:02 a.m.](https://roytang.net/2021/03/mdf9dp/): Posted on r/magicTCG: Android/iOS versions not available in Southeast Asia? Has anyone in SEA been able to get the mobile versions? I&#x27;m from the Philippines, me and my friend in Singapore both can&#x27;t find the app on the stores. Even when using a direct link, the stores will just say Arena isn&#x27;t available in the country/region. Any others from SEA countries have any luck? Have they released any official word on this? Or is there any WOTC staff here who can shed some light on why it&#x27;s not available in SEA? So annoyed that the MTG twitter accounts have the
 - [March 26, 2021, 2:09 a.m.](https://roytang.net/2021/03/1375147827110629379/): Both the normal and alt art Strixhaven mystical archive treatments are probably my favorite “expedition” -style treatments of all time. Glad these are coming to #magicarena #mtg
 - [March 26, 2021, 1:58 a.m.](https://roytang.net/2021/03/1375144979174019072/): @mtgcolorpie I would guess Negate more likely than Mana Leak
-- [March 25, 2021, 11:42 p.m.](https://roytang.net/2021/03/1375110861237325824/): So @MTG_Arena why isn&#x27;t your iOS app available in my region? #mtgarena
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/7a/36/7a36371fbf135704050d88b2ff515360.jpg)
 - ![](https://roytang.net/media/cache/6d/29/6d2900f68064e1e686eabee82051018f.jpg)
 - ![](https://roytang.net/media/cache/72/7d/727d0fb2c84abb09b288644ef0e363b6.jpg)
+- ![](https://roytang.net/media/cache/6c/45/6c45c251e07e9967cfdfeb1d0e50fc60.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
