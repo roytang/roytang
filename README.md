@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 27, 2021, 10:29 a.m.](https://roytang.net/2021/03/1375636032448696323/): It always feels weird for me when the PH president exercises a line item veto, since presumably Congress has balanced the bill as a whole. This is an unusual power, Wikipedia only lists 3-4 countries that allow line item vetoes https://en.wikipedia.org/wiki/Line-item_veto Quoted manilabulletin&#x27;s tweet: READ: President Duterte vetoed nine items in CREATE law, including hike in VAT threshold on real property sale, redundant incentives for domestic enterprises; automatic approval of incentive application (📷: Roque) | @GenKabiling Note that the PH isn&#x27;t one of those listed in the Wikipedia article! I think I&#x27;ll attempt to edit Wikipedia today.
 - [March 27, 2021, 4:01 a.m.](https://roytang.net/2021/03/1375538318578966528/): Winter Soldier #sketchdaily 85/365 #procreate #Marvel #comicbooks
 - [March 26, 2021, 12:10 p.m.](https://roytang.net/2021/03/gs98o1v/): So what does that mean? Are we never getting iOS/Android versions in SEA? Will they (Tencent) release it later? Or there&#x27;s no word at all?
 - [March 26, 2021, 11:02 a.m.](https://roytang.net/2021/03/mdf9dp/): Posted on r/magicTCG: Android/iOS versions not available in Southeast Asia? Has anyone in SEA been able to get the mobile versions? I&#x27;m from the Philippines, me and my friend in Singapore both can&#x27;t find the app on the stores. Even when using a direct link, the stores will just say Arena isn&#x27;t available in the country/region. Any others from SEA countries have any luck? Have they released any official word on this? Or is there any WOTC staff here who can shed some light on why it&#x27;s not available in SEA? So annoyed that the MTG twitter accounts have the
 - [March 26, 2021, 2:09 a.m.](https://roytang.net/2021/03/1375147827110629379/): Both the normal and alt art Strixhaven mystical archive treatments are probably my favorite “expedition” -style treatments of all time. Glad these are coming to #magicarena #mtg
-- [March 26, 2021, 1:58 a.m.](https://roytang.net/2021/03/1375144979174019072/): @mtgcolorpie I would guess Negate more likely than Mana Leak
 
 [View all notes](https://roytang.net/notes)
 
