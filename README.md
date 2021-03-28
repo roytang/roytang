@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 28, 2021, 10:12 p.m.](https://roytang.net/2021/03/1376175428121939970/): This one is my favorite so far. Quoted ponettplus&#x27;s tweet: don&#x27;t worry everyone, help has arrived
 - [March 28, 2021, 5:02 p.m.](https://roytang.net/2021/03/1376097405498617858/): Jeez, sorry for trying to use a more secure password
 - [March 27, 2021, 10:46 p.m.](https://roytang.net/2021/03/1375821511601258499/): Snow leopard #sketchdaily 86/365
 - [March 27, 2021, 8:30 p.m.](https://roytang.net/2021/03/1375787410055827462/): @paulcatiang Alt + 0151 — use the numpad
 - [March 27, 2021, 8:15 p.m.](https://roytang.net/2021/03/1375783440952397832/): @SaffronOlive Wait, are bolt counterspell and swords allowed in historic brawl then?
-- [March 27, 2021, 5:10 p.m.](https://roytang.net/2021/03/1375737016407625729/): Planning for a stricter lockdown less than a week after starting this ridiculous bubble, without even waiting to see the effects, reeks of making shit up as they go along, just reacting to the numbers without any real analysis or planning.
 
 [View all notes](https://roytang.net/notes)
 
