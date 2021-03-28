@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Douglas Adams&#x27; note to self reveals author found writing torture](https://roytang.net/2021/03/douglas-adams-note-to-self-reveals-author-found-writing-torture/)
+- [30 covers that are better than the originals](https://roytang.net/2021/03/30-covers-that-are-better-than-the-originals/)
 - [blogging and the blogosphere](https://roytang.net/2021/03/blogging-and-the-blogosphere/)
 - [The internet is splitting apart. The Internet Archive wants to save it all forever.](https://roytang.net/2021/03/the-internet-is-splitting-apart-the-internet-archive-wants-to-save-it-all-forever/)
 - [Stop Keeping Score](https://roytang.net/2021/03/stop-keeping-score/)
-- [My Website is a Personal Museum: the creative freedom we lost in the age of social media](https://roytang.net/2021/03/writings/)
-- [An opinionated list of best practices for textual websites](https://roytang.net/2021/03/an-opinionated-list-of-best-practices-for-textual-websites/)
 
 [View all links](https://roytang.net/links)
 
