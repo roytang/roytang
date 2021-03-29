@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [March 30, 2021, 1:41 a.m.](https://roytang.net/2021/03/1376590449364754432/): Loxodon Hierarch #sketchdaily #mtg 88/365
 - [March 30, 2021, 1:22 a.m.](https://roytang.net/2021/03/1376585657523441664/): Zangief #sketchdaily 87/365 (The prompt was actually for &quot;worst movie you&#x27;ve ever seen&quot;, but my excuse is that the campy live action Street Fighter movie was one of my favorite &quot;worst movies&quot; ever, and Zangief was one of the funniest characters there.)
 - [March 29, 2021, 7:22 p.m.](https://roytang.net/2021/03/1376494924409933826/): @anthony_siy what does service contracting mean here sir?
 - [March 28, 2021, 10:27 p.m.](https://roytang.net/2021/03/1376179123924598786/): @Wizards_MagicEU @mtgjp &quot;All around the world&quot;? What about in southeast asia?
 - [March 28, 2021, 10:12 p.m.](https://roytang.net/2021/03/1376175428121939970/): This one is my favorite so far. Quoted ponettplus&#x27;s tweet: don&#x27;t worry everyone, help has arrived
-- [March 28, 2021, 5:02 p.m.](https://roytang.net/2021/03/1376097405498617858/): Jeez, sorry for trying to use a more secure password
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/6c/45/6c45c251e07e9967cfdfeb1d0e50fc60.jpg)
 - ![](https://roytang.net/media/cache/65/d7/65d76fb44345967f5f8fd9f9310e99a5.jpg)
 - ![](https://roytang.net/media/cache/39/ff/39ffecd4af5c81335076ef061089c9f3.jpg)
+- ![](https://roytang.net/media/cache/05/a7/05a7dc79b7597f96bb00cd721a422494.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
