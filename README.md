@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The man with no plot: how I watched Lee Child write a Jack Reacher novel](https://roytang.net/2021/04/the-man-with-no-plot-how-i-watched-lee-child-write-a-jack-reacher-novel/)
 - [Something to look forward to](https://roytang.net/2021/03/something-to-look-forward-to/)
 - [Write Simply](https://roytang.net/2021/03/write-simply/)
 - [Douglas Adams&#x27; note to self reveals author found writing torture](https://roytang.net/2021/03/douglas-adams-note-to-self-reveals-author-found-writing-torture/)
 - [30 covers that are better than the originals](https://roytang.net/2021/03/30-covers-that-are-better-than-the-originals/)
-- [blogging and the blogosphere](https://roytang.net/2021/03/blogging-and-the-blogosphere/)
 
 [View all links](https://roytang.net/links)
 
