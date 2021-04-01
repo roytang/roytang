@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 1, 2021, 5:40 p.m.](https://roytang.net/2021/04/1377556584780361732/): @zaaaldehyde Food deliveries are allowed past the curfew time
 - [April 1, 2021, 3:06 a.m.](https://roytang.net/2021/04/1377336527374622722/): Lion #sketchdaily 90/365
 - [March 31, 2021, 11:02 a.m.](https://roytang.net/2021/03/1377093864771612674/): Boat #sketchdaily 89/365
 - [March 30, 2021, 2:03 p.m.](https://roytang.net/2021/03/1376777097453072386/): @mlq3 @rocketkeis Noted. Thanks!
 - [March 30, 2021, 1:57 p.m.](https://roytang.net/2021/03/1376775457153019905/): @rocketkeis what is it supposed to mean?
-- [March 30, 2021, 1:41 a.m.](https://roytang.net/2021/03/1376590449364754432/): Loxodon Hierarch #sketchdaily #mtg 88/365
 
 [View all notes](https://roytang.net/notes)
 
