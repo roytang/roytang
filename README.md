@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [A categorized list of all Java and JVM features since JDK 8 to 16](https://roytang.net/2021/04/a-categorized-list-of-all-java-and-jvm-features-since-jdk-8-to-16/)
 - [In Defense of Doing Nothing](https://roytang.net/2021/04/in-defense-of-doing-nothing/)
 - [Benford&#x27;s law](https://roytang.net/2021/04/benfords-law/)
 - [The man with no plot: how I watched Lee Child write a Jack Reacher novel](https://roytang.net/2021/04/the-man-with-no-plot-how-i-watched-lee-child-write-a-jack-reacher-novel/)
 - [Something to look forward to](https://roytang.net/2021/03/something-to-look-forward-to/)
-- [Write Simply](https://roytang.net/2021/03/write-simply/)
 
 [View all links](https://roytang.net/links)
 
