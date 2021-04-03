@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [April 3, 2021, 2:52 p.m.](https://roytang.net/2021/04/1378238889853284355/): Darkseid is. #sketchdaily 92/365
 - [April 1, 2021, 11:08 p.m.](https://roytang.net/2021/04/1377639106516189187/): I guess this is supposed to be a joke but TBH it hits a bit too close to home. #DutertePalpak Source: https://www.reddit.com/r/comics/comments/mhrvkl/just_a_little_joke/
 - [April 1, 2021, 10:45 p.m.](https://roytang.net/2021/04/1377633231311372288/): Mac and cheese #sketchdaily 91/365
 - [April 1, 2021, 5:40 p.m.](https://roytang.net/2021/04/1377556584780361732/): @zaaaldehyde Food deliveries are allowed past the curfew time
 - [April 1, 2021, 3:06 a.m.](https://roytang.net/2021/04/1377336527374622722/): Lion #sketchdaily 90/365
-- [March 31, 2021, 11:02 a.m.](https://roytang.net/2021/03/1377093864771612674/): Boat #sketchdaily 89/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/69/99/69995fd893f5fd3096e72eb776139072.jpg)
 - ![](https://roytang.net/media/cache/76/1d/761d05a296970f87b265baadf6a474a0.jpg)
 - ![](https://roytang.net/media/cache/fc/33/fc33908b224cc4917773dec39b3d5f8f.jpg)
+- ![](https://roytang.net/media/cache/0c/f5/0cf5c79da07e7e6f6ca18e1aef0fc5b5.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
