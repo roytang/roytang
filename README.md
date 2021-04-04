@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [April 4, 2021, 3:20 p.m.](https://roytang.net/2021/04/1378608294454046720/): Fried egg. #sketchdaily 93/365
 - [April 4, 2021, 2:56 p.m.](https://roytang.net/2021/04/1a1ab3ad610478ba3b672b0a89c26333/): Bond movie no. 6: On Her Majesty&#x27;s Secret Service (1969). Only Lazenby appearance. He was fine, I suppose. Tracy probably best Bond girl so far. I liked the ski scenes more than Thunderball&#x27;s underwater scenes. Loose continuity. Was confused by Blofeld not recognizing Bond after they already met in the previous movie. Apparently, the novel order was reversed. Also, did Bond just leave him stuck in a tree assuming he was dead after hunting him relentlessly?
 - [April 3, 2021, 2:52 p.m.](https://roytang.net/2021/04/1378238889853284355/): Darkseid is. #sketchdaily 92/365
 - [April 1, 2021, 11:08 p.m.](https://roytang.net/2021/04/1377639106516189187/): I guess this is supposed to be a joke but TBH it hits a bit too close to home. #DutertePalpak Source: https://www.reddit.com/r/comics/comments/mhrvkl/just_a_little_joke/
 - [April 1, 2021, 10:45 p.m.](https://roytang.net/2021/04/1377633231311372288/): Mac and cheese #sketchdaily 91/365
-- [April 1, 2021, 5:40 p.m.](https://roytang.net/2021/04/1377556584780361732/): @zaaaldehyde Food deliveries are allowed past the curfew time
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/76/1d/761d05a296970f87b265baadf6a474a0.jpg)
 - ![](https://roytang.net/media/cache/fc/33/fc33908b224cc4917773dec39b3d5f8f.jpg)
 - ![](https://roytang.net/media/cache/0c/f5/0cf5c79da07e7e6f6ca18e1aef0fc5b5.jpg)
+- ![](https://roytang.net/media/cache/f5/8c/f58c682ef1c0682b9e6ea7a01fd74576.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
