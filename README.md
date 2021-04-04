@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-04-04](https://roytang.net/2021/04/weeknotes-2021-04-04/)
 - [Weeknotes 2021-03-28](https://roytang.net/2021/03/weeknotes-2021-03-28/)
 - [Zack Snyder&#x27;s Justice League (aka The Snyder Cut) review](https://roytang.net/2021/03/snyder-cut/)
 - [Weeknotes 2021-03-21](https://roytang.net/2021/03/weeknotes-2021-03-21/)
 - [2021 Site Update](https://roytang.net/2021/03/2021-site-update/)
-- [Book Review: Neuromancer by William Gibson](https://roytang.net/2021/03/neuromancer/)
 
 [View all posts](https://roytang.net/blog)
 
