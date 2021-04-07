@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [April 7, 2021, 12:45 p.m.](https://roytang.net/2021/04/1379656430081351687/): Akira Kazama #sketchdaily 96/365
 - [April 7, 2021, 10:33 a.m.](https://roytang.net/2021/04/1379623251479908354/): [Team Camote] - Camote Quiz Night &quot;Are you guys happy now?!&quot; https://www.youtube.com/watch?v=tG3pzFg4GRY&amp;feature=youtu.be via @YouTube
+- [April 6, 2021, 8:02 p.m.](https://roytang.net/2021/04/1379404077319168000/): Not surprising, even though my account is already deactivated. Stop using Facebook, people! https://haveibeenfacebooked.com/
+- [April 6, 2021, 4:36 p.m.](https://roytang.net/2021/04/1379352401144999941/): The Galactic Federation interviews Earth for membership Your browser does not support the video tag.
 - [April 5, 2021, 7:59 p.m.](https://roytang.net/2021/04/1379041002778984448/): Some kind of yoga pose #sketchdaily 95/365
-- [April 5, 2021, 1:27 p.m.](https://roytang.net/2021/04/1378942372751417350/): @bloodyvints What series and issue is this from?
-- [April 5, 2021, 12:26 p.m.](https://roytang.net/2021/04/1378926899255123970/): Open tomb #sketchdaily 94/365
-- [April 4, 2021, 3:20 p.m.](https://roytang.net/2021/04/1378608294454046720/): Fried egg. #sketchdaily 93/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/f5/8c/f58c682ef1c0682b9e6ea7a01fd74576.jpg)
 - ![](https://roytang.net/media/cache/dc/fd/dcfd8c344649388a0bbb3960fd2b61ea.jpg)
 - ![](https://roytang.net/media/cache/b2/f5/b2f5c2da5af483f4c82f1b058dcb2ba4.jpg)
+- ![](https://roytang.net/media/cache/68/05/6805da3076962e6267def08319fea1aa.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
