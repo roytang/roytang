@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 7, 2021, 1:42 p.m.](https://roytang.net/2021/04/3ac092f01e360750d83d1beb1112efa0/): &quot;The price of being a sheep is boredom. The price of being a wolf is loneliness. Choose one or the other with great care.&quot; - Hugh MacLeod
 - [April 7, 2021, 1:36 p.m.](https://roytang.net/2021/04/1379669263372353538/): This kind of thing just triggers my OCD
 - [April 7, 2021, 12:45 p.m.](https://roytang.net/2021/04/1379656430081351687/): Akira Kazama #sketchdaily 96/365
 - [April 7, 2021, 10:33 a.m.](https://roytang.net/2021/04/1379623251479908354/): [Team Camote] - Camote Quiz Night &quot;Are you guys happy now?!&quot; https://www.youtube.com/watch?v=tG3pzFg4GRY&amp;feature=youtu.be via @YouTube
 - [April 6, 2021, 8:02 p.m.](https://roytang.net/2021/04/1379404077319168000/): Not surprising, even though my account is already deactivated. Stop using Facebook, people! https://haveibeenfacebooked.com/
-- [April 6, 2021, 4:36 p.m.](https://roytang.net/2021/04/1379352401144999941/): The Galactic Federation interviews Earth for membership Your browser does not support the video tag.
 
 [View all notes](https://roytang.net/notes)
 
