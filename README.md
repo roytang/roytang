@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 7, 2021, 10:33 a.m.](https://roytang.net/2021/04/1379623251479908354/): [Team Camote] - Camote Quiz Night &quot;Are you guys happy now?!&quot; https://www.youtube.com/watch?v=tG3pzFg4GRY&amp;feature=youtu.be via @YouTube
 - [April 5, 2021, 7:59 p.m.](https://roytang.net/2021/04/1379041002778984448/): Some kind of yoga pose #sketchdaily 95/365
 - [April 5, 2021, 1:27 p.m.](https://roytang.net/2021/04/1378942372751417350/): @bloodyvints What series and issue is this from?
 - [April 5, 2021, 12:26 p.m.](https://roytang.net/2021/04/1378926899255123970/): Open tomb #sketchdaily 94/365
 - [April 4, 2021, 3:20 p.m.](https://roytang.net/2021/04/1378608294454046720/): Fried egg. #sketchdaily 93/365
-- [April 4, 2021, 2:56 p.m.](https://roytang.net/2021/04/1a1ab3ad610478ba3b672b0a89c26333/): Bond movie no. 6: On Her Majesty&#x27;s Secret Service (1969). Only Lazenby appearance. He was fine, I suppose. Tracy probably best Bond girl so far. I liked the ski scenes more than Thunderball&#x27;s underwater scenes. Loose continuity. Was confused by Blofeld not recognizing Bond after they already met in the previous movie. Apparently, the novel order was reversed. Also, did Bond just leave him stuck in a tree assuming he was dead after hunting him relentlessly?
 
 [View all notes](https://roytang.net/notes)
 
