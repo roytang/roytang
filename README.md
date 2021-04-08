@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [April 8, 2021, 9:28 p.m.](https://roytang.net/2021/04/1380150652068716546/): Budgie #sketchdaily 98/365
 - [April 7, 2021, 11:26 p.m.](https://roytang.net/2021/04/1379817866447347713/): Akira Kazama teaser for Street Fighter V #gaming https://youtu.be/IOdgfo7OaLI
 - [April 7, 2021, 11:24 p.m.](https://roytang.net/2021/04/1379817432500502532/): . @mikong Quoted migueldeicaza&#x27;s tweet: Signal, the private messaging tool, introduced a new payment system. A win-win for mobsters and the pump-and-dumpers behind this. As usual, the people will loose, and they lost my trust. https://twitter.com/smdiehl/status/1379763470216888321
 - [April 7, 2021, 9:23 p.m.](https://roytang.net/2021/04/1379786935871238144/): Borg #sketchdaily 97/365
 - [April 7, 2021, 1:42 p.m.](https://roytang.net/2021/04/3ac092f01e360750d83d1beb1112efa0/): &quot;The price of being a sheep is boredom. The price of being a wolf is loneliness. Choose one or the other with great care.&quot; - Hugh MacLeod
-- [April 7, 2021, 1:36 p.m.](https://roytang.net/2021/04/1379669263372353538/): This kind of thing just triggers my OCD
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/b2/f5/b2f5c2da5af483f4c82f1b058dcb2ba4.jpg)
 - ![](https://roytang.net/media/cache/68/05/6805da3076962e6267def08319fea1aa.jpg)
 - ![](https://roytang.net/media/cache/8f/9c/8f9cc7b1eebbf9e191059873076c9069.jpg)
+- ![](https://roytang.net/media/cache/26/9f/269f17e21bea616529868fba1ad7cc60.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
