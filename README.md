@@ -7,10 +7,10 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 Latest blog posts:
 
 - [Got my first Sinovac dose in Quezon City](https://roytang.net/2021/04/first-sinovac-dose/)
+- [Weeknotes 2021-04-11](https://roytang.net/2021/04/weeknotes-2021-04-11/)
 - [Blogs of Yesteryear](https://roytang.net/2021/04/blogs-of-yesteryear/)
 - [Book Reviews: Guards! Guards! and Men at Arms by Terry Pratchett](https://roytang.net/2021/04/discworld-city-watch/)
 - [Weeknotes 2021-04-04](https://roytang.net/2021/04/weeknotes-2021-04-04/)
-- [Weeknotes 2021-03-28](https://roytang.net/2021/03/weeknotes-2021-03-28/)
 
 [View all posts](https://roytang.net/blog)
 
