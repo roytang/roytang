@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Everyone Is Still Terrible At Creating Software At Scale](https://roytang.net/2021/04/everyone-is-still-terrible-at-creating-software-at-scale/)
 - [The U.S. Is One Step Closer to Establishing a Research Program to Block the Sun](https://roytang.net/2021/04/the-us-is-one-step-closer-to-establishing-a-research-program-to-block-the-sun/)
 - [Yes, experts will lie to you sometimes](https://roytang.net/2021/04/yes-experts-will-lie-to-you-sometimes/)
 - [Ted Chiang: Fears of Technology Are Fears of Capitalism](https://roytang.net/2021/04/ted-chiang-fears-of-technology-are-fears-of-capitalism/)
 - [A categorized list of all Java and JVM features since JDK 8 to 16](https://roytang.net/2021/04/a-categorized-list-of-all-java-and-jvm-features-since-jdk-8-to-16/)
-- [In Defense of Doing Nothing](https://roytang.net/2021/04/in-defense-of-doing-nothing/)
 
 [View all links](https://roytang.net/links)
 
