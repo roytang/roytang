@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 12, 2021, 3:28 p.m.](https://roytang.net/2021/04/1381509474259673090/): Needed something light to watch in the background, so I watched Airplane! (1980). It&#x27;s the kind of movie where they just stuff in as many gags as possible, every throwaway line and even stuff happening in the background is a gag.
+- [April 12, 2021, 3:27 p.m.](https://roytang.net/2021/04/1381509157480591362/): People need to learn to stop sending scanned documents sideways. Your scanner software has a setting for the document orientation!
 - [April 12, 2021, 2:07 p.m.](https://roytang.net/2021/04/1381489041082736643/): Pwede ka sumingit sa pila. Pag may nagkwestyon sa yo sagutin mo ng &quot;that&#x27;s an unchristian question&quot;
 - [April 12, 2021, 10:53 a.m.](https://roytang.net/2021/04/1381440285188661251/): @MadamHiddles The article says the photo is from 2021
 - [April 11, 2021, 8:12 p.m.](https://roytang.net/2021/04/1381218719033090048/): Kimono #sketchdaily 101/365
-- [April 11, 2021, 7:56 p.m.](https://roytang.net/2021/04/1381214509562523648/): Mug #sketchdaily 100/365
-- [April 11, 2021, 3:07 p.m.](https://roytang.net/2021/04/1381141954671517698/): Tsk, I just got my shot! Quoted AP&#x27;s tweet: In a rare admission of the weakness of Chinese coronavirus vaccines, the country’s top disease control official says their effectiveness is low and the government is considering mixing them to give them a boost. http://apne.ws/tVtFgS2
 
 [View all notes](https://roytang.net/notes)
 
