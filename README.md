@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [April 12, 2021, 7:24 p.m.](https://roytang.net/2021/04/1381568953005182978/): Some kind of fox #sketchdaily 102/365
 - [April 12, 2021, 3:28 p.m.](https://roytang.net/2021/04/1381509474259673090/): Needed something light to watch in the background, so I watched Airplane! (1980). It&#x27;s the kind of movie where they just stuff in as many gags as possible, every throwaway line and even stuff happening in the background is a gag.
 - [April 12, 2021, 3:27 p.m.](https://roytang.net/2021/04/1381509157480591362/): People need to learn to stop sending scanned documents sideways. Your scanner software has a setting for the document orientation!
 - [April 12, 2021, 2:07 p.m.](https://roytang.net/2021/04/1381489041082736643/): Pwede ka sumingit sa pila. Pag may nagkwestyon sa yo sagutin mo ng &quot;that&#x27;s an unchristian question&quot;
 - [April 12, 2021, 10:53 a.m.](https://roytang.net/2021/04/1381440285188661251/): @MadamHiddles The article says the photo is from 2021
-- [April 11, 2021, 8:12 p.m.](https://roytang.net/2021/04/1381218719033090048/): Kimono #sketchdaily 101/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/2b/16/2b16faca271793bf29c923e68851e42f.jpg)
 - ![](https://roytang.net/media/cache/c6/cf/c6cfafe0a544a0d5b3e51a54197ede49.jpg)
 - ![](https://roytang.net/media/cache/69/1e/691ec9b10c66c5d64e945a9faa548fd1.jpg)
+- ![](https://roytang.net/media/cache/b7/70/b770261c8dc95548c257095007185c86.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
