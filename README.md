@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Ted Lasso Season 1 spoiler-free review](https://roytang.net/2021/04/ted-lasso-s1/)
 - [Programming is hard, but anyone can be a programmer](https://roytang.net/2021/04/programming-is-hard/)
 - [Without Their Permission by Alexis Ohanian](https://roytang.net/2021/04/without-their-permission/)
 - [Weeknotes 2021-04-11](https://roytang.net/2021/04/weeknotes-2021-04-11/)
 - [Got my first Sinovac dose in Quezon City](https://roytang.net/2021/04/first-sinovac-dose/)
-- [Blogs of Yesteryear](https://roytang.net/2021/04/blogs-of-yesteryear/)
 
 [View all posts](https://roytang.net/blog)
 
