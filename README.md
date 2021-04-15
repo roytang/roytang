@@ -6,7 +6,7 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
-- [Chrome Floc](https://roytang.net/2021/04/chrome-floc/)
+- [Google Chrome and FloC](https://roytang.net/2021/04/chrome-floc/)
 - [Ted Lasso Season 1 spoiler-free review](https://roytang.net/2021/04/ted-lasso-s1/)
 - [Programming is hard, but anyone can be a programmer](https://roytang.net/2021/04/programming-is-hard/)
 - [Without Their Permission by Alexis Ohanian](https://roytang.net/2021/04/without-their-permission/)
