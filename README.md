@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 16, 2021, 12:14 p.m.](https://roytang.net/2021/04/1382910148306427907/): Friday afternoon Strixhaven sealed! https://www.twitch.tv/twitchyroy #mtg #magicarena #MTGStrixhaven #twitch
 - [April 16, 2021, 11:30 a.m.](https://roytang.net/2021/04/1382899175189221378/): @momblogger Even if we criticize the choice of sinovac as less efficient, its still our duty to get vaccinated to improve public health. The Duterte govt gave us no choice. Those who still get vaccinated with sinovac should even be commended for setting aside their misgivings
 - [April 16, 2021, 6:45 a.m.](https://roytang.net/2021/04/1382827402338848769/): I got my #MagicArena stats for #mtgkhm! Pretty sure I was picking Priest of the Haunted Edge too highly. Also for some reason the last time I got one of these emails was for Theros Beyond Death one year ago. #MTGArenaStats
 - [April 15, 2021, 8:14 p.m.](https://roytang.net/2021/04/1382668757248536581/): This looks amazing #gaming - GetsuFumaDen: Undying Moon Teaser Trailer https://www.youtube.com/watch?v=nXDcMVvtPh4
 - [April 15, 2021, 8:10 p.m.](https://roytang.net/2021/04/1382667703765192706/): Angry cat #sketchdaily 105/365
-- [April 15, 2021, 6:05 p.m.](https://roytang.net/2021/04/ced0a77eea2857ad31bd014fac3ded9a/): Bond film no. 8: Live and Let Die (1973). Moore feels a lot more &quot;generic white guy&quot; than Connery was. Maybe I just need to get used to him. Young Jane Seymour is here! There&#x27;s a bayou chase scene here that goes on just a bit too long and had superfluous cop characters. All the voodoo stuff felt weirdly out of place. There&#x27;s a character named Tee Hee! Most ridiculous villain death so far.
 
 [View all notes](https://roytang.net/notes)
 
