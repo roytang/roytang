@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 19, 2021, 10:48 p.m.](https://roytang.net/2021/04/1384157021847494662/): Wait so he&#x27;s estranged from his dad? This is basically the same plot as Kim&#x27;s Convenience Quoted MarvelStudios&#x27;s tweet: Happy Birthday @SimuLiu! We hope you enjoy your birthday present. Watch the brand-new teaser trailer for Marvel Studios’ #ShangChi and the Legend of the Ten Rings and experience it only in theaters September 3. Your browser does not support the video tag.
 - [April 19, 2021, 9:05 p.m.](https://roytang.net/2021/04/1384131035370180608/): Krang #sketchdaily 109/365
 - [April 19, 2021, 8:49 p.m.](https://roytang.net/2021/04/1384126935274442755/): Camping #sketchdaily 108/365
 - [April 19, 2021, 7:28 p.m.](https://roytang.net/2021/04/1384106575602667524/): Heto na nga.... Police are now profiling the community pantries. Ano susunod kailangan ng DTI permit at mag file sa BIR??? 😡 Tanginang gobyerno to wala na ngang kwenta, pahirap pa sa mga tao.
 - [April 19, 2021, 4:59 p.m.](https://roytang.net/2021/04/1384069042672001024/): Monday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Only one draft this session, but I had a lot of fun! Mostly because it was my first 7-win of the season, but also because I drafted an insane quandrix deck with the other 3 colors splashed, and won 3 games off Approach of the Second Sun. I never got to activate codie though! YT: https://www.youtube.com/watch?v=sJcwQML48LQ
-- [April 19, 2021, 3:28 p.m.](https://roytang.net/2021/04/1384046109945843712/): Someone tried to scam me out of my Netflix account. Weird because its never actually asked me to 2fa before. (Yes, I have reset my pw) Ah i suppose it might have been someone using my phone from the recent fb data leak to try to reset the pw.
 
 [View all notes](https://roytang.net/notes)
 
