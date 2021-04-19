@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [April 19, 2021, 9:05 p.m.](https://roytang.net/2021/04/1384131035370180608/): Krang #sketchdaily 109/365
 - [April 19, 2021, 8:49 p.m.](https://roytang.net/2021/04/1384126935274442755/): Camping #sketchdaily 108/365
 - [April 19, 2021, 7:28 p.m.](https://roytang.net/2021/04/1384106575602667524/): Heto na nga.... Police are now profiling the community pantries. Ano susunod kailangan ng DTI permit at mag file sa BIR??? 😡 Tanginang gobyerno to wala na ngang kwenta, pahirap pa sa mga tao.
 - [April 19, 2021, 4:59 p.m.](https://roytang.net/2021/04/1384069042672001024/): Monday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Only one draft this session, but I had a lot of fun! Mostly because it was my first 7-win of the season, but also because I drafted an insane quandrix deck with the other 3 colors splashed, and won 3 games off Approach of the Second Sun. I never got to activate codie though! YT: https://www.youtube.com/watch?v=sJcwQML48LQ
 - [April 19, 2021, 3:28 p.m.](https://roytang.net/2021/04/1384046109945843712/): Someone tried to scam me out of my Netflix account. Weird because its never actually asked me to 2fa before. (Yes, I have reset my pw) Ah i suppose it might have been someone using my phone from the recent fb data leak to try to reset the pw.
-- [April 17, 2021, 8:47 p.m.](https://roytang.net/2021/04/1383401796526166017/): Road trip #sketchdaily 107/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/a1/ed/a1ed3ee9f25d30366b5de4e796dd2d41.jpg)
 - ![](https://roytang.net/media/cache/37/96/37960cea249442110cc1e3fd8cfe91d6.jpg)
 - ![](https://roytang.net/media/cache/6f/45/6f4555fe69b3d2b7e937a02803975b48.jpg)
+- ![](https://roytang.net/media/cache/11/51/11510da715ed845338a2812043addeaa.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
