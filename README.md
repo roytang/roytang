@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [April 20, 2021, 7:50 p.m.](https://roytang.net/2021/04/1384474641431859202/): Clown car #sketchdaily 110/365
 - [April 20, 2021, 6:56 p.m.](https://roytang.net/2021/04/b178a1efcfc005930f062c7be447d7c1/): Today I decided to watch Rocky (1976) for some reason. The quintessential sports film, but I&#x27;ve never seen it before. Stallone looks only a bit younger than I remember him from the 90s. Apollo Creed is that dude from the Mandalorian! Surprised at the ending.
 - [April 20, 2021, 4:58 p.m.](https://roytang.net/2021/04/1384431157677285378/): Thursday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Went Silverquill, only finished 4-3, mostly due to a really bad misplay on my part in the last game. Decent outcome, but could have been better. I did manage to rare-draft a lot though lol YT: https://www.youtube.com/watch?v=18weBrcCtyI
 - [April 20, 2021, 4:03 p.m.](https://roytang.net/2021/04/1384417483470163970/): When you are full of hate and bitterness every act of love and every move of a good-hearted person will look like virtue signaling
 - [April 20, 2021, 6:57 a.m.](https://roytang.net/2021/04/1384280033351462912/): #MaginhawaCommunityPantry&#x27;s operations will pause today, 20 Apr, for the safety of Patreng+volunteers. They&#x27;ve been #RedTagged &amp; subjected to scare tactics by the police🤬 Help, please, @QCGov &amp; Mayor Joy! Read full statement+zoom presscon invite here: https://www.facebook.com/PatrengNon/posts/2883888128535551
-- [April 19, 2021, 10:48 p.m.](https://roytang.net/2021/04/1384157021847494662/): Wait so he&#x27;s estranged from his dad? This is basically the same plot as Kim&#x27;s Convenience Quoted MarvelStudios&#x27;s tweet: Happy Birthday @SimuLiu! We hope you enjoy your birthday present. Watch the brand-new teaser trailer for Marvel Studios’ #ShangChi and the Legend of the Ten Rings and experience it only in theaters September 3. Your browser does not support the video tag.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/37/96/37960cea249442110cc1e3fd8cfe91d6.jpg)
 - ![](https://roytang.net/media/cache/6f/45/6f4555fe69b3d2b7e937a02803975b48.jpg)
 - ![](https://roytang.net/media/cache/11/51/11510da715ed845338a2812043addeaa.jpg)
+- ![](https://roytang.net/media/cache/29/47/29479f06cd52ed799b7d8047fb4e35e4.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
