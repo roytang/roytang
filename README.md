@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 20, 2021, 4:58 p.m.](https://roytang.net/2021/04/1384431157677285378/): Thursday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven
 - [April 20, 2021, 4:03 p.m.](https://roytang.net/2021/04/1384417483470163970/): When you are full of hate and bitterness every act of love and every move of a good-hearted person will look like virtue signaling
 - [April 20, 2021, 6:57 a.m.](https://roytang.net/2021/04/1384280033351462912/): #MaginhawaCommunityPantry&#x27;s operations will pause today, 20 Apr, for the safety of Patreng+volunteers. They&#x27;ve been #RedTagged &amp; subjected to scare tactics by the police🤬 Help, please, @QCGov &amp; Mayor Joy! Read full statement+zoom presscon invite here: https://www.facebook.com/PatrengNon/posts/2883888128535551
 - [April 19, 2021, 10:48 p.m.](https://roytang.net/2021/04/1384157021847494662/): Wait so he&#x27;s estranged from his dad? This is basically the same plot as Kim&#x27;s Convenience Quoted MarvelStudios&#x27;s tweet: Happy Birthday @SimuLiu! We hope you enjoy your birthday present. Watch the brand-new teaser trailer for Marvel Studios’ #ShangChi and the Legend of the Ten Rings and experience it only in theaters September 3. Your browser does not support the video tag.
 - [April 19, 2021, 9:05 p.m.](https://roytang.net/2021/04/1384131035370180608/): Krang #sketchdaily 109/365
-- [April 19, 2021, 8:49 p.m.](https://roytang.net/2021/04/1384126935274442755/): Camping #sketchdaily 108/365
 
 [View all notes](https://roytang.net/notes)
 
