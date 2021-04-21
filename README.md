@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 22, 2021, 7:01 a.m.](https://roytang.net/2021/04/1385005706646999044/): @wrongwaygoback I was wondering why I got that reply! IDK who this person is, thanks for the info. Reported and blocked.
 - [April 21, 2021, 10:26 p.m.](https://roytang.net/2021/04/475d3f081e042d0a2b9beee29e4aa643/): Me: Been using Python since 2008 Also me: Need to lookup how to use the filter function every time (Note for future me: list = filter(func, list)
 - [April 21, 2021, 8:42 p.m.](https://roytang.net/2021/04/1384849992259567623/): Fighting against sauces #sketchdaily 111/365 (by request) (if you didn&#x27;t get the reference: https://www.youtube.com/watch?v=Wz-mJed_bP0)
 - [April 21, 2021, 5:28 p.m.](https://roytang.net/2021/04/1384801237372219392/): Wednesday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #strixhaven Had a great draft! I went Quandrix+Prismari and managed to go 7-2. Very explosive. One of those losses was actually due to the server giving me a defeat without even going to a match, so I might even get reimbursement! YT: https://www.youtube.com/watch?v=gZh3aDWWcdQ
 - [April 20, 2021, 7:50 p.m.](https://roytang.net/2021/04/1384474641431859202/): Clown car #sketchdaily 110/365
-- [April 20, 2021, 6:56 p.m.](https://roytang.net/2021/04/b178a1efcfc005930f062c7be447d7c1/): Today I decided to watch Rocky (1976) for some reason. The quintessential sports film, but I&#x27;ve never seen it before. Stallone looks only a bit younger than I remember him from the 90s. Apollo Creed is that dude from the Mandalorian! Surprised at the ending.
 
 [View all notes](https://roytang.net/notes)
 
