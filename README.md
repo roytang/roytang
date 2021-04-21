@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [April 21, 2021, 8:42 p.m.](https://roytang.net/2021/04/1384849992259567623/): Fighting against sauces #sketchdaily 111/365 (by request) (if you didn&#x27;t get the reference: https://www.youtube.com/watch?v=Wz-mJed_bP0)
 - [April 21, 2021, 5:28 p.m.](https://roytang.net/2021/04/1384801237372219392/): Wednesday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #strixhaven Had a great draft! I went Quandrix+Prismari and managed to go 7-2. Very explosive. One of those losses was actually due to the server giving me a defeat without even going to a match, so I might even get reimbursement! YT: https://www.youtube.com/watch?v=gZh3aDWWcdQ
 - [April 20, 2021, 7:50 p.m.](https://roytang.net/2021/04/1384474641431859202/): Clown car #sketchdaily 110/365
 - [April 20, 2021, 6:56 p.m.](https://roytang.net/2021/04/b178a1efcfc005930f062c7be447d7c1/): Today I decided to watch Rocky (1976) for some reason. The quintessential sports film, but I&#x27;ve never seen it before. Stallone looks only a bit younger than I remember him from the 90s. Apollo Creed is that dude from the Mandalorian! Surprised at the ending.
 - [April 20, 2021, 4:58 p.m.](https://roytang.net/2021/04/1384431157677285378/): Thursday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Went Silverquill, only finished 4-3, mostly due to a really bad misplay on my part in the last game. Decent outcome, but could have been better. I did manage to rare-draft a lot though lol YT: https://www.youtube.com/watch?v=18weBrcCtyI
-- [April 20, 2021, 4:03 p.m.](https://roytang.net/2021/04/1384417483470163970/): When you are full of hate and bitterness every act of love and every move of a good-hearted person will look like virtue signaling
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/6f/45/6f4555fe69b3d2b7e937a02803975b48.jpg)
 - ![](https://roytang.net/media/cache/11/51/11510da715ed845338a2812043addeaa.jpg)
 - ![](https://roytang.net/media/cache/29/47/29479f06cd52ed799b7d8047fb4e35e4.jpg)
+- ![](https://roytang.net/media/cache/d4/66/d466bd94fa30bd872e0206f1fc74dffb.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
