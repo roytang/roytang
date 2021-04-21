@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Conversation Has Never Been Wider](https://roytang.net/2021/04/the-conversation-has-never-been-wider/)
+- [Q: Why Blog? A: Blogs Are Great.](https://roytang.net/2021/04/q-why-blog-a-blogs-are-great/)
 - [How Fit Can You Get From Just Walking?](https://roytang.net/2021/04/how-fit-can-you-get-from-just-walking/)
 - [Simple CSS Pattern to Dynamically Abbreviate Text](https://roytang.net/2021/04/simple-css-pattern-to-dynamically-abbreviate-text/)
 - [Misinformation about Permissions Policy and FLoC](https://roytang.net/2021/04/misinformation-about-permissions-policy-and-floc/)
-- [Everyone Is Still Terrible At Creating Software At Scale](https://roytang.net/2021/04/everyone-is-still-terrible-at-creating-software-at-scale/)
-- [The U.S. Is One Step Closer to Establishing a Research Program to Block the Sun](https://roytang.net/2021/04/the-us-is-one-step-closer-to-establishing-a-research-program-to-block-the-sun/)
 
 [View all links](https://roytang.net/links)
 
