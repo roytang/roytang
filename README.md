@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 22, 2021, 5:14 p.m.](https://roytang.net/2021/04/1385160137925668868/): Thursday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsrixhaven
 - [April 22, 2021, 2:34 p.m.](https://roytang.net/2021/04/1385119677320335360/): There&#x27;s this guy in Hong Kong named Roy Tang who is &quot;Permanent Secretary for Constitutional and Mainland Affairs&quot;, which I suppose is some Beijing stooge. It&#x27;s annoying because he always shows up in my Google alerts lol
 - [April 22, 2021, 2:31 p.m.](https://roytang.net/2021/04/1385119158925361152/): 2 twitter accounts have blocked me! Lol I know one of those accounts, I wonder who the other is. This count is low compared to some of my mutuals, maybe I should get into more fights. Anyway, you can check your own stats here: https://blolook.osa-p.net/
 - [April 22, 2021, 7:57 a.m.](https://roytang.net/2021/04/mvsss1/): Posted on r/GlobalTalk: [Question] What are the police like in your country? If you&#x27;ve been following recent events in the US (disclaimer: I&#x27;m not an American), police brutality is a big, controversial topic over there, leading to protests and calls to defund the police and such, popularizing the phrase ACAB (meaning &quot;all cops are bastards&quot;) In my own country (the Philippines), cops don&#x27;t have a very good reputation either; they are often seen as corrupt extortionists and some may be complicit in extrajudicial killings in Duterte&#x27;s drug war; recently they have done some bad moves such as attempting to interfere
 - [April 22, 2021, 7:01 a.m.](https://roytang.net/2021/04/1385005706646999044/): @wrongwaygoback I was wondering why I got that reply! IDK who this person is, thanks for the info. Reported and blocked.
-- [April 21, 2021, 10:26 p.m.](https://roytang.net/2021/04/475d3f081e042d0a2b9beee29e4aa643/): Me: Been using Python since 2008 Also me: Need to lookup how to use the filter function every time (Note for future me: list = filter(func, list)
 
 [View all notes](https://roytang.net/notes)
 
