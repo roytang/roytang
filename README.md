@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 22, 2021, 2:34 p.m.](https://roytang.net/2021/04/1385119677320335360/): There&#x27;s this guy in Hong Kong named Roy Tang who is &quot;Permanent Secretary for Constitutional and Mainland Affairs&quot;, which I suppose is some Beijing stooge. It&#x27;s annoying because he always shows up in my Google alerts lol
+- [April 22, 2021, 2:31 p.m.](https://roytang.net/2021/04/1385119158925361152/): 2 twitter accounts have blocked me! Lol I know one of those accounts, I wonder who the other is. This count is low compared to some of my mutuals, maybe I should get into more fights. Anyway, you can check your own stats here: https://blolook.osa-p.net/
 - [April 22, 2021, 7:57 a.m.](https://roytang.net/2021/04/mvsss1/): Posted on r/GlobalTalk: [Question] What are the police like in your country? If you&#x27;ve been following recent events in the US (disclaimer: I&#x27;m not an American), police brutality is a big, controversial topic over there, leading to protests and calls to defund the police and such, popularizing the phrase ACAB (meaning &quot;all cops are bastards&quot;) In my own country (the Philippines), cops don&#x27;t have a very good reputation either; they are often seen as corrupt extortionists and some may be complicit in extrajudicial killings in Duterte&#x27;s drug war; recently they have done some bad moves such as attempting to interfere
 - [April 22, 2021, 7:01 a.m.](https://roytang.net/2021/04/1385005706646999044/): @wrongwaygoback I was wondering why I got that reply! IDK who this person is, thanks for the info. Reported and blocked.
 - [April 21, 2021, 10:26 p.m.](https://roytang.net/2021/04/475d3f081e042d0a2b9beee29e4aa643/): Me: Been using Python since 2008 Also me: Need to lookup how to use the filter function every time (Note for future me: list = filter(func, list)
-- [April 21, 2021, 8:42 p.m.](https://roytang.net/2021/04/1384849992259567623/): Fighting against sauces #sketchdaily 111/365 (by request) (if you didn&#x27;t get the reference: https://www.youtube.com/watch?v=Wz-mJed_bP0)
-- [April 21, 2021, 5:28 p.m.](https://roytang.net/2021/04/1384801237372219392/): Wednesday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #strixhaven Had a great draft! I went Quandrix+Prismari and managed to go 7-2. Very explosive. One of those losses was actually due to the server giving me a defeat without even going to a match, so I might even get reimbursement! YT: https://www.youtube.com/watch?v=gZh3aDWWcdQ
 
 [View all notes](https://roytang.net/notes)
 
