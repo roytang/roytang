@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Exploiting vulnerabilities in Cellebrite UFED and Physical Analyzer from an app&#x27;s perspective](https://roytang.net/2021/04/exploiting-vulnerabilities-in-cellebrite-ufed-and-physical-analyzer-from-an-apps-perspective/)
 - [No Wrong Notes](https://roytang.net/2021/04/no-wrong-notes/)
 - [Make Everything Important](https://roytang.net/2021/04/make-everything-important/)
 - [The Conversation Has Never Been Wider](https://roytang.net/2021/04/the-conversation-has-never-been-wider/)
 - [Q: Why Blog? A: Blogs Are Great.](https://roytang.net/2021/04/q-why-blog-a-blogs-are-great/)
-- [How Fit Can You Get From Just Walking?](https://roytang.net/2021/04/how-fit-can-you-get-from-just-walking/)
 
 [View all links](https://roytang.net/links)
 
