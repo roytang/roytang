@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 25, 2021, 1:36 a.m.](https://roytang.net/2021/04/1386011173275922433/): It&#x27;s actually amazing how computers have become exponentially more powerful in my lifetime (yet somehow our web browsers manage to eat up most of the memory) Quoted ChefJags&#x27;s tweet: You can only retweet this if you know exactly how it feels to have this rig. Your browser does not support the video tag.
 - [April 24, 2021, 9:57 p.m.](https://roytang.net/2021/04/1385956018509664263/): Diver #sketchdaily 112/365
 - [April 22, 2021, 10:29 p.m.](https://roytang.net/2021/04/ea7eb9ef2a85d61d55d44918252a52d8/): &quot;Do not be dismayed by the brokenness of the world. All things break. And all things can be mended. Not with time, as they say, but with intention. So go. Love intentionally, extravagantly, unconditionally. The broken world waits in darkness for the light that is you.&quot;-- L. R. Knost
 - [April 22, 2021, 9:29 p.m.](https://roytang.net/2021/04/1385224243848179719/): &quot;I&#x27;ll eat you!&quot; #sketchdaily 111/365 I originally drew this on my tiny pad then scanned it so the text could be readable, but my handwriting was so obviously bad in the scan, I edited a new (and different) line into the text bubble digitally. I&#x27;ll attach the original anyway so you can see how terrible my handwriting was. I&#x27;d say it was because the pad was so small, but really my handwriting is terrible at any size!
 - [April 22, 2021, 5:14 p.m.](https://roytang.net/2021/04/1385160137925668868/): Thursday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsrixhaven Looks like I&#x27;m finally paying for all the good luck I had over the past few days; I did two drafts today and both of them were terrible! YT: https://www.youtube.com/watch?v=BoJwfBCrx-U
-- [April 22, 2021, 2:34 p.m.](https://roytang.net/2021/04/1385119677320335360/): There&#x27;s this guy in Hong Kong named Roy Tang who is &quot;Permanent Secretary for Constitutional and Mainland Affairs&quot;, which I suppose is some Beijing stooge. It&#x27;s annoying because he always shows up in my Google alerts lol
 
 [View all notes](https://roytang.net/notes)
 
