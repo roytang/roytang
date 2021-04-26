@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [April 26, 2021, 3:54 p.m.](https://roytang.net/2021/04/1386589537825136641/): Thursday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven
+- [April 26, 2021, 3:54 p.m.](https://roytang.net/2021/04/1386589537825136641/): Thursday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Two poor drafts again today. I might be hitting a ceiling now that I&#x27;ve ranked back up into Platinum D:. Have to do better! I didn&#x27;t even rare draft this time!
 - [April 26, 2021, 10:26 a.m.](https://roytang.net/2021/04/1386506858328780802/): Is there an #Oscars broadcast on skycable somewhere?
 - [April 25, 2021, 3:07 p.m.](https://roytang.net/2021/04/1386215271027732481/): This is great Quoted gothspiderbitch&#x27;s tweet: so did anyone else know that there was a massive pool noodle battle planned between all the people named Josh today that was ultimately won by a 5-year old named Josh who was crowned The Supreme Josh or was I just supposed to find this out on my own
 - [April 25, 2021, 1:36 a.m.](https://roytang.net/2021/04/1386011173275922433/): It&#x27;s actually amazing how computers have become exponentially more powerful in my lifetime (yet somehow our web browsers manage to eat up most of the memory) Quoted ChefJags&#x27;s tweet: You can only retweet this if you know exactly how it feels to have this rig. Your browser does not support the video tag.
