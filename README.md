@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Falcon and the Winter Soldier Review](https://roytang.net/2021/04/fatws/)
 - [Weeknotes 2021-04-25: Game Jammin&#x27;](https://roytang.net/2021/04/weeknotes-2021-04-25/)
 - [Blogs of Yesteryear Part 2](https://roytang.net/2021/04/blogs-of-yesteryear-2/)
 - [Weeknotes 2021-04-18](https://roytang.net/2021/04/weeknotes-2021-04-18/)
 - [Google Chrome and FloC](https://roytang.net/2021/04/chrome-floc/)
-- [Ted Lasso Season 1 spoiler-free review](https://roytang.net/2021/04/ted-lasso-s1/)
 
 [View all posts](https://roytang.net/blog)
 
