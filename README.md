@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [April 27, 2021, 12:10 a.m.](https://roytang.net/2021/04/1386714197065572353/): Quick #sketchdaily catchup
+- [April 27, 2021, 12:10 a.m.](https://roytang.net/2021/04/1386714197065572353/): Quick #sketchdaily catchup Shocked pikachu: 113/365 Bald eagle: 114/365 Cabbage: 115/365
 - [April 26, 2021, 3:54 p.m.](https://roytang.net/2021/04/1386589537825136641/): Thursday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Two poor drafts again today. I might be hitting a ceiling now that I&#x27;ve ranked back up into Platinum D:. Have to do better! I didn&#x27;t even rare draft this time! YT: https://www.youtube.com/watch?v=kgwy4bEulbs
 - [April 26, 2021, 10:26 a.m.](https://roytang.net/2021/04/1386506858328780802/): Is there an #Oscars broadcast on skycable somewhere?
 - [April 25, 2021, 3:07 p.m.](https://roytang.net/2021/04/1386215271027732481/): This is great Quoted gothspiderbitch&#x27;s tweet: so did anyone else know that there was a massive pool noodle battle planned between all the people named Josh today that was ultimately won by a 5-year old named Josh who was crowned The Supreme Josh or was I just supposed to find this out on my own
