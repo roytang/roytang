@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [April 28, 2021, 8:37 p.m.](https://roytang.net/2021/04/1387385600119037953/): Robocop #sketchdaily 117/365 This is terrible lol. Also I already had to redo it once because I didnt realize at first that the visor covers his nose
 - [April 28, 2021, 7:40 p.m.](https://roytang.net/2021/04/1387371248435417090/): Belgian man parks in garage 6cm wider than his car Your browser does not support the video tag.
 - [April 28, 2021, 4:33 p.m.](https://roytang.net/2021/04/1387324164910981121/): OPLAN: WE&#x27;RE NOT THE WORST Quoted PhilstarNews&#x27;s tweet: JUST IN: PCOO News and Information Bureau head Virginia Arcilla-Agtay confirms that there is a memo directing them to give updates on global data on the pandemic to show that the Philippines is doing better than other countries. | via @XaveGregorio OPLAN LOWER STANDARDS
 - [April 28, 2021, 4:05 p.m.](https://roytang.net/2021/04/1387316978612948998/): Throwing away gems on Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Internet was weird today so stream was on and off. Probably won&#x27;t have the full episode on YT (maybe just the last few matches). But spoiler alert: I was able to break my unlucky streak with some Quandrix + Prismari goodness! I might also get reimbursed lol. Last couple of matches on YT: https://www.youtube.com/watch?v=7SuXcPVm0YQ
 - [April 28, 2021, 5:11 a.m.](https://roytang.net/2021/04/1387152469197692932/): I got this PM on discord. I like how he opens with &quot;I&#x27;m a fraudster&quot;, then immediately asserts his reputation
-- [April 27, 2021, 7:32 p.m.](https://roytang.net/2021/04/1387006717796315136/): This looks like a job for... #sketchdaily 116/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/52/79/5279c97a1490d1218c63c33d5fb25e6b.jpg)
 - ![](https://roytang.net/media/cache/6e/a3/6ea3b36f8d11840829fd91becaa41ae4.jpg)
 - ![](https://roytang.net/media/cache/0b/a6/0ba6cff5377e82a1f72ea80abe2e6eec.jpg)
+- ![](https://roytang.net/media/cache/36/2f/362f6a473176f5d6408cc6e2daadc9ac.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
