@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How To Live In Wonder](https://roytang.net/2021/04/how-to-live-in-wonder/)
 - [Yahoo, the Destroyer](https://roytang.net/2021/04/yahoo-the-destroyer/)
 - [Cryptocurrency is an abject disaster](https://roytang.net/2021/04/cryptocurrency-is-an-abject-disaster/)
 - [Exploiting vulnerabilities in Cellebrite UFED and Physical Analyzer from an app&#x27;s perspective](https://roytang.net/2021/04/exploiting-vulnerabilities-in-cellebrite-ufed-and-physical-analyzer-from-an-apps-perspective/)
 - [No Wrong Notes](https://roytang.net/2021/04/no-wrong-notes/)
-- [Make Everything Important](https://roytang.net/2021/04/make-everything-important/)
 
 [View all links](https://roytang.net/links)
 
