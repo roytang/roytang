@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 28, 2021, 4:33 p.m.](https://roytang.net/2021/04/1387324164910981121/): OPLAN: WE&#x27;RE NOT THE WORST Quoted PhilstarNews&#x27;s tweet: JUST IN: PCOO News and Information Bureau head Virginia Arcilla-Agtay confirms that there is a memo directing them to give updates on global data on the pandemic to show that the Philippines is doing better than other countries. | via @XaveGregorio OPLAN LOWER STANDARDS
 - [April 28, 2021, 4:05 p.m.](https://roytang.net/2021/04/1387316978612948998/): Throwing away gems on Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven
 - [April 28, 2021, 5:11 a.m.](https://roytang.net/2021/04/1387152469197692932/): I got this PM on discord. I like how he opens with &quot;I&#x27;m a fraudster&quot;, then immediately asserts his reputation
 - [April 27, 2021, 7:32 p.m.](https://roytang.net/2021/04/1387006717796315136/): This looks like a job for... #sketchdaily 116/365
 - [April 27, 2021, 12:10 a.m.](https://roytang.net/2021/04/1386714197065572353/): Quick #sketchdaily catchup Shocked pikachu: 113/365 Bald eagle: 114/365 Cabbage: 115/365
-- [April 26, 2021, 3:54 p.m.](https://roytang.net/2021/04/1386589537825136641/): Thursday afternoon Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Two poor drafts again today. I might be hitting a ceiling now that I&#x27;ve ranked back up into Platinum D:. Have to do better! I didn&#x27;t even rare draft this time! YT: https://www.youtube.com/watch?v=kgwy4bEulbs
 
 [View all notes](https://roytang.net/notes)
 
