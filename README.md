@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 29, 2021, 3:26 p.m.](https://roytang.net/2021/04/3bf3bc036db88610a1c7b3474555eb69/): Last night I accidentally watched most of the latter part of Green Hornet (2011) starring Seth Rogen. I never new he portrayed this character! Movie was reasonable popcorn action-comedy.
 - [April 29, 2021, 12:18 p.m.](https://roytang.net/2021/04/1387622193379430401/): @joshagarrado @talk2GLOBE Hi Josh! It&#x27;s you! Lol sorry, for some reason Twitter never gave me a notif for this. Apparently the bundle is part of the normal package I got when I signed up for my plan, except the first 24mo were free. So when the 24mo were up, they automatically charge me for it.
 - [April 28, 2021, 8:37 p.m.](https://roytang.net/2021/04/1387385600119037953/): Robocop #sketchdaily 117/365 This is terrible lol. Also I already had to redo it once because I didnt realize at first that the visor covers his nose
 - [April 28, 2021, 7:40 p.m.](https://roytang.net/2021/04/1387371248435417090/): Belgian man parks in garage 6cm wider than his car Your browser does not support the video tag.
 - [April 28, 2021, 4:33 p.m.](https://roytang.net/2021/04/1387324164910981121/): OPLAN: WE&#x27;RE NOT THE WORST Quoted PhilstarNews&#x27;s tweet: JUST IN: PCOO News and Information Bureau head Virginia Arcilla-Agtay confirms that there is a memo directing them to give updates on global data on the pandemic to show that the Philippines is doing better than other countries. | via @XaveGregorio OPLAN LOWER STANDARDS
-- [April 28, 2021, 4:05 p.m.](https://roytang.net/2021/04/1387316978612948998/): Throwing away gems on Strixhaven draft(s?)! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Internet was weird today so stream was on and off. Probably won&#x27;t have the full episode on YT (maybe just the last few matches). But spoiler alert: I was able to break my unlucky streak with some Quandrix + Prismari goodness! Okay, I was able to record the draft itself locally, so this draft has two videos. In order: Part 1 (draft): https://www.youtube.com/watch?v=skUg-kWzq_g Part 2 (last few matches): https://www.youtube.com/watch?v=7SuXcPVm0YQ
 
 [View all notes](https://roytang.net/notes)
 
