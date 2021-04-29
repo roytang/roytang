@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 30, 2021, 6:33 a.m.](https://roytang.net/2021/04/1387897882141880321/): @talk2GLOBE i have a question about my account, can i dm you
 - [April 29, 2021, 8:09 p.m.](https://roytang.net/2021/04/1387740912625750017/): Chef&#x27;s kiss #sketchdaily 118/365
 - [April 29, 2021, 3:26 p.m.](https://roytang.net/2021/04/3bf3bc036db88610a1c7b3474555eb69/): Last night I accidentally watched most of the latter part of Green Hornet (2011) starring Seth Rogen. I never new he portrayed this character! Movie was reasonable popcorn action-comedy.
 - [April 29, 2021, 12:18 p.m.](https://roytang.net/2021/04/1387622193379430401/): @joshagarrado @talk2GLOBE Hi Josh! It&#x27;s you! Lol sorry, for some reason Twitter never gave me a notif for this. Apparently the bundle is part of the normal package I got when I signed up for my plan, except the first 24mo were free. So when the 24mo were up, they automatically charge me for it.
 - [April 28, 2021, 8:37 p.m.](https://roytang.net/2021/04/1387385600119037953/): Robocop #sketchdaily 117/365 This is terrible lol. Also I already had to redo it once because I didnt realize at first that the visor covers his nose
-- [April 28, 2021, 7:40 p.m.](https://roytang.net/2021/04/1387371248435417090/): Belgian man parks in garage 6cm wider than his car Your browser does not support the video tag.
 
 [View all notes](https://roytang.net/notes)
 
