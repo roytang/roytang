@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [April 29, 2021, 8:09 p.m.](https://roytang.net/2021/04/1387740912625750017/): Chef&#x27;s kiss #sketchdaily 118/365
 - [April 29, 2021, 3:26 p.m.](https://roytang.net/2021/04/3bf3bc036db88610a1c7b3474555eb69/): Last night I accidentally watched most of the latter part of Green Hornet (2011) starring Seth Rogen. I never new he portrayed this character! Movie was reasonable popcorn action-comedy.
 - [April 29, 2021, 12:18 p.m.](https://roytang.net/2021/04/1387622193379430401/): @joshagarrado @talk2GLOBE Hi Josh! It&#x27;s you! Lol sorry, for some reason Twitter never gave me a notif for this. Apparently the bundle is part of the normal package I got when I signed up for my plan, except the first 24mo were free. So when the 24mo were up, they automatically charge me for it.
 - [April 28, 2021, 8:37 p.m.](https://roytang.net/2021/04/1387385600119037953/): Robocop #sketchdaily 117/365 This is terrible lol. Also I already had to redo it once because I didnt realize at first that the visor covers his nose
 - [April 28, 2021, 7:40 p.m.](https://roytang.net/2021/04/1387371248435417090/): Belgian man parks in garage 6cm wider than his car Your browser does not support the video tag.
-- [April 28, 2021, 4:33 p.m.](https://roytang.net/2021/04/1387324164910981121/): OPLAN: WE&#x27;RE NOT THE WORST Quoted PhilstarNews&#x27;s tweet: JUST IN: PCOO News and Information Bureau head Virginia Arcilla-Agtay confirms that there is a memo directing them to give updates on global data on the pandemic to show that the Philippines is doing better than other countries. | via @XaveGregorio OPLAN LOWER STANDARDS
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/6e/a3/6ea3b36f8d11840829fd91becaa41ae4.jpg)
-- ![](https://roytang.net/media/cache/0b/a6/0ba6cff5377e82a1f72ea80abe2e6eec.jpg)
-- ![](https://roytang.net/media/cache/36/2f/362f6a473176f5d6408cc6e2daadc9ac.jpg)
+- ![](https://roytang.net/media/cache/f0/17/f017d743e02da146800619d41f413d22.jpg)
+- ![](https://roytang.net/media/cache/c4/3e/c43ed3c1f666e0ad72e8402c67fc89d4.jpg)
+- ![](https://roytang.net/media/cache/19/1f/191fd65a6f30ab2648d9dd58414d6363.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
