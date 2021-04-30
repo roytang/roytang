@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
-- [April 30, 2021, 5:12 p.m.](https://roytang.net/2021/04/1388058552070201344/): Friday afternoon Strixhaven draft! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven I thought I drafted a couple of decent yet average decks, but didn&#x27;t perform too well, had a couple of bad draws. A poor end to my Strixhaven premiere draft run
+- [April 30, 2021, 7:56 p.m.](https://roytang.net/2021/04/1388100027684331520/): Phrases like &quot;insufficient evidence&quot; and &quot;no proof&quot; does nothing to dissuade people whose arguments are along the lines of &quot;it can&#x27;t hurt to try&quot; or &quot;maybe it will help&quot;. Quoted reportrdotworld&#x27;s tweet: The DOH and FDA reminded the public that they do not recommend the use of Ivermectin to treat #COVID19 due to insufficient scientific evidence. https://www.reportr.world/news/doh-fda-do-not-recommend-ivermectin-for-covid-a4736-20210430?utm_source=Twitter-reportr&amp;utm_medium=Ownshare&amp;utm_campaign=20210430-twnp-news-doh-fda-do-not-recommend-ivermectin-for-covid-a4736-20210430-twfirst The drug actively harming people would be more effective but the disadvantage of relying on science is that we can&#x27;t just make claims like that without evidence.
+- [April 30, 2021, 5:12 p.m.](https://roytang.net/2021/04/1388058552070201344/): Friday afternoon Strixhaven draft! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven I thought I drafted a couple of decent yet average decks, but didn&#x27;t perform too well, had a couple of bad draws. A poor end to my Strixhaven premiere draft run YT: https://www.youtube.com/watch?v=wIHO8W9uuAY
 - [April 30, 2021, 6:33 a.m.](https://roytang.net/2021/04/1387897882141880321/): @talk2GLOBE i have a question about my account, can i dm you
 - [April 29, 2021, 8:09 p.m.](https://roytang.net/2021/04/1387740912625750017/): Chef&#x27;s kiss #sketchdaily 118/365
 - [April 29, 2021, 3:26 p.m.](https://roytang.net/2021/04/3bf3bc036db88610a1c7b3474555eb69/): Last night I accidentally watched most of the latter part of Green Hornet (2011) starring Seth Rogen. I never new he portrayed this character! Movie was reasonable popcorn action-comedy.
-- [April 29, 2021, 12:18 p.m.](https://roytang.net/2021/04/1387622193379430401/): @joshagarrado @talk2GLOBE Hi Josh! It&#x27;s you! Lol sorry, for some reason Twitter never gave me a notif for this. Apparently the bundle is part of the normal package I got when I signed up for my plan, except the first 24mo were free. So when the 24mo were up, they automatically charge me for it.
 
 [View all notes](https://roytang.net/notes)
 
