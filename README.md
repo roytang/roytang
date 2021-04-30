@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [April 30, 2021, 5:12 p.m.](https://roytang.net/2021/04/1388058552070201344/): Friday afternoon Strixhaven draft! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven
+- [April 30, 2021, 5:12 p.m.](https://roytang.net/2021/04/1388058552070201344/): Friday afternoon Strixhaven draft! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven I thought I drafted a couple of decent yet average decks, but didn&#x27;t perform too well, had a couple of bad draws. A poor end to my Strixhaven premiere draft run
 - [April 30, 2021, 6:33 a.m.](https://roytang.net/2021/04/1387897882141880321/): @talk2GLOBE i have a question about my account, can i dm you
 - [April 29, 2021, 8:09 p.m.](https://roytang.net/2021/04/1387740912625750017/): Chef&#x27;s kiss #sketchdaily 118/365
 - [April 29, 2021, 3:26 p.m.](https://roytang.net/2021/04/3bf3bc036db88610a1c7b3474555eb69/): Last night I accidentally watched most of the latter part of Green Hornet (2011) starring Seth Rogen. I never new he portrayed this character! Movie was reasonable popcorn action-comedy.
