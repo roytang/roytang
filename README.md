@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 1, 2021, 3:15 p.m.](https://roytang.net/2021/05/1388391582605316096/): @wrongwaygoback how are the bots in quick draft?
 - [April 30, 2021, 9:07 p.m.](https://roytang.net/2021/04/183ab94b6cb10f5db0431e715cde1945/): Invincible season 1 finale was pretty great, the fight was intense and afterwards I couldn&#x27;t believe there was still half an episode to go. It&#x27;s been a while since I read the books so I&#x27;m not sure, but I think they diverged a bit from the source material, but it&#x27;s fine.The series was developed well enough, decent pacing and enough to portray the major characters well. Looking forward to season 2!
 - [April 30, 2021, 7:56 p.m.](https://roytang.net/2021/04/1388100027684331520/): Phrases like &quot;insufficient evidence&quot; and &quot;no proof&quot; does nothing to dissuade people whose arguments are along the lines of &quot;it can&#x27;t hurt to try&quot; or &quot;maybe it will help&quot;. Quoted reportrdotworld&#x27;s tweet: The DOH and FDA reminded the public that they do not recommend the use of Ivermectin to treat #COVID19 due to insufficient scientific evidence. https://www.reportr.world/news/doh-fda-do-not-recommend-ivermectin-for-covid-a4736-20210430?utm_source=Twitter-reportr&amp;utm_medium=Ownshare&amp;utm_campaign=20210430-twnp-news-doh-fda-do-not-recommend-ivermectin-for-covid-a4736-20210430-twfirst The drug actively harming people would be more effective but the disadvantage of relying on science is that we can&#x27;t just make claims like that without evidence.
 - [April 30, 2021, 5:12 p.m.](https://roytang.net/2021/04/1388058552070201344/): Friday afternoon Strixhaven draft! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven I thought I drafted a couple of decent yet average decks, but didn&#x27;t perform too well, had a couple of bad draws. A poor end to my Strixhaven premiere draft run YT: https://www.youtube.com/watch?v=wIHO8W9uuAY
 - [April 30, 2021, 6:33 a.m.](https://roytang.net/2021/04/1387897882141880321/): @talk2GLOBE i have a question about my account, can i dm you
-- [April 29, 2021, 8:09 p.m.](https://roytang.net/2021/04/1387740912625750017/): Chef&#x27;s kiss #sketchdaily 118/365
 
 [View all notes](https://roytang.net/notes)
 
