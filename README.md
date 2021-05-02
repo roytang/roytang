@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [My current HTML boilerplate](https://roytang.net/2021/05/my-current-html-boilerplate/)
 - [How to have better arguments online](https://roytang.net/2021/04/how-to-have-better-arguments-online/)
 - [Why Lichess will always be free.](https://roytang.net/2021/04/why-lichess-will-always-be-free/)
 - [How To Live In Wonder](https://roytang.net/2021/04/how-to-live-in-wonder/)
 - [Yahoo, the Destroyer](https://roytang.net/2021/04/yahoo-the-destroyer/)
-- [Cryptocurrency is an abject disaster](https://roytang.net/2021/04/cryptocurrency-is-an-abject-disaster/)
 
 [View all links](https://roytang.net/links)
 
