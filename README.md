@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 2, 2021, 6:02 p.m.](https://roytang.net/2021/05/n33ad9/): Posted on r/applehelp: 2017 Macbook Air has trouble charging Hello, I have a 2017 Macbook Air. This one still has the Magsafe charger. My problem with it is that connecting the charger to the device via the Magsafe port is super finicky, most of the time if I just plug it in straight, the device won&#x27;t charge (the battery status indicator will have the lightning bolt symbol, but if you click on it, the dropdown will say &quot;not charging&quot;) and the magsafe connector won&#x27;t light up (if it&#x27;s charging it will light up either red or green). Eventually I&#x27;m usually
 - [May 2, 2021, 2:49 p.m.](https://roytang.net/2021/05/1388747508688424960/): I’m at 2. Feels like this number would be significantly lowere here in the PH Quoted PamelaApostolo1&#x27;s tweet: 🏠 They say an average person lives in 11 homes in their lifetime. What’s your number? (I’m currently at 8🤪)
 - [May 1, 2021, 8:17 p.m.](https://roytang.net/2021/05/1388467632651730945/): Green goblin #sketchdaily 120/365
 - [May 1, 2021, 8:07 p.m.](https://roytang.net/2021/05/99d3f5dffa9b1e1f2a4029f66c2b4f2a/): I binged season 2 of Tom Clancy&#x27;s Jack Ryan this week (after watching season 1 back in 2018!). This season felt tighter than the first in terms of pacing and such.But I&#x27;m not happy with the way it promotes American interventionism and their easy willingness to interfere in the affairs of a sovereign nation (however justified it may be)
 - [May 1, 2021, 8:02 p.m.](https://roytang.net/2021/05/1388463736625803265/): Rich uncle pennybags #sketchdaily 119/365
-- [May 1, 2021, 5:27 p.m.](https://roytang.net/2021/05/1388424945730981890/): Saturday Strixhaven quick drafts! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Rare-drafted a bunch (I think 6 in the deck and 4 in the board), but still got a decent enough deck. Didn&#x27;t perform well though, had some bad keeps YT: https://www.youtube.com/watch?v=Zj5__bJDpkY
 
 [View all notes](https://roytang.net/notes)
 
