@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 2, 2021, 9:13 p.m.](https://roytang.net/2021/05/gwnpfu2/): &gt; Hold the power button for 10 seconds and plug in the mag safe connector while you keep holding down the power button for another 10 seconds at least. Was I supposed to do this while the laptop was off? because of course it started turning on in the middle of the first 10 seconds. I also tried it while the laptop was on, in which case it shutdown during the first 10 seconds. Either way, it does not seem to have changed anything. &gt; Have you thought about switching out the battery? As you mentioned, macbook airs dont have
 - [May 2, 2021, 7:54 p.m.](https://roytang.net/2021/05/gwngjmo/): I think I&#x27;ve tried this before; unsure as I&#x27;ve had this problem for a while and have been looking around for solutions for a while. Regardless, I tried it again today a couple of times, it hasn&#x27;t changed anything.
 - [May 2, 2021, 6:02 p.m.](https://roytang.net/2021/05/n33ad9/): Posted on r/applehelp: 2017 Macbook Air has trouble charging Hello, I have a 2017 Macbook Air. This one still has the Magsafe charger. My problem with it is that connecting the charger to the device via the Magsafe port is super finicky, most of the time if I just plug it in straight, the device won&#x27;t charge (the battery status indicator will have the lightning bolt symbol, but if you click on it, the dropdown will say &quot;not charging&quot;) and the magsafe connector won&#x27;t light up (if it&#x27;s charging it will light up either red or green). Eventually I&#x27;m usually
 - [May 2, 2021, 2:49 p.m.](https://roytang.net/2021/05/1388747508688424960/): I’m at 2. Feels like this number would be significantly lowere here in the PH Quoted PamelaApostolo1&#x27;s tweet: 🏠 They say an average person lives in 11 homes in their lifetime. What’s your number? (I’m currently at 8🤪)
 - [May 1, 2021, 8:17 p.m.](https://roytang.net/2021/05/1388467632651730945/): Green goblin #sketchdaily 120/365
-- [May 1, 2021, 8:07 p.m.](https://roytang.net/2021/05/99d3f5dffa9b1e1f2a4029f66c2b4f2a/): I binged season 2 of Tom Clancy&#x27;s Jack Ryan this week (after watching season 1 back in 2018!). This season felt tighter than the first in terms of pacing and such.But I&#x27;m not happy with the way it promotes American interventionism and their easy willingness to interfere in the affairs of a sovereign nation (however justified it may be)
 
 [View all notes](https://roytang.net/notes)
 
