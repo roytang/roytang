@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-05-02](https://roytang.net/2021/05/weeknotes-2021-05-02/)
 - [Math and Privilege](https://roytang.net/2021/04/math-privilege/)
 - [Ludum Dare 48: Diver](https://roytang.net/2021/04/ludum-dare-48-diver/)
 - [The Falcon and the Winter Soldier Review](https://roytang.net/2021/04/fatws/)
 - [Weeknotes 2021-04-25: Game Jammin&#x27;](https://roytang.net/2021/04/weeknotes-2021-04-25/)
-- [Blogs of Yesteryear Part 2](https://roytang.net/2021/04/blogs-of-yesteryear-2/)
 
 [View all posts](https://roytang.net/blog)
 
