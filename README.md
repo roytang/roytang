@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [May 3, 2021, 10:29 p.m.](https://roytang.net/2021/05/1389225567749165057/): Iguana #sketchdaily 122/365 I will fully admit to being mildly freaked out by the scales both while drawing this and while looking at reference images of igaunas
 - [May 3, 2021, 9:46 p.m.](https://roytang.net/2021/05/1389214746822385668/): The world may change and evolve, but the one thing that will never change: we’re all part of one big family. Your browser does not support the video tag.
 - [May 3, 2021, 9:22 p.m.](https://roytang.net/2021/05/1389208741283733508/): that cold open from brooklyn99 but as a japanese dub lol (b99 is on ntflxJP) Your browser does not support the video tag.
 - [May 3, 2021, 9:20 p.m.](https://roytang.net/2021/05/1389208170111799297/): Hashtag Pinoy Pride Quoted paulg&#x27;s tweet: Over 6% of the plastic in the ocean comes from a single river in the Philippines.
 - [May 3, 2021, 8:54 p.m.](https://roytang.net/2021/05/1389201688112746501/): Harpy #sketchdaily 121/365
-- [May 3, 2021, 5:12 p.m.](https://roytang.net/2021/05/1389145956604686336/): Monday Strixhaven quick drafts! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #twitter #mtgstrixhaven Did two quick drafts today, both were mediocre, but one was slightly better than the other. Probably one more QD stream this week before sealed open on the weekend! YT episode split into two because the stream hiccuped in the middle. Part 1: https://www.youtube.com/watch?v=zSEJrwquasA Part 2: https://www.youtube.com/watch?v=2cFee-AHMZA
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/86/f7/86f732151285571024b55de8c667bdb3.jpg)
 - ![](https://roytang.net/media/cache/f7/8d/f78d05d626217f36f15886fdbdd90701.jpg)
 - ![](https://roytang.net/media/cache/04/7c/047c4f4bd04b599ef1ecf3e6204d07c9.jpg)
+- ![](https://roytang.net/media/cache/e6/73/e6738b9bdb2f251907558a32e05d6f20.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
