@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 3, 2021, 9:46 p.m.](https://roytang.net/2021/05/1389214746822385668/): The world may change and evolve, but the one thing that will never change: we’re all part of one big family. Your browser does not support the video tag.
 - [May 3, 2021, 9:22 p.m.](https://roytang.net/2021/05/1389208741283733508/): that cold open from brooklyn99 but as a japanese dub lol (b99 is on ntflxJP) Your browser does not support the video tag.
 - [May 3, 2021, 9:20 p.m.](https://roytang.net/2021/05/1389208170111799297/): Hashtag Pinoy Pride Quoted paulg&#x27;s tweet: Over 6% of the plastic in the ocean comes from a single river in the Philippines.
 - [May 3, 2021, 8:54 p.m.](https://roytang.net/2021/05/1389201688112746501/): Harpy #sketchdaily 121/365
 - [May 3, 2021, 5:12 p.m.](https://roytang.net/2021/05/1389145956604686336/): Monday Strixhaven quick drafts! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #twitter #mtgstrixhaven Did two quick drafts today, both were mediocre, but one was slightly better than the other. Probably one more QD stream this week before sealed open on the weekend! YT episode split into two because the stream hiccuped in the middle. Part 1: https://www.youtube.com/watch?v=zSEJrwquasA Part 2: https://www.youtube.com/watch?v=2cFee-AHMZA
-- [May 2, 2021, 9:13 p.m.](https://roytang.net/2021/05/gwnpfu2/): &gt; Hold the power button for 10 seconds and plug in the mag safe connector while you keep holding down the power button for another 10 seconds at least. Was I supposed to do this while the laptop was off? because of course it started turning on in the middle of the first 10 seconds. I also tried it while the laptop was on, in which case it shutdown during the first 10 seconds. Either way, it does not seem to have changed anything. &gt; Have you thought about switching out the battery? As you mentioned, macbook airs dont have
 
 [View all notes](https://roytang.net/notes)
 
