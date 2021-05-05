@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [May 5, 2021, 11:39 p.m.](https://roytang.net/2021/05/1389968031023988739/): Koala knight in a kapsizing kayak #sketchdaily 124/365
+- [May 5, 2021, 11:39 p.m.](https://roytang.net/2021/05/1389967911674990597/): Joyriding jackals in a jumping jeep #sketchdaily 123/365
 - [May 5, 2021, 6:22 p.m.](https://roytang.net/2021/05/1389888129239339012/): Wednesday evening Strixhaven quick drafts! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Two quick drafts today! Finally managed to get 7 wins in quick draft by forcing silverquill aggro! Well, maybe the Lightscribe helped a lot! YT: https://www.youtube.com/watch?v=GldXRNMt6Eg
 - [May 4, 2021, 6:42 a.m.](https://roytang.net/2021/05/1389349579091365888/): Bill Gates separating from his wife right after Queen Elizabeth becomes single again. Coincidence?
 - [May 3, 2021, 11:20 p.m.](https://roytang.net/2021/05/1389238548566462466/): Dan Harmon&#x27;s amazing writers&#x27; advice
-- [May 3, 2021, 10:29 p.m.](https://roytang.net/2021/05/1389225567749165057/): Iguana #sketchdaily 122/365 I will fully admit to being mildly freaked out by the scales both while drawing this and while looking at reference images of igaunas This is my excuse for not drawing more of the iguana.
-- [May 3, 2021, 9:46 p.m.](https://roytang.net/2021/05/1389214746822385668/): The world may change and evolve, but the one thing that will never change: we’re all part of one big family. Your browser does not support the video tag.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/f7/8d/f78d05d626217f36f15886fdbdd90701.jpg)
-- ![](https://roytang.net/media/cache/04/7c/047c4f4bd04b599ef1ecf3e6204d07c9.jpg)
 - ![](https://roytang.net/media/cache/e6/73/e6738b9bdb2f251907558a32e05d6f20.jpg)
+- ![](https://roytang.net/media/cache/a6/70/a6705729a54466a5c8d8737eac81c799.jpg)
+- ![](https://roytang.net/media/cache/24/98/249841a890af3d3e3574e8859485d847.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
