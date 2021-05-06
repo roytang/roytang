@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 6, 2021, 2:13 p.m.](https://roytang.net/2021/05/1390187986503954434/): @zaaaldehyde I&#x27;ve walked most of the northbound side of EDSA from around Trinoma QAve and Araneta to Ortigas/Pioneer I don&#x27;t recall having any trouble, but it&#x27;s been a while. Have the sidewalks been repurposed in the last 2-3 years?
 - [May 6, 2021, 10:58 a.m.](https://roytang.net/2021/05/gx3wfyz/): This mindset reflects someone who doesn&#x27;t respect institutions or the law or civilized agreements, and basically respects only one thing: power. That&#x27;s why he thinks people who oppose China want war and why he doesn&#x27;t want to offend China, power is all he sees and values, like the thug that he is. For this kind of person, you can&#x27;t be right because of the law or because of principle, or because of justice, you can only be right if you had the ability to enforce that right. Basically the type of leader who would just collaborate with any invaders who
 - [May 6, 2021, 10:39 a.m.](https://roytang.net/2021/05/1390134185222832132/): This mindset reflects someone who doesn&#x27;t respect institutions or the law or civilized agreements, and basically respects only one thing: power. That&#x27;s why he thinks people who oppose China wants war and why he doesn&#x27;t want to offend them, power is all he sees, like thug he is Quoted gmanews&#x27;s tweet: President Rodrigo Duterte on Wednesday night said the Philippines&#x27; arbitral victory in 2016 against China&#x27;s massive claims in the West Philippine Sea before the United Nations is just paper fit to be thrown in the trash. READ: https://bit.ly/3vFlmpJ For this kind of person, you can&#x27;t be right because of
 - [May 5, 2021, 11:39 p.m.](https://roytang.net/2021/05/1389968031023988739/): Koala knight in a kapsizing kayak #sketchdaily 124/365
 - [May 5, 2021, 11:39 p.m.](https://roytang.net/2021/05/1389967911674990597/): Joyriding jackals in a jumping jeep #sketchdaily 123/365
-- [May 5, 2021, 6:22 p.m.](https://roytang.net/2021/05/1389888129239339012/): Wednesday evening Strixhaven quick drafts! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgstrixhaven Two quick drafts today! Finally managed to get 7 wins in quick draft by forcing silverquill aggro! Well, maybe the Lightscribe helped a lot! YT: https://www.youtube.com/watch?v=GldXRNMt6Eg
 
 [View all notes](https://roytang.net/notes)
 
