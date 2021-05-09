@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 9, 2021, 3:28 p.m.](https://roytang.net/2021/05/1391294087064477699/): Got my second shot today! Sinovac, but eh whatever that’s fine. Much quicker process this time, I got the shot less than twenty mins after arrival, done after fortyish minutes. No issues / adverse effects so far.
 - [May 7, 2021, 9:49 p.m.](https://roytang.net/2021/05/1390664993033445377/): Magnus #sketchdaily 126/365
 - [May 7, 2021, 2:05 a.m.](https://roytang.net/2021/05/1390367126305742848/): Lazy lemur #sketchdaily 125/365
 - [May 7, 2021, 1:47 a.m.](https://roytang.net/2021/05/1390362590501474304/): Every time I accidentally nap after dinner I have to pay for it by being unable to sleep until 3am then waking up late and missing my morning walk window D:
 - [May 6, 2021, 10:37 p.m.](https://roytang.net/2021/05/1390314765646372867/): Globe sent me a survey form so I took the opportunity to complain about my recent customer service interaction. The form actually refused to submit, and I can see there&#x27;s a JSON parse error in the browser console. Unsurprising.
-- [May 6, 2021, 2:13 p.m.](https://roytang.net/2021/05/1390187986503954434/): @zaaaldehyde I&#x27;ve walked most of the northbound side of EDSA from around Trinoma QAve and Araneta to Ortigas/Pioneer I don&#x27;t recall having any trouble, but it&#x27;s been a while. Have the sidewalks been repurposed in the last 2-3 years?
 
 [View all notes](https://roytang.net/notes)
 
