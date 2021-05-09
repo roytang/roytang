@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 9, 2021, 5:13 p.m.](https://roytang.net/2021/05/1391320419060183040/): Threw some gems away again on this month&#x27;s #magicarena #mtgstrixhaven sealed open, ended up playing Silverquill splashing red since I had Professor Onyx and Lukka. See how it turned out: https://www.youtube.com/watch?v=4B9Do6_8YME
 - [May 9, 2021, 3:28 p.m.](https://roytang.net/2021/05/1391294087064477699/): Got my second shot today! Sinovac, but eh whatever that’s fine. Much quicker process this time, I got the shot less than twenty mins after arrival, done after fortyish minutes. No issues / adverse effects so far.
 - [May 7, 2021, 9:49 p.m.](https://roytang.net/2021/05/1390664993033445377/): Magnus #sketchdaily 126/365
 - [May 7, 2021, 2:05 a.m.](https://roytang.net/2021/05/1390367126305742848/): Lazy lemur #sketchdaily 125/365
 - [May 7, 2021, 1:47 a.m.](https://roytang.net/2021/05/1390362590501474304/): Every time I accidentally nap after dinner I have to pay for it by being unable to sleep until 3am then waking up late and missing my morning walk window D:
-- [May 6, 2021, 10:37 p.m.](https://roytang.net/2021/05/1390314765646372867/): Globe sent me a survey form so I took the opportunity to complain about my recent customer service interaction. The form actually refused to submit, and I can see there&#x27;s a JSON parse error in the browser console. Unsurprising.
 
 [View all notes](https://roytang.net/notes)
 
