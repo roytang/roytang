@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-05-09](https://roytang.net/2021/05/weeknotes-2021-05-09/)
 - [Book Review: Snow Crash by Neal Stephenson](https://roytang.net/2021/05/snow-crash/)
 - [Digital Boardgames Review: Root](https://roytang.net/2021/05/root/)
 - [Weeknotes 2021-05-02](https://roytang.net/2021/05/weeknotes-2021-05-02/)
 - [Math and Privilege](https://roytang.net/2021/04/math-privilege/)
-- [Ludum Dare 48: Diver](https://roytang.net/2021/04/ludum-dare-48-diver/)
 
 [View all posts](https://roytang.net/blog)
 
