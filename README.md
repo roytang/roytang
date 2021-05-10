@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [May 10, 2021, 7:57 p.m.](https://roytang.net/2021/05/1391724098376454152/): Owl #sketchdaily 128/365
 - [May 10, 2021, 7:41 p.m.](https://roytang.net/2021/05/1391720092199649286/): Noodles #sketchdaily 127/365
 - [May 10, 2021, 5:50 p.m.](https://roytang.net/2021/05/ba2999c2cc9d8803ad982d24e52035e6/): Bond movie no. 9: The Man With The Golden Gun (1974). Christopher Lee was a Bond villain! Beirut, Macau, Hong Kong, Bangkok. An Asian girl is introduced just for the pun in her name. Comic relief southern sheriff dude is back from the previous film. Final fight scene with Nick Nack was ridiculous. As per usual, Bond gets captured and the bad guy explains everything. Still not used to Roger Moore in the role.
 - [May 9, 2021, 5:13 p.m.](https://roytang.net/2021/05/1391320419060183040/): Threw some gems away again on this month&#x27;s #magicarena #mtgstrixhaven sealed open, ended up playing Silverquill splashing red since I had Professor Onyx and Lukka. See how it turned out: https://www.youtube.com/watch?v=4B9Do6_8YME
 - [May 9, 2021, 3:28 p.m.](https://roytang.net/2021/05/1391294087064477699/): Got my second shot today! Sinovac, but eh whatever that’s fine. Much quicker process this time, I got the shot less than twenty mins after arrival, done after fortyish minutes. No issues / adverse effects so far.
-- [May 7, 2021, 9:49 p.m.](https://roytang.net/2021/05/1390664993033445377/): Magnus #sketchdaily 126/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/a9/7e/a97e3c24a1202d32c6bc29d22aec4d50.jpg)
 - ![](https://roytang.net/media/cache/fa/e3/fae3944698485fee9ab8f57da1a9c8f0.jpg)
 - ![](https://roytang.net/media/cache/51/5b/515b212fc40a4b82216c9bd45b4b24f6.jpg)
+- ![](https://roytang.net/media/cache/02/37/023706d0e7ebb0d7f4cc018e3dd54ec1.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
