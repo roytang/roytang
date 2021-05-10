@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 10, 2021, 8:21 p.m.](https://roytang.net/2021/05/1391730047287922688/): @HerdImmunityPH Which rate is used to compute the estimated herd immunity date? The most recent 7 day rolling average?
 - [May 10, 2021, 8:09 p.m.](https://roytang.net/2021/05/1391727135916654594/): The character Zimone from #mtg Strixhaven reminds me of Kasie from NCIS
 - [May 10, 2021, 7:57 p.m.](https://roytang.net/2021/05/1391724098376454152/): Owl #sketchdaily 128/365
 - [May 10, 2021, 7:41 p.m.](https://roytang.net/2021/05/1391720092199649286/): Noodles #sketchdaily 127/365
 - [May 10, 2021, 5:50 p.m.](https://roytang.net/2021/05/ba2999c2cc9d8803ad982d24e52035e6/): Bond movie no. 9: The Man With The Golden Gun (1974). Christopher Lee was a Bond villain! Beirut, Macau, Hong Kong, Bangkok. An Asian girl is introduced just for the pun in her name. Comic relief southern sheriff dude is back from the previous film. Final fight scene with Nick Nack was ridiculous. As per usual, Bond gets captured and the bad guy explains everything. Still not used to Roger Moore in the role.
-- [May 9, 2021, 5:13 p.m.](https://roytang.net/2021/05/1391320419060183040/): Threw some gems away again on this month&#x27;s #magicarena #mtgstrixhaven sealed open, ended up playing Silverquill splashing red since I had Professor Onyx and Lukka. See how it turned out: https://www.youtube.com/watch?v=4B9Do6_8YME
 
 [View all notes](https://roytang.net/notes)
 
