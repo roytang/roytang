@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [May 11, 2021, 6:59 p.m.](https://roytang.net/2021/05/1392071754915352577/): The queen quilting while some quail quarrel #sketchdaily 130/365
+- [May 11, 2021, 6:50 p.m.](https://roytang.net/2021/05/1392069613786042371/): A panda playing piano in Paris #sketchdaily 129/365
 - [May 11, 2021, 5:03 p.m.](https://roytang.net/2021/05/1392042759863689217/): Earlier today I watched The Mitchells vs the Machines on Netflix. It&#x27;s a well-done, fantastic, ridiculous, fun, clever, family-friendly adventure, I really enjoyed it.
 - [May 10, 2021, 8:21 p.m.](https://roytang.net/2021/05/1391730047287922688/): @HerdImmunityPH Which rate is used to compute the estimated herd immunity date? The most recent 7 day rolling average?
 - [May 10, 2021, 8:09 p.m.](https://roytang.net/2021/05/1391727135916654594/): The character Zimone from #mtg Strixhaven reminds me of Kasie from NCIS
-- [May 10, 2021, 7:57 p.m.](https://roytang.net/2021/05/1391724098376454152/): Owl #sketchdaily 128/365
-- [May 10, 2021, 7:41 p.m.](https://roytang.net/2021/05/1391720092199649286/): Noodles #sketchdaily 127/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/fa/e3/fae3944698485fee9ab8f57da1a9c8f0.jpg)
-- ![](https://roytang.net/media/cache/51/5b/515b212fc40a4b82216c9bd45b4b24f6.jpg)
 - ![](https://roytang.net/media/cache/02/37/023706d0e7ebb0d7f4cc018e3dd54ec1.jpg)
+- ![](https://roytang.net/media/cache/d3/59/d35921047a8465958e386630644eb64e.jpg)
+- ![](https://roytang.net/media/cache/1b/81/1b81f093fd876c59395bfa4da1a750ec.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
