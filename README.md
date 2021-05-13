@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [May 13, 2021, 9 p.m.](https://roytang.net/2021/05/1392827143109832705/): Snoopy shocked by scandalous snowmen #sketchdaily 132/365 (I may or may not have reused the Calvin and Hobbes part from an older sketch)
 - [May 12, 2021, 8:13 p.m.](https://roytang.net/2021/05/1392452974719340545/): Robin riding a reindeer #sketchdaily 131/365
 - [May 11, 2021, 9:40 p.m.](https://roytang.net/2021/05/gxq7jq3/): Oh this happened to me also earlier! I was wondering if there was some onboard effect that I missed that killed me lol
 - [May 11, 2021, 6:59 p.m.](https://roytang.net/2021/05/1392071754915352577/): The queen quilting while some quail quarrel #sketchdaily 130/365
 - [May 11, 2021, 6:50 p.m.](https://roytang.net/2021/05/1392069613786042371/): A panda playing piano in Paris #sketchdaily 129/365
-- [May 11, 2021, 5:03 p.m.](https://roytang.net/2021/05/1392042759863689217/): Earlier today I watched The Mitchells vs the Machines on Netflix. It&#x27;s a well-done, fantastic, ridiculous, fun, clever, family-friendly adventure, I really enjoyed it.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/d3/59/d35921047a8465958e386630644eb64e.jpg)
 - ![](https://roytang.net/media/cache/1b/81/1b81f093fd876c59395bfa4da1a750ec.jpg)
 - ![](https://roytang.net/media/cache/70/8a/708a781d5f08e9e6664f89d6609d4bcc.jpg)
+- ![](https://roytang.net/media/cache/80/7d/807d6e6022a109c71a2b44b0deff60c8.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
