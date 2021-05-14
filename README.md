@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Why Bad CEOs Fear Remote Work](https://roytang.net/2021/05/why-bad-ceos-fear-remote-work/)
 - [The Memex Method](https://roytang.net/2021/05/the-memex-method/)
 - [One million people saw my dumbest tweet](https://roytang.net/2021/05/one-million-people-saw-my-dumbest-tweet/)
 - [My current HTML boilerplate](https://roytang.net/2021/05/my-current-html-boilerplate/)
 - [How to have better arguments online](https://roytang.net/2021/04/how-to-have-better-arguments-online/)
-- [Why Lichess will always be free.](https://roytang.net/2021/04/why-lichess-will-always-be-free/)
 
 [View all links](https://roytang.net/links)
 
