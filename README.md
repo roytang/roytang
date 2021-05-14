@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 14, 2021, 8:55 p.m.](https://roytang.net/2021/05/1393188144049098752/): #StreetFighterV: Why does the higher ranked guy get 2.5x more league points than I lose? Seems like his win points should be downscaled for beating a lower ranked guy.
 - [May 13, 2021, 9 p.m.](https://roytang.net/2021/05/1392827143109832705/): Snoopy shocked by scandalous snowmen #sketchdaily 132/365 (I may or may not have reused the Calvin and Hobbes part from an older sketch)
 - [May 12, 2021, 8:13 p.m.](https://roytang.net/2021/05/1392452974719340545/): Robin riding a reindeer #sketchdaily 131/365
 - [May 11, 2021, 9:40 p.m.](https://roytang.net/2021/05/gxq7jq3/): Oh this happened to me also earlier! I was wondering if there was some onboard effect that I missed that killed me lol
 - [May 11, 2021, 6:59 p.m.](https://roytang.net/2021/05/1392071754915352577/): The queen quilting while some quail quarrel #sketchdaily 130/365
-- [May 11, 2021, 6:50 p.m.](https://roytang.net/2021/05/1392069613786042371/): A panda playing piano in Paris #sketchdaily 129/365
 
 [View all notes](https://roytang.net/notes)
 
