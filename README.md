@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [May 15, 2021, 2:44 p.m.](https://roytang.net/2021/05/1393457163608018947/): Gonna attempt this today. I have poor manual dexterity so I expect it to be terrible #onepiece Most challenging part for me and my shaky fingers are the tiny tiny stickers Starting to come together. I&#x27;ve already lost one tiny sticker
+- [May 15, 2021, 2:44 p.m.](https://roytang.net/2021/05/1393457163608018947/): Gonna attempt this today. I have poor manual dexterity so I expect it to be terrible #onepiece Most challenging part for me and my shaky fingers are the tiny tiny stickers Starting to come together. I&#x27;ve already lost one tiny sticker I did poorly applying the jolly roger sticker to the sail, and the rear deck is a bit loose, but I guess I can live with those. Low standards! I realized I didnt have a place to display it, so I had to clear out a hole. Anyway, it&#x27;s done!
 - [May 15, 2021, 10:47 a.m.](https://roytang.net/2021/05/1393397698439520259/): @Woerlan aren&#x27;t you mostly a commander player now anyway? Were you still following the pro scene? (I know I wasn&#x27;t) Still hoping GPs come back in one form or another though, those were fun
 - [May 14, 2021, 8:55 p.m.](https://roytang.net/2021/05/1393188144049098752/): #StreetFighterV: Why does the higher ranked guy get 2.5x more league points than I lose? Seems like his win points should be downscaled for beating a lower ranked guy.
 - [May 13, 2021, 9 p.m.](https://roytang.net/2021/05/1392827143109832705/): Snoopy shocked by scandalous snowmen #sketchdaily 132/365 (I may or may not have reused the Calvin and Hobbes part from an older sketch)
