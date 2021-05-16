@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-05-16](https://roytang.net/2021/05/weeknotes-2021-05-16/)
 - [Saturday Afternoon Activity: Assembling a One Piece ship!](https://roytang.net/2021/05/going-merry-kit/)
 - [Weeknotes 2021-05-09](https://roytang.net/2021/05/weeknotes-2021-05-09/)
 - [Book Review: Snow Crash by Neal Stephenson](https://roytang.net/2021/05/snow-crash/)
 - [Digital Boardgames Review: Root](https://roytang.net/2021/05/root/)
-- [Weeknotes 2021-05-02](https://roytang.net/2021/05/weeknotes-2021-05-02/)
 
 [View all posts](https://roytang.net/blog)
 
