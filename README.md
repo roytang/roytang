@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [May 17, 2021, 7:37 p.m.](https://roytang.net/2021/05/1394255736272785411/): Woncer Woman wrestles a wild wombat #sketchdaily 136/365
+- [May 17, 2021, 7:37 p.m.](https://roytang.net/2021/05/1394255736272785411/): Woncer Woman wrestles a wild wombat #sketchdaily 136/365 Sigh, typo D:
 - [May 17, 2021, 7:18 p.m.](https://roytang.net/2021/05/1394250880933838849/): Vaccination #sketchdaily 135/365
 - [May 17, 2021, 1:33 a.m.](https://roytang.net/2021/05/c72ceb2e3748ccd8611baab1cbfdfe74/): I finished reading What Matters Now by Seth Godin, a book that is basically a collection of short blog posts by &quot;big thinkers&quot;, released for free back in 2009. Interestingly, a lot of the ideas presented in the book still feel relevant today. I didn&#x27;t think it needed a full review post. The funniest part for me is that one of the entries is by Jason Fried about how to apologize, advice he certainly could have used during the recent Bandcamp brouhaha You can get a copy here
 - [May 16, 2021, 8:36 p.m.](https://roytang.net/2021/05/1393908190207692805/): Unicorn 134/365 #sketchdaily
