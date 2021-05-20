@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 20, 2021, 2:48 p.m.](https://roytang.net/2021/05/ea715fa4d23937c15e47022adf93e192/): Bond film no. 10: The Spy Who Loved Me (1977). The best Moore installment so far. Excellent opening sequence. Austria; Cairo, Egypt; Sardinia, Italy. 007 and Triple-X have great chemistry. Jaws has to be the most unstoppable Bond villain / henchman. Stromberg&#x27;s Atlantis reminds me of the Legion of Doom&#x27;s base in the old Superfriends cartoon. Actually, I think his evil plan might be the best one so far as well.I wonder if I can get through the rest of these before No Time to Die actually comes out lol.
 - [May 19, 2021, 3:41 p.m.](https://roytang.net/2021/05/1394921108898422786/): @paulcatiang Anecdotally, I think jan sa Batasan talaga yung worst na vax site sa qc
 - [May 18, 2021, 9:25 p.m.](https://roytang.net/2021/05/1394645436946780163/): Xenomorph x-raying x-men while playing the xylophone #sketchdaily 137/365
 - [May 17, 2021, 7:37 p.m.](https://roytang.net/2021/05/1394255736272785411/): Woncer Woman wrestles a wild wombat #sketchdaily 136/365 Sigh, typo D:
 - [May 17, 2021, 7:18 p.m.](https://roytang.net/2021/05/1394250880933838849/): Vaccination #sketchdaily 135/365
-- [May 17, 2021, 1:33 a.m.](https://roytang.net/2021/05/c72ceb2e3748ccd8611baab1cbfdfe74/): I finished reading What Matters Now by Seth Godin, a book that is basically a collection of short blog posts by &quot;big thinkers&quot;, released for free back in 2009. Interestingly, a lot of the ideas presented in the book still feel relevant today. I didn&#x27;t think it needed a full review post. The funniest part for me is that one of the entries is by Jason Fried about how to apologize, advice he certainly could have used during the recent Bandcamp brouhaha You can get a copy here
 
 [View all notes](https://roytang.net/notes)
 
