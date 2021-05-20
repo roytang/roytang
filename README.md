@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 20, 2021, 11:24 p.m.](https://roytang.net/2021/05/1395400051254382598/): @triviastorm teenage mutant ninja turtles
 - [May 20, 2021, 10:41 p.m.](https://roytang.net/2021/05/1395389207523119107/): Zeus #sketchdaily 139/365
 - [May 20, 2021, 10:33 p.m.](https://roytang.net/2021/05/1395387292206784512/): Yoshi #sketchdaily 138/365
 - [May 20, 2021, 2:48 p.m.](https://roytang.net/2021/05/ea715fa4d23937c15e47022adf93e192/): Bond film no. 10: The Spy Who Loved Me (1977). The best Moore installment so far. Excellent opening sequence. Austria; Cairo, Egypt; Sardinia, Italy. 007 and Triple-X have great chemistry. Jaws has to be the most unstoppable Bond villain / henchman. Stromberg&#x27;s Atlantis reminds me of the Legion of Doom&#x27;s base in the old Superfriends cartoon. Actually, I think his evil plan might be the best one so far as well.I wonder if I can get through the rest of these before No Time to Die actually comes out lol.
 - [May 19, 2021, 3:41 p.m.](https://roytang.net/2021/05/1394921108898422786/): @paulcatiang Anecdotally, I think jan sa Batasan talaga yung worst na vax site sa qc
-- [May 18, 2021, 9:25 p.m.](https://roytang.net/2021/05/1394645436946780163/): Xenomorph x-raying x-men while playing the xylophone #sketchdaily 137/365
 
 [View all notes](https://roytang.net/notes)
 
