@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Poor in Tech | Meg Elison](https://roytang.net/2021/05/poor-in-tech-meg-elison/)
 - [The Open-Source Software bubble that is and the blogging bubble that was](https://roytang.net/2021/05/the-open-source-software-bubble-that-is-and-the-blogging-bubble-that-was/)
 - [Why Bad CEOs Fear Remote Work](https://roytang.net/2021/05/why-bad-ceos-fear-remote-work/)
 - [The Memex Method](https://roytang.net/2021/05/the-memex-method/)
 - [One million people saw my dumbest tweet](https://roytang.net/2021/05/one-million-people-saw-my-dumbest-tweet/)
-- [My current HTML boilerplate](https://roytang.net/2021/05/my-current-html-boilerplate/)
 
 [View all links](https://roytang.net/links)
 
