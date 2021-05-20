@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [May 20, 2021, 10:41 p.m.](https://roytang.net/2021/05/1395389207523119107/): Zeus #sketchdaily 139/365
+- [May 20, 2021, 10:33 p.m.](https://roytang.net/2021/05/1395387292206784512/): Yoshi #sketchdaily 138/365
 - [May 20, 2021, 2:48 p.m.](https://roytang.net/2021/05/ea715fa4d23937c15e47022adf93e192/): Bond film no. 10: The Spy Who Loved Me (1977). The best Moore installment so far. Excellent opening sequence. Austria; Cairo, Egypt; Sardinia, Italy. 007 and Triple-X have great chemistry. Jaws has to be the most unstoppable Bond villain / henchman. Stromberg&#x27;s Atlantis reminds me of the Legion of Doom&#x27;s base in the old Superfriends cartoon. Actually, I think his evil plan might be the best one so far as well.I wonder if I can get through the rest of these before No Time to Die actually comes out lol.
 - [May 19, 2021, 3:41 p.m.](https://roytang.net/2021/05/1394921108898422786/): @paulcatiang Anecdotally, I think jan sa Batasan talaga yung worst na vax site sa qc
 - [May 18, 2021, 9:25 p.m.](https://roytang.net/2021/05/1394645436946780163/): Xenomorph x-raying x-men while playing the xylophone #sketchdaily 137/365
-- [May 17, 2021, 7:37 p.m.](https://roytang.net/2021/05/1394255736272785411/): Woncer Woman wrestles a wild wombat #sketchdaily 136/365 Sigh, typo D:
-- [May 17, 2021, 7:18 p.m.](https://roytang.net/2021/05/1394250880933838849/): Vaccination #sketchdaily 135/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/7a/ed/7aed92b015cbdcd9eac2017d0ccbab5e.jpg)
-- ![](https://roytang.net/media/cache/d8/a7/d8a7dafc58a253f4da70895fb05d3c9a.jpg)
 - ![](https://roytang.net/media/cache/3d/11/3d1197dee3728086f839d031528fe912.jpg)
+- ![](https://roytang.net/media/cache/65/60/6560b4b66f30944b1c0a78e3d4416b6a.jpg)
+- ![](https://roytang.net/media/cache/46/28/462850b8ffe34d56906ceaaf89cce83b.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
