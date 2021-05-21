@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 22, 2021, 6:11 a.m.](https://roytang.net/2021/05/1395864858273349632/): THE LINDA LINDAS Your browser does not support the video tag.
 - [May 22, 2021, 5:41 a.m.](https://roytang.net/2021/05/7053c993545123cbbd30100c4381b26f/): Does the internet archive have an API for sending URLs/links to be indexed for archiving?
 - [May 21, 2021, 4:48 p.m.](https://roytang.net/2021/05/09b5a24d69042602b9ac909e277987a6/): Watched Mortal Kombat (2021). Some friends tried to tell me not to waste my time, but joke&#x27;s on them I enjoyed it anyway! In hindsight, the plot was pretty flimsy, but I enjoyed the fights. It&#x27;s basically what you&#x27;d expect lol.
 - [May 21, 2021, 11:34 a.m.](https://roytang.net/2021/05/1395583876303523842/): @mlq3 I think some mobile apps like Unionbank allow to make check deposits online by submitting a photo of the check
 - [May 20, 2021, 11:24 p.m.](https://roytang.net/2021/05/1395400051254382598/): @triviastorm teenage mutant ninja turtles
-- [May 20, 2021, 10:41 p.m.](https://roytang.net/2021/05/1395389207523119107/): Zeus #sketchdaily 139/365
 
 [View all notes](https://roytang.net/notes)
 
