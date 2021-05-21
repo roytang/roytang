@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 21, 2021, 4:48 p.m.](https://roytang.net/2021/05/09b5a24d69042602b9ac909e277987a6/): Watched Mortal Kombat (2021). Some friends tried to tell me not to waste my time, but joke&#x27;s on them I enjoyed it anyway! In hindsight, the plot was pretty flimsy, but I enjoyed the fights. It&#x27;s basically what you&#x27;d expect lol.
 - [May 21, 2021, 11:34 a.m.](https://roytang.net/2021/05/1395583876303523842/): @mlq3 I think some mobile apps like Unionbank allow to make check deposits online by submitting a photo of the check
 - [May 20, 2021, 11:24 p.m.](https://roytang.net/2021/05/1395400051254382598/): @triviastorm teenage mutant ninja turtles
 - [May 20, 2021, 10:41 p.m.](https://roytang.net/2021/05/1395389207523119107/): Zeus #sketchdaily 139/365
 - [May 20, 2021, 10:33 p.m.](https://roytang.net/2021/05/1395387292206784512/): Yoshi #sketchdaily 138/365
-- [May 20, 2021, 2:48 p.m.](https://roytang.net/2021/05/ea715fa4d23937c15e47022adf93e192/): Bond film no. 10: The Spy Who Loved Me (1977). The best Moore installment so far. Excellent opening sequence. Austria; Cairo, Egypt; Sardinia, Italy. 007 and Triple-X have great chemistry. Jaws has to be the most unstoppable Bond villain / henchman. Stromberg&#x27;s Atlantis reminds me of the Legion of Doom&#x27;s base in the old Superfriends cartoon. Actually, I think his evil plan might be the best one so far as well.I wonder if I can get through the rest of these before No Time to Die actually comes out lol.
 
 [View all notes](https://roytang.net/notes)
 
