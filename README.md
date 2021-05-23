@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 23, 2021, 1:27 p.m.](https://roytang.net/2021/05/1396336876928126980/): the first thing our new hire did was fix a bug that&#x27;s been bugging him forever as a user prior to joining. he then breathed a sigh of relief and submitted his two weeks&#x27; notice. wtf??
 - [May 22, 2021, 8:12 p.m.](https://roytang.net/2021/05/1396076491021058050/): Fitbit strap broke this morning. Because we are cheap, I mean, frugal and environmentally conscious, let&#x27;s try a DIY fix before rushing to order a new one: mighty bond + masking tape
 - [May 22, 2021, 7:34 p.m.](https://roytang.net/2021/05/1939416637ff87849789377e6867dfd6/): Just based on my public drafts, my Strixhaven limited win/loss record is at 54% I actually started checking this because this reddit thread claimed that if your win% is at least 56% then the upcoming draft challenge should be profitable, so I just miss that threshold lol. Area for improvement!
 - [May 22, 2021, 6:31 p.m.](https://roytang.net/2021/05/1396051030924619778/): Trying to figure out what portion of EDSA is on Katipunan
 - [May 22, 2021, 6:11 a.m.](https://roytang.net/2021/05/1395864858273349632/): THE LINDA LINDAS Your browser does not support the video tag.
-- [May 22, 2021, 5:41 a.m.](https://roytang.net/2021/05/7053c993545123cbbd30100c4381b26f/): Does the internet archive have an API for sending URLs/links to be indexed for archiving?
 
 [View all notes](https://roytang.net/notes)
 
