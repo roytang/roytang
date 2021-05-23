@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [TEENtastic Tuesdays: AAPI Heritage Month Kick-off with The Linda Lindas](https://roytang.net/2021/05/teentastic-tuesdays-aapi-heritage-month-kick-off-with-the-linda-lindas/)
 - [The Strange Story of Dagobert, the “DuckTales” Bandit](https://roytang.net/2021/05/the-strange-story-of-dagobert-the-ducktales-bandit/)
 - [Poor in Tech | Meg Elison](https://roytang.net/2021/05/poor-in-tech-meg-elison/)
 - [The Open-Source Software bubble that is and the blogging bubble that was](https://roytang.net/2021/05/the-open-source-software-bubble-that-is-and-the-blogging-bubble-that-was/)
 - [Why Bad CEOs Fear Remote Work](https://roytang.net/2021/05/why-bad-ceos-fear-remote-work/)
-- [The Memex Method](https://roytang.net/2021/05/the-memex-method/)
 
 [View all links](https://roytang.net/links)
 
