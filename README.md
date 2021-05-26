@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [May 26, 2021, 10 p.m.](https://roytang.net/2021/05/1397553127839043593/): May 25: some cat warrior #sketchdaily 144/365
 - [May 25, 2021, 9:02 p.m.](https://roytang.net/2021/05/1397176143820722180/): This kind of &quot;data massaging&quot; (ranking not normalized by pop) has harmful effects beyond simply propaganda. What if those DDS who see this become complacent because they think we have vaccinated more than even Singapore? Quoted pnagovph&#x27;s tweet: LOOK: The Philippines ranked second among the countries in Southeast Asia in terms of total doses of #Covid19 vaccines administered. FULL STORY: https://www.pna.gov.ph/articles/1141205
 - [May 25, 2021, 5:06 p.m.](https://roytang.net/2021/05/1397116856469647361/): May 24, 2021 #sketchdaily 143/365
 - [May 25, 2021, 4:33 p.m.](https://roytang.net/2021/05/1397108522848976907/): May 23, 2021 #sketchdaily 142/365
 - [May 24, 2021, 12:43 a.m.](https://roytang.net/2021/05/1396507070871003139/): May 22 2021 #sketchdaily 141/365
-- [May 24, 2021, 12:16 a.m.](https://roytang.net/2021/05/1396500401122250753/): May 21 2021 #sketchdaily 140/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/43/5c/435c633eda5b41abf38082995803bf88.jpg)
 - ![](https://roytang.net/media/cache/35/27/35271a4de08842a98de43d88780d14f1.jpg)
 - ![](https://roytang.net/media/cache/2a/59/2a59df85e3dcc8c70b168534ac063d27.jpg)
+- ![](https://roytang.net/media/cache/ab/41/ab414799108152c3f0b54e383aac27eb.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
