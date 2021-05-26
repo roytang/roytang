@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 26, 2021, 11 p.m.](https://roytang.net/2021/05/1397568294383611906/): I should look for a map which highlights Taiwan and make a similar entry (as below) to the bot. #TaiwanIsACountry Quoted triviastorm&#x27;s tweet: #31163 Name the country in Europe: #trivia
 - [May 26, 2021, 10:10 p.m.](https://roytang.net/2021/05/1397555731960786945/): May 26 #sketchdaily 145/365 Hey I caught up somehow!
 - [May 26, 2021, 10 p.m.](https://roytang.net/2021/05/1397553127839043593/): May 25: some cat warrior #sketchdaily 144/365
 - [May 25, 2021, 9:02 p.m.](https://roytang.net/2021/05/1397176143820722180/): This kind of &quot;data massaging&quot; (ranking not normalized by pop) has harmful effects beyond simply propaganda. What if those DDS who see this become complacent because they think we have vaccinated more than even Singapore? Quoted pnagovph&#x27;s tweet: LOOK: The Philippines ranked second among the countries in Southeast Asia in terms of total doses of #Covid19 vaccines administered. FULL STORY: https://www.pna.gov.ph/articles/1141205
 - [May 25, 2021, 5:06 p.m.](https://roytang.net/2021/05/1397116856469647361/): May 24, 2021 #sketchdaily 143/365
-- [May 25, 2021, 4:33 p.m.](https://roytang.net/2021/05/1397108522848976907/): May 23, 2021 #sketchdaily 142/365
 
 [View all notes](https://roytang.net/notes)
 
