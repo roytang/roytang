@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [A Rant About &amp;quot;Technology&amp;quot;](https://roytang.net/2021/05/a-rant-about-quottechnologyquot/)
 - [TweetDeck](https://roytang.net/2021/05/tweetdeck/)
 - [Apparently, Google is back in love with RSS. I wonder why? – Alan Ralph](https://roytang.net/2021/05/apparently-google-is-back-in-love-with-rss-i-wonder-why-alan-ralph/)
 - [TEENtastic Tuesdays: AAPI Heritage Month Kick-off with The Linda Lindas](https://roytang.net/2021/05/teentastic-tuesdays-aapi-heritage-month-kick-off-with-the-linda-lindas/)
 - [The Strange Story of Dagobert, the “DuckTales” Bandit](https://roytang.net/2021/05/the-strange-story-of-dagobert-the-ducktales-bandit/)
-- [Poor in Tech | Meg Elison](https://roytang.net/2021/05/poor-in-tech-meg-elison/)
 
 [View all links](https://roytang.net/links)
 
