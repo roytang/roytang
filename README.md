@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Native English speakers are the world’s worst communicators](https://roytang.net/2021/05/native-english-speakers-are-the-worlds-worst-communicators/)
+- [99 Additional Bits of Unsolicited Advice](https://roytang.net/2021/05/99-additional-bits-of-unsolicited-advice/)
 - [Question time: my life as a quiz obsessive](https://roytang.net/2021/05/question-time-my-life-as-a-quiz-obsessive/)
 - [A Rant About &amp;quot;Technology&amp;quot;](https://roytang.net/2021/05/a-rant-about-quottechnologyquot/)
 - [TweetDeck](https://roytang.net/2021/05/tweetdeck/)
-- [Apparently, Google is back in love with RSS. I wonder why? – Alan Ralph](https://roytang.net/2021/05/apparently-google-is-back-in-love-with-rss-i-wonder-why-alan-ralph/)
-- [TEENtastic Tuesdays: AAPI Heritage Month Kick-off with The Linda Lindas](https://roytang.net/2021/05/teentastic-tuesdays-aapi-heritage-month-kick-off-with-the-linda-lindas/)
 
 [View all links](https://roytang.net/links)
 
