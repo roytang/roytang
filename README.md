@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 1, 2021, 3:30 p.m.](https://roytang.net/2021/06/1399629350140407812/): Ugh finished the @EternalCardGame monthly season just one win short of Master rank; I won the next game too, but took maybe just one turn too long and hit the rollover. Sigh =/
 - [June 1, 2021, 11:22 a.m.](https://roytang.net/2021/06/1399566991870943233/): The Orb #sketchdaily for May 29 (I am so behind) 148/365
 - [June 1, 2021, 9:26 a.m.](https://roytang.net/2021/06/1399537878472937473/): How time travel works in Legends of Tomorrow:
 - [May 30, 2021, 12:15 a.m.](https://roytang.net/2021/05/1398674263297515522/): Creepy lizard guy #sketchdaily 147/365
 - [May 28, 2021, 4:48 p.m.](https://roytang.net/2021/05/1398199368465850375/): Does anyone actually have a good experience transacting on fb marketplace? My mom was complaining about an item listed as P50 but when she PMed the seller it was like 1000+. I told her to just avoid fb marketplace, too many scammers
-- [May 27, 2021, 10:19 p.m.](https://roytang.net/2021/05/1397920398612729856/): Cottage #sketchdaily 146/365
 
 [View all notes](https://roytang.net/notes)
 
