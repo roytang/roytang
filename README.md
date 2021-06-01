@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 1, 2021, 9:26 a.m.](https://roytang.net/2021/06/1399537878472937473/): How time travel works in Legends of Tomorrow:
 - [May 30, 2021, 12:15 a.m.](https://roytang.net/2021/05/1398674263297515522/): Creepy lizard guy #sketchdaily 147/365
 - [May 28, 2021, 4:48 p.m.](https://roytang.net/2021/05/1398199368465850375/): Does anyone actually have a good experience transacting on fb marketplace? My mom was complaining about an item listed as P50 but when she PMed the seller it was like 1000+. I told her to just avoid fb marketplace, too many scammers
 - [May 27, 2021, 10:19 p.m.](https://roytang.net/2021/05/1397920398612729856/): Cottage #sketchdaily 146/365
 - [May 26, 2021, 11 p.m.](https://roytang.net/2021/05/1397568294383611906/): I should look for a map which highlights Taiwan and make a similar entry (as below) to the bot. #TaiwanIsACountry Quoted triviastorm&#x27;s tweet: #31163 Name the country in Europe: #trivia
-- [May 26, 2021, 10:10 p.m.](https://roytang.net/2021/05/1397555731960786945/): May 26 #sketchdaily 145/365 Hey I caught up somehow!
 
 [View all notes](https://roytang.net/notes)
 
