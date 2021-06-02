@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [June 2, 2021, 9:08 p.m.](https://roytang.net/2021/06/1400076977722195969/): Hot air balloon ride #sketchdaily for June 1 (almost there!) 151/365
 - [June 2, 2021, 8:52 p.m.](https://roytang.net/2021/06/1400072956613517322/): Blackberries #sketchdaily for May 31 (still catching up) 150/365
 - [June 2, 2021, 4:44 p.m.](https://roytang.net/2021/06/cbb6135fa20b48a488982eccc7df76ce/): Watched Moonraker (1979). Spectacular opening sequence. Villain reminds me of Tyrion Lannister. California -&gt; Venice -&gt; Rio de Janeiro. Mandatory canal chase while in Venice, obviously. Lots of of product placement. A bad guy tried to ambush 007 with a KENDO STICK. Have they heard of guns? Comically indestructible assassin Jaws appears again, and actually has a character arc this time. First half of the movie was kind of meh, but the last third of the film with the space station and the laser battles and the ridiculous villain plan kind of won me over with how campy it all
 - [June 1, 2021, 10:19 p.m.](https://roytang.net/2021/06/1399732348095135749/): Storefront #sketchdaily for May 30 (still a lot behind!) 149/365
 - [June 1, 2021, 7:47 p.m.](https://roytang.net/2021/06/1399693989582835713/): Cops should just be banned from drinking while carrying weapons. Or from drinking altogether maybe. Either way is fine. (Enforcement would be tough) Quoted manilabulletin&#x27;s tweet: LOOK: A police officer lies dead after a fellow police shot him when the latter “lost in an arm wrestling” during a drinking session in Quezon City, police bared Tuesday, citing narrative of a witness. (📸: QCPD-PIO) | via @mbseppedrajas
-- [June 1, 2021, 3:30 p.m.](https://roytang.net/2021/06/1399629350140407812/): Ugh finished the @EternalCardGame monthly season just one win short of Master rank; I won the next game too, but took maybe just one turn too long and hit the rollover. Sigh =/
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/bb/8d/bb8d1b75ebc6a3d9fcea05fa7b83da28.jpg)
 - ![](https://roytang.net/media/cache/7c/bf/7cbfd91c8152856648fa8a86560a8cd2.jpg)
 - ![](https://roytang.net/media/cache/88/9d/889df9f17f0549ae0fd5bf3c48626992.jpg)
+- ![](https://roytang.net/media/cache/4e/13/4e13ed5af9e8e60402e60e8578d0d55a.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
