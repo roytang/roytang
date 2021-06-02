@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [June 2, 2021, 9:08 p.m.](https://roytang.net/2021/06/1400076977722195969/): Hot air balloon ride #sketchdaily for June 1 (almost there!) 151/365
+- [June 2, 2021, 9:08 p.m.](https://roytang.net/2021/06/1400076977722195969/): Hot air balloon ride #sketchdaily for June 1 (almost there!) 151/365 Just realized I made a counting mistake around 40 sketches ago, so this one should be 152/365 instead
 - [June 2, 2021, 8:52 p.m.](https://roytang.net/2021/06/1400072956613517322/): Blackberries #sketchdaily for May 31 (still catching up) 150/365
 - [June 2, 2021, 4:44 p.m.](https://roytang.net/2021/06/cbb6135fa20b48a488982eccc7df76ce/): Watched Moonraker (1979). Spectacular opening sequence. Villain reminds me of Tyrion Lannister. California -&gt; Venice -&gt; Rio de Janeiro. Mandatory canal chase while in Venice, obviously. Lots of of product placement. A bad guy tried to ambush 007 with a KENDO STICK. Have they heard of guns? Comically indestructible assassin Jaws appears again, and actually has a character arc this time. First half of the movie was kind of meh, but the last third of the film with the space station and the laser battles and the ridiculous villain plan kind of won me over with how campy it all
 - [June 1, 2021, 10:19 p.m.](https://roytang.net/2021/06/1399732348095135749/): Storefront #sketchdaily for May 30 (still a lot behind!) 149/365
