@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [June 4, 2021, 12:23 a.m.](https://roytang.net/2021/06/1400488388902326274/): Sunken treasure #sketchdaily 154/365
 - [June 3, 2021, 1:11 a.m.](https://roytang.net/2021/06/1400137937212248065/): If you are old enough, remember when the internet was shiny and new and we all thought it would be the cure for stupidity because everyone would have access to the world’s information at the click of a mouse? How wrong we were.
 - [June 2, 2021, 10:23 p.m.](https://roytang.net/2021/06/1400095637538938881/): Floating about #sketchdaily for June 2 (I caught up!) 153/365
 - [June 2, 2021, 9:35 p.m.](https://roytang.net/2021/06/1400083631519850498/): Would love to be proven wrong, but I dont think they would withdraw the face shield mandate because that would involve admitting to a mistake. Quoted gideonlasco&#x27;s tweet: It will take around 500 years for face shields to decompose, but it will only take 5 seconds for IATF to admit that they made a mistake in requiring it in all settings.
 - [June 2, 2021, 9:08 p.m.](https://roytang.net/2021/06/1400076977722195969/): Hot air balloon ride #sketchdaily for June 1 (almost there!) 151/365 Just realized I made a counting mistake around 40 sketches ago, so this one should be 152/365 instead
-- [June 2, 2021, 8:52 p.m.](https://roytang.net/2021/06/1400072956613517322/): Blackberries #sketchdaily for May 31 (still catching up) 150/365 (Correction: 151/365)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/88/9d/889df9f17f0549ae0fd5bf3c48626992.jpg)
 - ![](https://roytang.net/media/cache/4e/13/4e13ed5af9e8e60402e60e8578d0d55a.jpg)
 - ![](https://roytang.net/media/cache/a1/c5/a1c50cee2479c0f60e9af9a2315a042f.jpg)
+- ![](https://roytang.net/media/cache/ae/10/ae10c13772852e5ada7da1cbe5c9f7bc.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
