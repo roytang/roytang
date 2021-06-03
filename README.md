@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Book Review: And Then There Were None by Agatha Chrstie](https://roytang.net/2021/06/and-then-there-were-none/)
 - [Weeknotes 2021-05-30](https://roytang.net/2021/05/weeknotes-2021-05-30/)
 - [Book Reviews: Murder on the Orient Express and Death on the Nile by Agatha Chrstie](https://roytang.net/2021/05/orient-express-nile/)
 - [Anticipation and Anxiety](https://roytang.net/2021/05/anticipation/)
 - [Thoughts on Vue.js](https://roytang.net/2021/05/vuejs/)
-- [Weeknotes 2021-05-23](https://roytang.net/2021/05/weeknotes-2021-05-23/)
 
 [View all posts](https://roytang.net/blog)
 
