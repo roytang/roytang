@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Barenaked Ladies - New Disaster (Visualizer)](https://roytang.net/2021/06/barenaked-ladies-new-disaster-visualizer/)
+- [Welcome to the Internet - Bo Burnham (from &amp;quot;INSIDE&amp;quot;)](https://roytang.net/2021/06/welcome-to-the-internet-bo-burnham-from-quotinsidequot/)
+- [Indie bundle for Palestinian Aid](https://roytang.net/2021/06/indie-bundle-for-palestinian-aid/)
 - [How to make an ineffective 404 page](https://roytang.net/2021/06/how-to-make-an-ineffective-404-page/)
 - [The internet is flat.](https://roytang.net/2021/06/the-internet-is-flat/)
-- [Native English speakers are the world’s worst communicators](https://roytang.net/2021/05/native-english-speakers-are-the-worlds-worst-communicators/)
-- [99 Additional Bits of Unsolicited Advice](https://roytang.net/2021/05/99-additional-bits-of-unsolicited-advice/)
-- [Question time: my life as a quiz obsessive](https://roytang.net/2021/05/question-time-my-life-as-a-quiz-obsessive/)
 
 [View all links](https://roytang.net/links)
 
