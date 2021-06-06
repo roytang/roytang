@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [25 Years of CSS](https://roytang.net/2021/06/25-years-of-css/)
+- [How We Brought the Online Collections into the Modern Age using Web Technology of the Past](https://roytang.net/2021/06/how-we-brought-the-online-collections-into-the-modern-age-using-web-technology-of-the-past/)
 - [Why Emotionally Intelligent Minds Embrace the Rule of &#x27;Writing in Reverse&#x27;](https://roytang.net/2021/06/why-emotionally-intelligent-minds-embrace-the-rule-of-writing-in-reverse/)
 - [The everyday racism of offshore call centers](https://roytang.net/2021/06/the-everyday-racism-of-offshore-call-centers/)
 - [Barenaked Ladies - New Disaster (Visualizer)](https://roytang.net/2021/06/barenaked-ladies-new-disaster-visualizer/)
-- [Welcome to the Internet - Bo Burnham (from &amp;quot;INSIDE&amp;quot;)](https://roytang.net/2021/06/welcome-to-the-internet-bo-burnham-from-quotinsidequot/)
-- [Indie bundle for Palestinian Aid](https://roytang.net/2021/06/indie-bundle-for-palestinian-aid/)
 
 [View all links](https://roytang.net/links)
 
