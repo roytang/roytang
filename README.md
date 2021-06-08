@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 8, 2021, 9:49 a.m.](https://roytang.net/2021/06/1402080413628071936/): Wait, what? Including the Philippines? What are our regulations here that would prevent this privacy-protecting feature? Quoted peard33&#x27;s tweet: Apple said a new &quot;private relay&quot; feature designed to obscure users&#x27; web browsing behavior from internet service providers and advertisers will not be available in China for regulatory reasons. Same in Belarus, Saudi Arabia, South Africa, the Philippines &amp; more. via @StephenNellis
 - [June 8, 2021, 2:35 a.m.](https://roytang.net/2021/06/1401970990142267397/): Lucky sock #sketchdaily 158/365
 - [June 8, 2021, 12:50 a.m.](https://roytang.net/2021/06/2641c1868d6ccb70715302ea340cae74/): For Your Eyes Only (1981): Bond film no. 12. After the sci-fi fantasy of Moonraker, this one is more grounded and down-to-Earth, a callback to early Connery adventures. No megamalomaniacs to defeat, just foreign agents and mercs. The opening sequence pays homage to the earlier pre-Moore films, acknowledging the death of Tracy Bond and killing off a villain that looks suspiciously like arch-nemesis Blofeld. The opening song is pretty good. The rest of the film was ok, if a bit forgettable. I liked the rock climbing scene, but the ski chase and car chases felt like things we&#x27;ve seen before.
 - [June 8, 2021, 12:36 a.m.](https://roytang.net/2021/06/1401941057206579201/): Inspector Gadget (tun-tun-un-tun-un-tun-tun) #sketchdaily 157/365
 - [June 7, 2021, midnight](https://roytang.net/2021/06/1401569761394262016/): Stinky Pete #sketchdaily 156/365 (my hand was extra shaky today =/)
-- [June 6, 2021, 8:17 p.m.](https://roytang.net/2021/06/1401513612603105284/): Putting these nine photographs together illustrates the impact of the new security law enacted last June on Hong Kong’s former freedoms. https://twitter.com/jerometaylor/status/1400791730685845511
 
 [View all notes](https://roytang.net/notes)
 
