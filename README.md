@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 9, 2021, 8:19 p.m.](https://roytang.net/2021/06/nvukbz/): Posted on r/Philippines: I&#x27;m looking for an old Pugad Baboy strip Baka merong may copy. In the strip, Patrolman Durugas has stopped Mang Dagul for a traffic violation, tapos pinilisopo sya ni Dagul, so binigyan sya ng ticket, nakasulat &quot;violation: pilosopo&quot; I would guess it&#x27;s from the early books, kasi I remember medyo raw pa yung art style. Probably somewhere in books 1-3, kasi I have book 4 here, parang mas polished na yung art. Thanks in advance to anyone who can help! (Bakit walang flair na &quot;Question&quot;? Sige na nga, &quot;Culture&quot; na lang)
 - [June 8, 2021, 9:51 p.m.](https://roytang.net/2021/06/1402262074458349582/): Windmill #sketchdaily 159/365
 - [June 8, 2021, 9:49 a.m.](https://roytang.net/2021/06/1402080413628071936/): Wait, what? Including the Philippines? What are our regulations here that would prevent this privacy-protecting feature? Quoted peard33&#x27;s tweet: Apple said a new &quot;private relay&quot; feature designed to obscure users&#x27; web browsing behavior from internet service providers and advertisers will not be available in China for regulatory reasons. Same in Belarus, Saudi Arabia, South Africa, the Philippines &amp; more. via @StephenNellis
 - [June 8, 2021, 2:35 a.m.](https://roytang.net/2021/06/1401970990142267397/): Lucky sock #sketchdaily 158/365
 - [June 8, 2021, 12:50 a.m.](https://roytang.net/2021/06/2641c1868d6ccb70715302ea340cae74/): For Your Eyes Only (1981): Bond film no. 12. After the sci-fi fantasy of Moonraker, this one is more grounded and down-to-Earth, a callback to early Connery adventures. No megamalomaniacs to defeat, just foreign agents and mercs. The opening sequence pays homage to the earlier pre-Moore films, acknowledging the death of Tracy Bond and killing off a villain that looks suspiciously like arch-nemesis Blofeld. The opening song is pretty good. The rest of the film was ok, if a bit forgettable. I liked the rock climbing scene, but the ski chase and car chases felt like things we&#x27;ve seen before.
-- [June 8, 2021, 12:36 a.m.](https://roytang.net/2021/06/1401941057206579201/): Inspector Gadget (tun-tun-un-tun-un-tun-tun) #sketchdaily 157/365
 
 [View all notes](https://roytang.net/notes)
 
