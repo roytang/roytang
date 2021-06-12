@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 12, 2021, 10:32 p.m.](https://roytang.net/2021/06/1403721773514854404/): Well, another MTG/the Simpsons parody complete! You can find the full video at https://www.reddit.com/r/magicTCG/comments/nxtro7/the_mono_red_song_an_mtg_parody_song/ Thank you @TolarianCollege @SaffronOlive @kaibudde @BasicMountain and @sandydogmtg for being inspiring creators and players, and I hope you don&#x27;t mind your portrayal! &lt;3 Your browser does not support the video tag.
 - [June 11, 2021, 3:07 p.m.](https://roytang.net/2021/06/1403247589395296258/): In today&#x27;s You Can&#x27;t Invent This: Welcome to the world HTML Pascual.
 - [June 10, 2021, 7:25 p.m.](https://roytang.net/2021/06/1402950095826345988/): “Then one day a rocket ship / came racing from the sky” #sketchdaily 161/365
 - [June 10, 2021, 6:33 a.m.](https://roytang.net/2021/06/h17mkgy/): Ah, excellent. Kahit yung 1 and 3 lang siguro. I&#x27;ll DM you my email address. Thanks!
 - [June 9, 2021, 8:59 p.m.](https://roytang.net/2021/06/1402611274316345345/): Wolfman #sketchdaily 160/365
-- [June 9, 2021, 8:19 p.m.](https://roytang.net/2021/06/nvukbz/): Posted on r/Philippines: I&#x27;m looking for an old Pugad Baboy strip Baka merong may copy. In the strip, Patrolman Durugas has stopped Mang Dagul for a traffic violation, tapos pinilisopo sya ni Dagul, so binigyan sya ng ticket, nakasulat &quot;violation: pilosopo&quot; I would guess it&#x27;s from the early books, kasi I remember medyo raw pa yung art style. Probably somewhere in books 1-3, kasi I have book 4 here, parang mas polished na yung art. Thanks in advance to anyone who can help! (Bakit walang flair na &quot;Question&quot;? Sige na nga, &quot;Culture&quot; na lang)
 
 [View all notes](https://roytang.net/notes)
 
