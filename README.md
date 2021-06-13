@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [June 13, 2021, 7:33 p.m.](https://roytang.net/2021/06/1404039267685261332/): Manananggal #sketchdaily 162/365
 - [June 13, 2021, 5:45 p.m.](https://roytang.net/2021/06/1404011982135586824/): @Westraid what is that triangle thing in front of the couch? You can put your legs up on it?
 - [June 12, 2021, 10:32 p.m.](https://roytang.net/2021/06/1403721773514854404/): Well, another MTG/the Simpsons parody complete! You can find the full video at https://www.reddit.com/r/magicTCG/comments/nxtro7/the_mono_red_song_an_mtg_parody_song/ Thank you @TolarianCollege @SaffronOlive @kaibudde @BasicMountain and @sandydogmtg for being inspiring creators and players, and I hope you don&#x27;t mind your portrayal! &lt;3 Your browser does not support the video tag.
 - [June 11, 2021, 3:07 p.m.](https://roytang.net/2021/06/1403247589395296258/): In today&#x27;s You Can&#x27;t Invent This: Welcome to the world HTML Pascual.
 - [June 10, 2021, 7:25 p.m.](https://roytang.net/2021/06/1402950095826345988/): “Then one day a rocket ship / came racing from the sky” #sketchdaily 161/365
-- [June 10, 2021, 6:33 a.m.](https://roytang.net/2021/06/h17mkgy/): Ah, excellent. Kahit yung 1 and 3 lang siguro. I&#x27;ll DM you my email address. Thanks!
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/50/47/5047b33cd5d528ccd4cc8afe63e4611c.jpg)
 - ![](https://roytang.net/media/cache/f3/08/f3087f40f6a7442c706dfd5bf875421c.jpg)
 - ![](https://roytang.net/media/cache/0b/9b/0b9bc649a23b4362aa66dc6aff0f63a6.jpg)
+- ![](https://roytang.net/media/cache/11/46/1146510b223ad52de0c5ed2b32d2d4ca.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
