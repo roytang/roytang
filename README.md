@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-06-13](https://roytang.net/2021/06/weeknotes-2021-06-13/)
 - [Weeknotes 2021-06-06 Anything and Everything All Of The Time](https://roytang.net/2021/06/weeknotes-2021-06-06/)
 - [Book Review: And Then There Were None by Agatha Chrstie](https://roytang.net/2021/06/and-then-there-were-none/)
 - [Weeknotes 2021-05-30](https://roytang.net/2021/05/weeknotes-2021-05-30/)
 - [Book Reviews: Murder on the Orient Express and Death on the Nile by Agatha Chrstie](https://roytang.net/2021/05/orient-express-nile/)
-- [Anticipation and Anxiety](https://roytang.net/2021/05/anticipation/)
 
 [View all posts](https://roytang.net/blog)
 
