@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [A Project of One&#x27;s Own](https://roytang.net/2021/06/a-project-of-ones-own/)
 - [An incomplete list of skills senior engineers need, beyond coding](https://roytang.net/2021/06/an-incomplete-list-of-skills-senior-engineers-need-beyond-coding/)
 - [40 for 40](https://roytang.net/2021/06/40-for-40/)
 - [25 Years of CSS](https://roytang.net/2021/06/25-years-of-css/)
 - [How We Brought the Online Collections into the Modern Age using Web Technology of the Past](https://roytang.net/2021/06/how-we-brought-the-online-collections-into-the-modern-age-using-web-technology-of-the-past/)
-- [Why Emotionally Intelligent Minds Embrace the Rule of &#x27;Writing in Reverse&#x27;](https://roytang.net/2021/06/why-emotionally-intelligent-minds-embrace-the-rule-of-writing-in-reverse/)
 
 [View all links](https://roytang.net/links)
 
