@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Shortcut](https://roytang.net/2021/06/the-shortcut/)
 - [How &amp;quot;Tom&#x27;s Diner&amp;quot; Tuned the MP3](https://roytang.net/2021/06/how-quottoms-dinerquot-tuned-the-mp3/)
 - [A Project of One&#x27;s Own](https://roytang.net/2021/06/a-project-of-ones-own/)
 - [An incomplete list of skills senior engineers need, beyond coding](https://roytang.net/2021/06/an-incomplete-list-of-skills-senior-engineers-need-beyond-coding/)
 - [40 for 40](https://roytang.net/2021/06/40-for-40/)
-- [25 Years of CSS](https://roytang.net/2021/06/25-years-of-css/)
 
 [View all links](https://roytang.net/links)
 
