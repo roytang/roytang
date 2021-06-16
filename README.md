@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 16, 2021, 11:03 a.m.](https://roytang.net/2021/06/1639118365d91bdbd1a41eb9b170a9a0/): Yesterday I saw Octopussy (1983), Bond film no. 13. Another grounded entry with no fantastical elements, with the plot centered around geopolitical concerns. Some interesting action sequences, but overall, but I found most of the movie unremarkable. India shown as an exotic place (w/c I suppose it was to Westerners at that time) with elephants and firebreathers and whatnot all over. There was one scene where the bad guy appears to have broken a genuine Faberge egg but no one said anything lol.
 - [June 15, 2021, 10:45 p.m.](https://roytang.net/2021/06/1404812392010289164/): Sand castle #sketchdaily 165/365
 - [June 15, 2021, 12:30 p.m.](https://roytang.net/2021/06/1404657452855947271/): Gummi bear #sketchdaily 164/365
 - [June 14, 2021, 10:57 p.m.](https://roytang.net/2021/06/1404452848729874438/): Cherries #sketchdaily 163/365
 - [June 14, 2021, 1:38 p.m.](https://roytang.net/2021/06/1404312180720226305/): I did another game jam this past weekend and made a (very short) game featuring a manananggal. You can try it if you like: https://hungryroy.itch.io/manananggal (if you have an https://itch.io/ account you can also give it a rating for the game jam!)
-- [June 13, 2021, 7:33 p.m.](https://roytang.net/2021/06/1404039267685261332/): Manananggal #sketchdaily 162/365
 
 [View all notes](https://roytang.net/notes)
 
