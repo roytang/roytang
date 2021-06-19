@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [June 19, 2021, 8:37 p.m.](https://roytang.net/2021/06/1406229578750693383/): Old man #sketchdaily 169/365
 - [June 18, 2021, 8:33 a.m.](https://roytang.net/2021/06/h25m0tp/): You are not required to accomplish anything at any age. Comparison is the thief of joy.
 - [June 17, 2021, 10:50 p.m.](https://roytang.net/2021/06/1405538430902149126/): Watermelon #sketchdaily 168/365
 - [June 16, 2021, 11:40 p.m.](https://roytang.net/2021/06/1405188593799155713/): Eye #sketchdaily 167/365
 - [June 16, 2021, 11:27 p.m.](https://roytang.net/2021/06/1405185212212912133/): Gumball machine #sketchdaily 166/365
-- [June 16, 2021, 11:03 a.m.](https://roytang.net/2021/06/1639118365d91bdbd1a41eb9b170a9a0/): Yesterday I saw Octopussy (1983), Bond film no. 13. Another grounded entry with no fantastical elements, with the plot centered around geopolitical concerns. Some interesting action sequences, but overall, but I found most of the movie unremarkable. India shown as an exotic place (w/c I suppose it was to Westerners at that time) with elephants and firebreathers and whatnot all over. There was one scene where the bad guy appears to have broken a genuine Faberge egg but no one said anything lol.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/f6/bd/f6bd142497e67b41aa012215a9d9d189.jpg)
 - ![](https://roytang.net/media/cache/a7/31/a7316eb8083354d227ba40d7bae51ccb.jpg)
 - ![](https://roytang.net/media/cache/9e/08/9e0812c4a09975bb04182cadd1d7bb2c.jpg)
+- ![](https://roytang.net/media/cache/bf/33/bf33bbee239424d98ed51350d807421d.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
