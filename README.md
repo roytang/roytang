@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-06-20](https://roytang.net/2021/06/weeknotes-2021-06-20/)
 - [Life Philosophy: Wandering through life finding interesting things](https://roytang.net/2021/06/life-philosophy/)
 - [Deleting Old Content](https://roytang.net/2021/06/deleting-old-content/)
 - [GMTK Game Jam 2021: Manananggal](https://roytang.net/2021/06/gmtk-game-jam-2021-manananggal/)
 - [Weeknotes 2021-06-13](https://roytang.net/2021/06/weeknotes-2021-06-13/)
-- [Weeknotes 2021-06-06 Anything and Everything All Of The Time](https://roytang.net/2021/06/weeknotes-2021-06-06/)
 
 [View all posts](https://roytang.net/blog)
 
