@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [June 21, 2021, 1:04 a.m.](https://roytang.net/2021/06/1406659353180966917/): Bike delivery #sketchdaily 170/365
 - [June 19, 2021, 8:37 p.m.](https://roytang.net/2021/06/1406229578750693383/): Old man #sketchdaily 169/365
 - [June 18, 2021, 8:33 a.m.](https://roytang.net/2021/06/h25m0tp/): You are not required to accomplish anything at any age. Comparison is the thief of joy.
 - [June 17, 2021, 10:50 p.m.](https://roytang.net/2021/06/1405538430902149126/): Watermelon #sketchdaily 168/365
 - [June 16, 2021, 11:40 p.m.](https://roytang.net/2021/06/1405188593799155713/): Eye #sketchdaily 167/365
-- [June 16, 2021, 11:27 p.m.](https://roytang.net/2021/06/1405185212212912133/): Gumball machine #sketchdaily 166/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/a7/31/a7316eb8083354d227ba40d7bae51ccb.jpg)
 - ![](https://roytang.net/media/cache/9e/08/9e0812c4a09975bb04182cadd1d7bb2c.jpg)
 - ![](https://roytang.net/media/cache/bf/33/bf33bbee239424d98ed51350d807421d.jpg)
+- ![](https://roytang.net/media/cache/bd/42/bd42d3bb148e9d8e57719cf3d2bb1570.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
