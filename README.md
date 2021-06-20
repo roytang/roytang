@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [June 21, 2021, 1:04 a.m.](https://roytang.net/2021/06/1406659353180966917/): Bike delivery #sketchdaily 170/365
+- [June 21, 2021, 1:04 a.m.](https://roytang.net/2021/06/1406659353180966917/): Bike delivery #sketchdaily 170/365 This guy doesn&#x27;t even have a helmet or face mask! Lol
 - [June 19, 2021, 8:37 p.m.](https://roytang.net/2021/06/1406229578750693383/): Old man #sketchdaily 169/365
 - [June 18, 2021, 8:33 a.m.](https://roytang.net/2021/06/h25m0tp/): You are not required to accomplish anything at any age. Comparison is the thief of joy.
 - [June 17, 2021, 10:50 p.m.](https://roytang.net/2021/06/1405538430902149126/): Watermelon #sketchdaily 168/365
