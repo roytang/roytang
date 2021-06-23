@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 23, 2021, 2:54 p.m.](https://roytang.net/2021/06/1407592883184488451/): Finally finished #HorizonZeroDawn (main game) today, such a great game! #PS4share Might take a break from the game before diving into The Frozen Wilds though. Feels like I&#x27;ve been playing this game forever lol
 - [June 22, 2021, 11:21 p.m.](https://roytang.net/2021/06/1407358179634126848/): Wine glass #sketchdaily 173/365
 - [June 22, 2021, 9:45 p.m.](https://roytang.net/2021/06/1407333817249984512/): Bento #sketchdaily 172/365
 - [June 22, 2021, 1:23 a.m.](https://roytang.net/2021/06/1407026334988050450/): By the old tree #sketchdaily 171/365
 - [June 21, 2021, 1:04 a.m.](https://roytang.net/2021/06/1406659353180966917/): Bike delivery #sketchdaily 170/365 This guy doesn&#x27;t even have a helmet or face mask! Lol
-- [June 19, 2021, 8:37 p.m.](https://roytang.net/2021/06/1406229578750693383/): Old man #sketchdaily 169/365
 
 [View all notes](https://roytang.net/notes)
 
