@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [June 23, 2021, 10:40 p.m.](https://roytang.net/2021/06/1407710267778080769/): The Human Torch #sketchdaily 174/365
 - [June 23, 2021, 2:54 p.m.](https://roytang.net/2021/06/1407592883184488451/): Finally finished #HorizonZeroDawn (main game) today, such a great game! #PS4share Might take a break from the game before diving into The Frozen Wilds though. Feels like I&#x27;ve been playing this game forever lol
 - [June 22, 2021, 11:21 p.m.](https://roytang.net/2021/06/1407358179634126848/): Wine glass #sketchdaily 173/365
 - [June 22, 2021, 9:45 p.m.](https://roytang.net/2021/06/1407333817249984512/): Bento #sketchdaily 172/365
 - [June 22, 2021, 1:23 a.m.](https://roytang.net/2021/06/1407026334988050450/): By the old tree #sketchdaily 171/365
-- [June 21, 2021, 1:04 a.m.](https://roytang.net/2021/06/1406659353180966917/): Bike delivery #sketchdaily 170/365 This guy doesn&#x27;t even have a helmet or face mask! Lol
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/e3/55/e355109000c1f7e0f0afc3204a674671.jpg)
 - ![](https://roytang.net/media/cache/52/14/521434c2e3a67979126380316ebcb241.jpg)
 - ![](https://roytang.net/media/cache/30/3e/303ee653b51aa26dce0f44630f3ea7d3.jpg)
+- ![](https://roytang.net/media/cache/40/50/4050623e0c2112731a2afb775c3f832b.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
