@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Schitt&#x27;s Creek](https://roytang.net/2021/06/schitts-creek/)
 - [Breaking Prod](https://roytang.net/2021/06/breaking-prod/)
 - [Rurouni Kenshin: The Final](https://roytang.net/2021/06/rurouni-kenshin-final/)
 - [Weeknotes 2021-06-20](https://roytang.net/2021/06/weeknotes-2021-06-20/)
 - [Life Philosophy: Wandering through life finding interesting things](https://roytang.net/2021/06/life-philosophy/)
-- [Deleting Old Content](https://roytang.net/2021/06/deleting-old-content/)
 
 [View all posts](https://roytang.net/blog)
 
