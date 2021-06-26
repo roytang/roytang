@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Chapter 9: Community](https://roytang.net/2021/06/chapter-9-community/)
 - [Django for Startup Founders: A better software architecture for SaaS startups and consumer apps](https://roytang.net/2021/06/django-for-startup-founders-a-better-software-architecture-for-saas-startups-and-consumer-apps/)
 - [The Shortcut](https://roytang.net/2021/06/the-shortcut/)
 - [How &amp;quot;Tom&#x27;s Diner&amp;quot; Tuned the MP3](https://roytang.net/2021/06/how-quottoms-dinerquot-tuned-the-mp3/)
 - [A Project of One&#x27;s Own](https://roytang.net/2021/06/a-project-of-ones-own/)
-- [An incomplete list of skills senior engineers need, beyond coding](https://roytang.net/2021/06/an-incomplete-list-of-skills-senior-engineers-need-beyond-coding/)
 
 [View all links](https://roytang.net/links)
 
