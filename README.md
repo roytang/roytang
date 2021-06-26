@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [June 26, 2021, 9:09 p.m.](https://roytang.net/2021/06/1408774362254114819/): Hat #sketchdaily 176/365
 - [June 25, 2021, 12:15 a.m.](https://roytang.net/2021/06/1408096350764343300/): Oh Windows 11 will be a free update, yay! PC Health Check: Hold up. Looks like the problem is that my 6yo mobo doesnt have TPM, so definitely need to wait for the next pc upgrade
 - [June 24, 2021, 9:26 p.m.](https://roytang.net/2021/06/1408053878579294208/): RIP Former President Noynoy Aquino.
 - [June 24, 2021, 9:25 p.m.](https://roytang.net/2021/06/1408053671661740041/): Baggage #sketchdaily 175/365
 - [June 24, 2021, 5:03 p.m.](https://roytang.net/2021/06/7d38789afe70956e56d61914ed7d195a/): Watched A View To A Kill (1985), Bond film no. 14. Moore is showing his age, luckily this is his last entry. Very 80s theme song by Duran Duran. Christopher Walken is here, as a Bond villain with a plan straight out of Superman (1978). Tanya Roberts plays a young Bond girl just 14 years before playing a middle-aged mom on That 70s Show. Random young Dolph Lundgren cameo! Kind of a ridiculous street chase scene through San Francisco. Overall not the best of Moore&#x27;s run.
-- [June 23, 2021, 11:13 p.m.](https://roytang.net/2021/06/1407718570935476225/): when the pandemic ends and we can all see each other again, everyone should wear new outfits and have new abilities so that it feels like an anime timeskip
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/30/3e/303ee653b51aa26dce0f44630f3ea7d3.jpg)
 - ![](https://roytang.net/media/cache/40/50/4050623e0c2112731a2afb775c3f832b.jpg)
 - ![](https://roytang.net/media/cache/91/6c/916c38a8313103e27f729b418120e546.jpg)
+- ![](https://roytang.net/media/cache/d1/55/d1550980d5660d9a7ddb2c851587746d.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
