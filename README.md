@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 27, 2021, 11 a.m.](https://roytang.net/2021/06/2789a7cda3fd16feca84b58fae45811b/): In the wee hours earlier for some reason I decided to watch Transformers: The Last Knight (2017) while playing online boardgames with friends. It was the only one of the Bayverse films I hadn&#x27;t seen yet, and now that I have that seemed like a good decision. Too long, ridiculous plot, and once again the Decepticons barely distinguishable from each other. The story needs a lot of suspension of disbelief. Lots of spectacle as you&#x27;d expect from Michael Bay. Surprised they managed to get Anthony Hopkins for this. John Turturro is still around, but serving only as plot exposition. They
 - [June 26, 2021, 9:09 p.m.](https://roytang.net/2021/06/1408774362254114819/): Hat #sketchdaily 176/365
 - [June 25, 2021, 12:15 a.m.](https://roytang.net/2021/06/1408096350764343300/): Oh Windows 11 will be a free update, yay! PC Health Check: Hold up. Looks like the problem is that my 6yo mobo doesnt have TPM, so definitely need to wait for the next pc upgrade
 - [June 24, 2021, 9:26 p.m.](https://roytang.net/2021/06/1408053878579294208/): RIP Former President Noynoy Aquino.
 - [June 24, 2021, 9:25 p.m.](https://roytang.net/2021/06/1408053671661740041/): Baggage #sketchdaily 175/365
-- [June 24, 2021, 5:03 p.m.](https://roytang.net/2021/06/7d38789afe70956e56d61914ed7d195a/): Watched A View To A Kill (1985), Bond film no. 14. Moore is showing his age, luckily this is his last entry. Very 80s theme song by Duran Duran. Christopher Walken is here, as a Bond villain with a plan straight out of Superman (1978). Tanya Roberts plays a young Bond girl just 14 years before playing a middle-aged mom on That 70s Show. Random young Dolph Lundgren cameo! Kind of a ridiculous street chase scene through San Francisco. Overall not the best of Moore&#x27;s run.
 
 [View all notes](https://roytang.net/notes)
 
