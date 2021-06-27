@@ -6,17 +6,17 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-06-27](https://roytang.net/2021/06/weeknotes-2021-06-27/)
 - [Schitt&#x27;s Creek](https://roytang.net/2021/06/schitts-creek/)
 - [Breaking Prod](https://roytang.net/2021/06/breaking-prod/)
 - [Rurouni Kenshin: The Final](https://roytang.net/2021/06/rurouni-kenshin-final/)
 - [Weeknotes 2021-06-20](https://roytang.net/2021/06/weeknotes-2021-06-20/)
-- [Life Philosophy: Wandering through life finding interesting things](https://roytang.net/2021/06/life-philosophy/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
-- [The demise of amateur content5 min well spent](https://roytang.net/2021/06/the-demise-of-amateur-content5-min-well-spent/)
+- [The demise of amateur content](https://roytang.net/2021/06/the-demise-of-amateur-content5-min-well-spent/)
 - [Sheila Marie Orfano How do you know what’s true?](https://roytang.net/2021/06/sheila-marie-orfano-how-do-you-know-whats-true/)
 - [Chapter 9: Community](https://roytang.net/2021/06/chapter-9-community/)
 - [Django for Startup Founders: A better software architecture for SaaS startups and consumer apps](https://roytang.net/2021/06/django-for-startup-founders-a-better-software-architecture-for-saas-startups-and-consumer-apps/)
