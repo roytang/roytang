@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 27, 2021, 1:20 p.m.](https://roytang.net/2021/06/1409018870111768584/): Catching up with Boku No Hero Academia season 5: Re: that fourth image, I had forgotten that was Aoyama&#x27;s hero name lol. Also, ew mushrooms
 - [June 27, 2021, 11 a.m.](https://roytang.net/2021/06/2789a7cda3fd16feca84b58fae45811b/): In the wee hours earlier for some reason I decided to watch Transformers: The Last Knight (2017) while playing online boardgames with friends. It was the only one of the Bayverse films I hadn&#x27;t seen yet, and now that I have that seemed like a good decision. Too long, ridiculous plot, and once again the Decepticons barely distinguishable from each other. The story needs a lot of suspension of disbelief. Lots of spectacle as you&#x27;d expect from Michael Bay. Surprised they managed to get Anthony Hopkins for this. John Turturro is still around, but serving only as plot exposition. They
 - [June 26, 2021, 9:09 p.m.](https://roytang.net/2021/06/1408774362254114819/): Hat #sketchdaily 176/365
 - [June 25, 2021, 12:15 a.m.](https://roytang.net/2021/06/1408096350764343300/): Oh Windows 11 will be a free update, yay! PC Health Check: Hold up. Looks like the problem is that my 6yo mobo doesnt have TPM, so definitely need to wait for the next pc upgrade
 - [June 24, 2021, 9:26 p.m.](https://roytang.net/2021/06/1408053878579294208/): RIP Former President Noynoy Aquino.
-- [June 24, 2021, 9:25 p.m.](https://roytang.net/2021/06/1408053671661740041/): Baggage #sketchdaily 175/365
 
 [View all notes](https://roytang.net/notes)
 
