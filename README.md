@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 29, 2021, 11:33 p.m.](https://roytang.net/2021/06/1409897838864072709/): @rovietoosin big time!
 - [June 28, 2021, 8:41 p.m.](https://roytang.net/2021/06/1409492183560855552/): Boom Boom #sketchdaily 179/365
 - [June 28, 2021, 1:49 p.m.](https://roytang.net/2021/06/c7033ad094d89afab1a8e1abcb2c3015/): Was stuck in a waiting room long enough to watch Downsizing (2017) on cable. Interesting sci-fi concept (miniaturizing humans to reduce consumption and avoid climate change) serving as background for a mediocre Matt Damon story.
 - [June 27, 2021, 8:49 p.m.](https://roytang.net/2021/06/1409131894956978181/): Big cozy sweater #sketchdaily 178/365 (with failed first attempt)
 - [June 27, 2021, 8:37 p.m.](https://roytang.net/2021/06/1409128793130733574/): &quot;Hold on let me grab some chicken&quot; #sketchdaily 177/365
-- [June 27, 2021, 6:42 p.m.](https://roytang.net/2021/06/1409099921265872899/): Huh, so they weren&#x27;t getting regular psychiatric evaluations before. That is unsurprising and also terrible. Quoted cnnphilippines&#x27;s tweet: The Philippine National Police is now finalizing recommendations in the conduct of a regular neuropsychiatric exam for all its personnel, amid cases of grave misconduct http://bit.ly/3dhMHrl
 
 [View all notes](https://roytang.net/notes)
 
