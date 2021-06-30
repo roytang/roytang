@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [July 1, 2021, 12:24 a.m.](https://roytang.net/2021/07/1410272968513441792/): Icy Manipulator #sketchdaily 181/365
 - [June 29, 2021, 11:51 p.m.](https://roytang.net/2021/06/1409902329915002882/): Manning the desk #sketchdaily 180/365
 - [June 29, 2021, 11:33 p.m.](https://roytang.net/2021/06/1409897838864072709/): @rovietoosin big time!
 - [June 28, 2021, 8:41 p.m.](https://roytang.net/2021/06/1409492183560855552/): Boom Boom #sketchdaily 179/365
 - [June 28, 2021, 1:49 p.m.](https://roytang.net/2021/06/c7033ad094d89afab1a8e1abcb2c3015/): Was stuck in a waiting room long enough to watch Downsizing (2017) on cable. Interesting sci-fi concept (miniaturizing humans to reduce consumption and avoid climate change) serving as background for a mediocre Matt Damon story.
-- [June 27, 2021, 8:49 p.m.](https://roytang.net/2021/06/1409131894956978181/): Big cozy sweater #sketchdaily 178/365 (with failed first attempt)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/cf/a6/cfa6032dec42914063e8ebac7ff1d93c.jpg)
 - ![](https://roytang.net/media/cache/f1/d4/f1d4ddff1f5e3a0f98aa1cda11c1f330.jpg)
 - ![](https://roytang.net/media/cache/ec/9c/ec9cc1f9775708b6d6b580b3e43a270a.jpg)
+- ![](https://roytang.net/media/cache/5f/86/5f8679a90c5d2336e7e538b346f50225.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
