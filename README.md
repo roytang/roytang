@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 1, 2021, 2:29 p.m.](https://roytang.net/2021/07/1410485781219536901/): 900! #Duolingo
 - [July 1, 2021, 12:24 a.m.](https://roytang.net/2021/07/1410272968513441792/): Icy Manipulator #sketchdaily 181/365
 - [June 29, 2021, 11:51 p.m.](https://roytang.net/2021/06/1409902329915002882/): Manning the desk #sketchdaily 180/365
 - [June 29, 2021, 11:33 p.m.](https://roytang.net/2021/06/1409897838864072709/): @rovietoosin big time!
 - [June 28, 2021, 8:41 p.m.](https://roytang.net/2021/06/1409492183560855552/): Boom Boom #sketchdaily 179/365
-- [June 28, 2021, 1:49 p.m.](https://roytang.net/2021/06/c7033ad094d89afab1a8e1abcb2c3015/): Was stuck in a waiting room long enough to watch Downsizing (2017) on cable. Interesting sci-fi concept (miniaturizing humans to reduce consumption and avoid climate change) serving as background for a mediocre Matt Damon story.
 
 [View all notes](https://roytang.net/notes)
 
