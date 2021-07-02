@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [July 3, 2021, 12:10 a.m.](https://roytang.net/2021/07/1410994400935636998/): Dinobot Snarl #sketchdaily 182/365
 - [July 2, 2021, 6:49 p.m.](https://roytang.net/2021/07/1410913409894215682/): @wrongwaygoback Witcher 3 should still be on sale
 - [July 1, 2021, 9:48 p.m.](https://roytang.net/2021/07/69d2374b0f0232065102954a54736506/): The Living Daylights (1987): Bond film no. 15 and first of only two Dalton entries. More 80s music theme song, this time by A-ha. Much more serious in tone compared to Connery / Moore. John Rhys-Davies is here, years before Sliders or LOTR. No sci-fi mad scientist stuff this time, straight-up spy stuff (more or less). Assassinations, defections, Russia&#x27;s internal politics, Afghan rebels, weapons, smuggling, drug deals, faked deaths, etc. Might be a tiny bit too long. Surprisingly, I liked this one!
 - [July 1, 2021, 2:29 p.m.](https://roytang.net/2021/07/1410485781219536901/): 900! #Duolingo
 - [July 1, 2021, 12:24 a.m.](https://roytang.net/2021/07/1410272968513441792/): Icy Manipulator #sketchdaily 181/365
-- [June 29, 2021, 11:51 p.m.](https://roytang.net/2021/06/1409902329915002882/): Manning the desk #sketchdaily 180/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/f1/d4/f1d4ddff1f5e3a0f98aa1cda11c1f330.jpg)
 - ![](https://roytang.net/media/cache/ec/9c/ec9cc1f9775708b6d6b580b3e43a270a.jpg)
 - ![](https://roytang.net/media/cache/5f/86/5f8679a90c5d2336e7e538b346f50225.jpg)
+- ![](https://roytang.net/media/cache/2a/59/2a592295d3acc93f12d8b85d4f1b2a97.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
