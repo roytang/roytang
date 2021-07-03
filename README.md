@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 3, 2021, 6:41 p.m.](https://roytang.net/2021/07/4e93006d466cb2f6a53325cba8e27b63/): License to Kill (1989): Bond film no 16, Dalton&#x27;s second and last outing is much darker and yet weaker than the first one. The first one where Bond goes rogue, driven by vengeance instead of duty. Unremarkable theme song. Villain is a drug smuggler; I guess with the collapse of the USSR they couldn&#x27;t have another Russia-centered plot. More actors look familiar as we near the 90s. Notable are a young Benicio del Toro playing a henchman and Cary-Hiroyuki Tagawa (known for playing Shang Tsung. Dalton&#x27;s performance is mixed, and for some reason he reminds me of Sir Patrick Stewart
 - [July 3, 2021, 1:38 p.m.](https://roytang.net/2021/07/1411197557028495362/): I enjoyed this thread, but all these people posting images without naming the movie! Not everyone has seen every movie! Quoted tvaziri&#x27;s tweet: Gimme one of your favorite shots in a movie from 2010–2020.
 - [July 3, 2021, 1:04 p.m.](https://roytang.net/2021/07/1411189049902047242/): I played almost all of FF8 junctioning only 1 of a spell to each stat, not considering that increasing the number might lead to better stats. Got all the way to the final boss this way, which felt impossible with my low stats #gaming Quoted AndyLunique&#x27;s tweet: I played through about 20 hours of Skyrim before I was aware of fast travel in the game. I also got to the end of disc 1 in FF7 before realizing I could equip weapons and materia. Has anyone else made these kinds of mistakes?
 - [July 3, 2021, 12:10 a.m.](https://roytang.net/2021/07/1410994400935636998/): Dinobot Snarl #sketchdaily 182/365
 - [July 2, 2021, 6:49 p.m.](https://roytang.net/2021/07/1410913409894215682/): @wrongwaygoback Witcher 3 should still be on sale
-- [July 1, 2021, 9:48 p.m.](https://roytang.net/2021/07/69d2374b0f0232065102954a54736506/): The Living Daylights (1987): Bond film no. 15 and first of only two Dalton entries. More 80s music theme song, this time by A-ha. Much more serious in tone compared to Connery / Moore. John Rhys-Davies is here, years before Sliders or LOTR. No sci-fi mad scientist stuff this time, straight-up spy stuff (more or less). Assassinations, defections, Russia&#x27;s internal politics, Afghan rebels, weapons, smuggling, drug deals, faked deaths, etc. Might be a tiny bit too long. Surprisingly, I liked this one!
 
 [View all notes](https://roytang.net/notes)
 
