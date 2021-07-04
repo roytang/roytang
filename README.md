@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-07-04](https://roytang.net/2021/07/weeknotes-2021-07-04/)
 - [Book Review: Linchpin by Seth Godin](https://roytang.net/2021/06/linchpin/)
 - [Are Fighting Games Too Complex? Also, Guilty Gear -STRIVE- Review](https://roytang.net/2021/06/fg-complex-ggs/)
 - [Weeknotes 2021-06-27](https://roytang.net/2021/06/weeknotes-2021-06-27/)
 - [Schitt&#x27;s Creek](https://roytang.net/2021/06/schitts-creek/)
-- [Breaking Prod](https://roytang.net/2021/06/breaking-prod/)
 
 [View all posts](https://roytang.net/blog)
 
