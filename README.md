@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Tomorrow Never Dies](https://roytang.net/2021/07/tomorrow-never-dies/)
 - [ComSat and CompShops](https://roytang.net/2021/07/comsat-and-compshops/)
 - [Goldeneye (1995)](https://roytang.net/2021/07/goldeneye/)
 - [Books: Einstein&#x27;s Dreams by Alan Lightman](https://roytang.net/2021/07/einsteins-dreams/)
 - [Weeknotes 2021-07-04](https://roytang.net/2021/07/weeknotes-2021-07-04/)
-- [Book Review: Linchpin by Seth Godin](https://roytang.net/2021/06/linchpin/)
 
 [View all posts](https://roytang.net/blog)
 
