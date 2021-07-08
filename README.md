@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [On Being President](https://roytang.net/2021/07/on-being-president/)
 - [Tomorrow Never Dies](https://roytang.net/2021/07/tomorrow-never-dies/)
 - [ComSat and CompShops](https://roytang.net/2021/07/comsat-and-compshops/)
 - [Goldeneye (1995)](https://roytang.net/2021/07/goldeneye/)
 - [Books: Einstein&#x27;s Dreams by Alan Lightman](https://roytang.net/2021/07/einsteins-dreams/)
-- [Weeknotes 2021-07-04](https://roytang.net/2021/07/weeknotes-2021-07-04/)
 
 [View all posts](https://roytang.net/blog)
 
