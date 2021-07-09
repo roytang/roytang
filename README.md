@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 9, 2021, 11:30 a.m.](https://roytang.net/2021/07/1413339775260520448/): He can, but he shouldn’t, but he will, because he’s shameless Quoted PhilippineStar&#x27;s tweet: Can Rody Run For VP? Election Lawyer Says He Can, But He Shouldn’t https://bit.ly/3ht8aQE | @onenewsph
 - [July 9, 2021, 1:16 a.m.](https://roytang.net/2021/07/1413185333429030916/): Welp, did the traditional launch day sealed for #mtgafr on #magicarena, did terribly lol. I initially tried building the UW with the two PWs, but there wasn&#x27;t any removal in those colors, so I went with the RB build instead, maybe that was a bad decision.
 - [July 8, 2021, 10:48 p.m.](https://roytang.net/2021/07/1413148073140711440/): Replacing the words &quot;the economy&quot; with &quot;rich people&#x27;s yacht money&quot; -How can we respond to COVID without sacrificing rich people&#x27;s yacht money? -Saving the environment sounds nice but what about rich people&#x27;s yacht money? -Medicare for all would destroy rich people&#x27;s yacht money
 - [July 8, 2021, 3:24 a.m.](https://roytang.net/2021/07/1412855051974975489/): @Oatmeal why not promote RSS (and teach people how to use it) in addition to your newsletter?
 - [July 7, 2021, 8:37 p.m.](https://roytang.net/2021/07/1412752746424397824/): Hot weather #sketchdaily 191/365
-- [July 7, 2021, 12:29 a.m.](https://roytang.net/2021/07/1412448553809551361/): Football head 190/365 #sketchdaily
 
 [View all notes](https://roytang.net/notes)
 
