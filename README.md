@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The internet is not broken. People are.](https://roytang.net/2021/07/the-internet-is-not-broken-people-are/)
 - [the rotting internet – Snakes and Ladders](https://roytang.net/2021/07/the-rotting-internet-snakes-and-ladders/)
 - [A responsive grid layout with no media queries](https://roytang.net/2021/06/a-responsive-grid-layout-with-no-media-queries/)
 - [The demise of amateur content](https://roytang.net/2021/06/the-demise-of-amateur-content5-min-well-spent/)
 - [Sheila Marie Orfano How do you know what’s true?](https://roytang.net/2021/06/sheila-marie-orfano-how-do-you-know-whats-true/)
-- [Chapter 9: Community](https://roytang.net/2021/06/chapter-9-community/)
 
 [View all links](https://roytang.net/links)
 
