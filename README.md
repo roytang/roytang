@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 10, 2021, 10:21 p.m.](https://roytang.net/2021/07/1413866038387564546/): 2022: National standard for adobo 2023: Elite enforcement units hunt down rogue adobo variants 2024: Begun, the adobo wars have Quoted inquirerdotnet&#x27;s tweet: The DTI has formed a committee to come up with a “national standard” for adobo and other popular Filipino favorites as “sinigang,&quot; “sisig,&quot; and lechon. | @roycanivel_inq https://newsinfo.inquirer.net/1457952/committee-to-decide-what-is-standard-adobo?utm_medium=Social&amp;utm_source=Twitter#Echobox=1625870290-1
 - [July 10, 2021, 7:14 p.m.](https://roytang.net/2021/07/1413818822562258951/): Sherlock Bones: Dungeon Detective #sketchdaily 191/365
 - [July 10, 2021, 2:11 p.m.](https://roytang.net/2021/07/1413742580622266372/): Red Guardian #sketchdaily 190/365
 - [July 10, 2021, 11:15 a.m.](https://roytang.net/2021/07/1413698404052393986/): Pot of gold #sketchdaily 189/365
 - [July 10, 2021, 5:41 a.m.](https://roytang.net/2021/07/1413614211595337734/): Final #mtgstrixhaven stats on #MagicArena. I&#x27;m glad they send out these summaries. Looks like I haven&#x27;t managed to hit mythic since Kalhdeim. The limited format was pretty fun though. #MTGArenaStats
-- [July 9, 2021, 7:06 p.m.](https://roytang.net/2021/07/1413454445388582918/): Casually drafting some Adventures in the Forgotten Realms! https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch Managed two drafts tonight, but both ended with mediocre 2-3s. I think I didn&#x27;t have enough synergy both times? Hope I figure out the format soon! YT: https://www.youtube.com/watch?v=8rzjm7Sn_Z4
 
 [View all notes](https://roytang.net/notes)
 
