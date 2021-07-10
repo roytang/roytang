@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [July 10, 2021, 7:14 p.m.](https://roytang.net/2021/07/1413818822562258951/): Sherlock Bones: Dungeon Detective #sketchdaily 191/365
 - [July 10, 2021, 2:11 p.m.](https://roytang.net/2021/07/1413742580622266372/): Red Guardian #sketchdaily 190/365
 - [July 10, 2021, 11:15 a.m.](https://roytang.net/2021/07/1413698404052393986/): Pot of gold #sketchdaily 189/365
 - [July 10, 2021, 5:41 a.m.](https://roytang.net/2021/07/1413614211595337734/): Final #mtgstrixhaven stats on #MagicArena. I&#x27;m glad they send out these summaries. Looks like I haven&#x27;t managed to hit mythic since Kalhdeim. The limited format was pretty fun though. #MTGArenaStats
 - [July 9, 2021, 7:06 p.m.](https://roytang.net/2021/07/1413454445388582918/): Casually drafting some Adventures in the Forgotten Realms! https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch Managed two drafts tonight, but both ended with mediocre 2-3s. I think I didn&#x27;t have enough synergy both times? Hope I figure out the format soon! YT: https://www.youtube.com/watch?v=8rzjm7Sn_Z4
-- [July 9, 2021, 11:30 a.m.](https://roytang.net/2021/07/1413339775260520448/): He can, but he shouldn’t, but he will, because he’s shameless Quoted PhilippineStar&#x27;s tweet: Can Rody Run For VP? Election Lawyer Says He Can, But He Shouldn’t https://bit.ly/3ht8aQE | @onenewsph
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/26/a3/26a31f66ec81255708119ddb85fabed6.jpg)
 - ![](https://roytang.net/media/cache/b6/9f/b69fdc00fed883f72c0bd5d80d685aa5.jpg)
 - ![](https://roytang.net/media/cache/ba/85/ba85fa57901c582c2d6f9003e9808650.jpg)
+- ![](https://roytang.net/media/cache/a5/5b/a55ba697a33b54025eedadd2607332e6.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
