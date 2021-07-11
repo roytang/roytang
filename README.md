@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [TikTok](https://roytang.net/2021/07/tiktok/)
 - [NPR&#x27;s Joy Generator](https://roytang.net/2021/07/nprs-joy-generator/)
 - [The internet is not broken. People are.](https://roytang.net/2021/07/the-internet-is-not-broken-people-are/)
 - [the rotting internet – Snakes and Ladders](https://roytang.net/2021/07/the-rotting-internet-snakes-and-ladders/)
 - [A responsive grid layout with no media queries](https://roytang.net/2021/06/a-responsive-grid-layout-with-no-media-queries/)
-- [The demise of amateur content](https://roytang.net/2021/06/the-demise-of-amateur-content5-min-well-spent/)
 
 [View all links](https://roytang.net/links)
 
