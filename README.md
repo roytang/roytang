@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [July 12, 2021, 12:14 a.m.](https://roytang.net/2021/07/1414256676660645888/): DJ Goomba #sketchdaily 192/365
 - [July 11, 2021, 8 a.m.](https://roytang.net/2021/07/saturday-10-movies/): A couple of movies we watched during our Saturday gaming session yesterday: America the Motion Picture (2021). Alternate history retelling of American revoluion, complete and utter nonsense. Good fun and we had a few laughs, but I really hope no American takes it seriously. Ice Road (2021). Random Liam Neeson action flick that we actual started last Saturday. Somehow they managed to make a two hour movie about driving a truck across the ice. I thought it would be better than it was because it had Laurence Fishburn, but I guess that&#x27;s not really a good basis. One of those
 - [July 10, 2021, 10:21 p.m.](https://roytang.net/2021/07/1413866038387564546/): 2022: National standard for adobo 2023: Elite enforcement units hunt down rogue adobo variants 2024: Begun, the adobo wars have Quoted inquirerdotnet&#x27;s tweet: The DTI has formed a committee to come up with a “national standard” for adobo and other popular Filipino favorites as “sinigang,&quot; “sisig,&quot; and lechon. | @roycanivel_inq https://newsinfo.inquirer.net/1457952/committee-to-decide-what-is-standard-adobo?utm_medium=Social&amp;utm_source=Twitter#Echobox=1625870290-1
 - [July 10, 2021, 7:14 p.m.](https://roytang.net/2021/07/1413818822562258951/): Sherlock Bones: Dungeon Detective #sketchdaily 191/365
 - [July 10, 2021, 2:11 p.m.](https://roytang.net/2021/07/1413742580622266372/): Red Guardian #sketchdaily 190/365
-- [July 10, 2021, 11:15 a.m.](https://roytang.net/2021/07/1413698404052393986/): Pot of gold #sketchdaily 189/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/b6/9f/b69fdc00fed883f72c0bd5d80d685aa5.jpg)
 - ![](https://roytang.net/media/cache/ba/85/ba85fa57901c582c2d6f9003e9808650.jpg)
 - ![](https://roytang.net/media/cache/a5/5b/a55ba697a33b54025eedadd2607332e6.jpg)
+- ![](https://roytang.net/media/cache/b1/7c/b17c96354915a0561cf8af9a18867b8c.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
