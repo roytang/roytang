@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [July 14, 2021, 7:38 p.m.](https://roytang.net/2021/07/1415274419363188738/): Drafting Adventures in the Forgotten Realms! ep 3 https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch
+- [July 14, 2021, 7:38 p.m.](https://roytang.net/2021/07/1415274419363188738/): Drafting Adventures in the Forgotten Realms! ep 3 https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch Today&#x27;s draft wasn&#x27;t as good as the last one, but still a pretty good finish. Internet was a bit problematic though, so the video upload is probably choppy. YT: https://www.youtube.com/watch?v=HXr2WUiQQcQ
 - [July 14, 2021, 5:14 p.m.](https://roytang.net/2021/07/1415238174377340930/): #Loki spoiler-free review: overall plot was fine, if not predictable, given what we knew about mcu phase 4 going in weak pacing and writing in most episodes; could have easily been a two hour movie instead of six one hour episodes good watch for mcu fans because of the larger phase 4 implications, but much weaker as a standalone series
 - [July 12, 2021, 9:34 p.m.](https://roytang.net/2021/07/1414578905676009476/): Robin Hood #sketchdaily 193/365
 - [July 12, 2021, 7:26 p.m.](https://roytang.net/2021/07/1414546601079619591/): Drafting Adventures in the Forgotten Realms! ep 2 https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch Had a great run tonight with UR, getting my first 7-win draft in the format! YT: https://www.youtube.com/watch?v=E9jU9R5l088
