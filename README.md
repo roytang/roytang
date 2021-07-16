@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [July 16, 2021, 7:50 p.m.](https://roytang.net/2021/07/1416002250653192192/): Drafting Adventures in the Forgotten Realms! ep 4 https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch
+- [July 16, 2021, 7:50 p.m.](https://roytang.net/2021/07/1416002250653192192/): Drafting Adventures in the Forgotten Realms! ep 4 https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch This session was 2 terrible drafts. You can still watch it if you like: https://www.youtube.com/watch?v=zgWzP97XPno
 - [July 15, 2021, 11:58 p.m.](https://roytang.net/2021/07/1415702426967953408/): Greninja #sketchdaily 196/365
 - [July 15, 2021, 11:27 a.m.](https://roytang.net/2021/07/1415513241527021574/): I am often asked if I will “return to cryptocurrency” or begin regularly sharing my thoughts on the topic again. My answer is a wholehearted “no”, but to avoid repeating myself I figure it might be worthwhile briefly explaining why here…
 - [July 14, 2021, 11:05 p.m.](https://roytang.net/2021/07/1415326507933716480/): Capturing Casper #sketchdaily 195/365
