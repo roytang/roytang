@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Drawing pictures of cities](https://roytang.net/2021/07/drawing-pictures-of-cities/)
 - [‘We Won, and We Turned Into Assholes’](https://roytang.net/2021/07/we-won-and-we-turned-into-assholes/)
 - [Ask for Help](https://roytang.net/2021/07/ask-for-help/)
 - [Press any key to start — A little personal story regarding something I...](https://roytang.net/2021/07/press-any-key-to-start-a-little-personal-story-regarding-something-i/)
 - [The unreasonable effectiveness of just showing up everyday](https://roytang.net/2021/07/the-unreasonable-effectiveness-of-just-showing-up-everyday/)
-- [Hobson&#x27;s Browser](https://roytang.net/2021/07/hobsons-browser/)
 
 [View all links](https://roytang.net/links)
 
