@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Press any key to start — A little personal story regarding something I...](https://roytang.net/2021/07/press-any-key-to-start-a-little-personal-story-regarding-something-i/)
 - [The unreasonable effectiveness of just showing up everyday](https://roytang.net/2021/07/the-unreasonable-effectiveness-of-just-showing-up-everyday/)
 - [Hobson&#x27;s Browser](https://roytang.net/2021/07/hobsons-browser/)
 - [NPR&#x27;s Joy Generator](https://roytang.net/2021/07/nprs-joy-generator/)
 - [The internet is not broken. People are.](https://roytang.net/2021/07/the-internet-is-not-broken-people-are/)
-- [the rotting internet – Snakes and Ladders](https://roytang.net/2021/07/the-rotting-internet-snakes-and-ladders/)
 
 [View all links](https://roytang.net/links)
 
