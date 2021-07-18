@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-07-18](https://roytang.net/2021/07/weeknotes-2021-07-18/)
 - [Reviews: The World is Not Enough, Barry season 1, Loki](https://roytang.net/2021/07/wine-barry-loki/)
 - [Weeknotes 2021-07-11](https://roytang.net/2021/07/weeknotes-2021-07-11/)
 - [Black Widow](https://roytang.net/2021/07/black-widow/)
 - [On Being President](https://roytang.net/2021/07/on-being-president/)
-- [Tomorrow Never Dies](https://roytang.net/2021/07/tomorrow-never-dies/)
 
 [View all posts](https://roytang.net/blog)
 
