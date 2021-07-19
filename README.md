@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 19, 2021, 9:42 a.m.](https://roytang.net/2021/07/1416936573212389378/): Hit an early in the month (for me anyway) Mythic rank on #magicarena early on a Monday morning, using UW Auras in Historic! Haven&#x27;t hit mythic since before Strixhaven lol.
 - [July 19, 2021, 1:28 a.m.](https://roytang.net/2021/07/1416812141814829059/): Spy vs Spy #sketchdaily 198/365
 - [July 19, 2021, 1:14 a.m.](https://roytang.net/2021/07/1416808621573173249/): Sami #sketchdaily 197/365
 - [July 18, 2021, 1:45 a.m.](https://roytang.net/2021/07/1416454051726643201/): I just wanna keep being proof that good people with no hidden agendas still exist in this world.
 - [July 16, 2021, 7:50 p.m.](https://roytang.net/2021/07/1416002250653192192/): Drafting Adventures in the Forgotten Realms! ep 4 https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch This session was 2 terrible drafts. You can still watch it if you like: https://www.youtube.com/watch?v=zgWzP97XPno
-- [July 15, 2021, 11:58 p.m.](https://roytang.net/2021/07/1415702426967953408/): Greninja #sketchdaily 196/365
 
 [View all notes](https://roytang.net/notes)
 
