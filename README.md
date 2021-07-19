@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [July 20, 2021, 1:10 a.m.](https://roytang.net/2021/07/1417170088751341573/): Shockwave #sketchdaily #transformers 200/365
 - [July 19, 2021, 11:58 p.m.](https://roytang.net/2021/07/1417151745805848580/): Spider-ham #sketchdaily 199/365
 - [July 19, 2021, 9:42 a.m.](https://roytang.net/2021/07/1416936573212389378/): Hit an early in the month (for me anyway) Mythic rank on #magicarena early on a Monday morning, using UW Auras in Historic! Haven&#x27;t hit mythic since before Strixhaven lol.
 - [July 19, 2021, 1:28 a.m.](https://roytang.net/2021/07/1416812141814829059/): Spy vs Spy #sketchdaily 198/365
 - [July 19, 2021, 1:14 a.m.](https://roytang.net/2021/07/1416808621573173249/): Sami #sketchdaily 197/365
-- [July 18, 2021, 1:45 a.m.](https://roytang.net/2021/07/1416454051726643201/): I just wanna keep being proof that good people with no hidden agendas still exist in this world.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/99/3b/993ba4f3f321dbf75e1475565204da0c.jpg)
 - ![](https://roytang.net/media/cache/9a/a8/9aa89a9ae762454f02b279a83b59d2ae.jpg)
 - ![](https://roytang.net/media/cache/37/d3/37d3b96913c799a98fe9070957125f25.jpg)
+- ![](https://roytang.net/media/cache/24/e0/24e0d3d6aafdb4a6cd96c59d8942b7d7.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
