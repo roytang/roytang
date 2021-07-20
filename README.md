@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 20, 2021, 5:43 p.m.](https://roytang.net/2021/07/1417419914491555840/): Hungry Hippo menu circa 2013 (RIP)
 - [July 20, 2021, 4:54 p.m.](https://roytang.net/2021/07/1417407676640813061/): @rocketkeis Yes para accesaible to blind people
 - [July 20, 2021, 4:43 p.m.](https://roytang.net/2021/07/1417404857376415744/): When you accept turncoats and balimbings and trapos into your party, would you really expect them to have loyalty or respect for your party and its history? Quoted inquirerdotnet&#x27;s tweet: Senator Aquilino “Koko” Pimentel III poured his heart out as he talked about the worsening rift within the PDP-Laban, which was founded by his own father, the late Senator Aquilino “Nene” Pimentel Jr. https://inq.news/PimentelPDP
 - [July 20, 2021, 12:22 p.m.](https://roytang.net/2021/07/1417339197384323075/): So apparently I&#x27;m having a good month on #magicarena. After hitting mythic yesterday I managed to win the standard challenge today for the first time! Decklist is modified from @urlichmtg (because I didn&#x27;t have enough WCs lol)
 - [July 20, 2021, 1:10 a.m.](https://roytang.net/2021/07/1417170088751341573/): Shockwave #sketchdaily #transformers 200/365
-- [July 19, 2021, 11:58 p.m.](https://roytang.net/2021/07/1417151745805848580/): Spider-ham #sketchdaily 199/365
 
 [View all notes](https://roytang.net/notes)
 
