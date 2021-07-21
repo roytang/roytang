@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Reviews: Die Another Day, Army of the Dead, Valerian, Superstore, Omelas](https://roytang.net/2021/07/dad-aotd-vatcoatp-omelas/)
 - [Weeknotes 2021-07-18](https://roytang.net/2021/07/weeknotes-2021-07-18/)
 - [Reviews: The World is Not Enough, Barry season 1, Loki](https://roytang.net/2021/07/wine-barry-loki/)
 - [Weeknotes 2021-07-11](https://roytang.net/2021/07/weeknotes-2021-07-11/)
 - [Black Widow](https://roytang.net/2021/07/black-widow/)
-- [On Being President](https://roytang.net/2021/07/on-being-president/)
 
 [View all posts](https://roytang.net/blog)
 
