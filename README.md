@@ -27,7 +27,7 @@ Latest shared links:
 Latest notes:
 
 - [July 22, 2021, 9:14 p.m.](https://roytang.net/2021/07/1418197671228047362/): I guess I&#x27;m doing this #Tumindig thing as well, despite my shaky hands. Inspired by @KevinKalbo. Also #sketchdaily 203/365 Context: https://www.gmanetwork.com/news/lifestyle/artandculture/796248/viral-illustration-sparks-solidarity-among-pinoy-artists-to-stand-in-dissent/story/
-- [July 22, 2021, 7:15 p.m.](https://roytang.net/2021/07/1418167706780684289/): Drafting Adventures in the Forgotten Realms! ep 5 https://www.twitch.tv/twitchyroy #mtgafr #twitch #magicarena
+- [July 22, 2021, 7:15 p.m.](https://roytang.net/2021/07/1418167706780684289/): Drafting Adventures in the Forgotten Realms! ep 5 https://www.twitch.tv/twitchyroy #mtgafr #twitch #magicarena The draft deck was decent, but lacked removal. Draft didn&#x27;t go well, and network even crapped out for me towards the end, so I didn&#x27;t bother with a second one. Finished 2-3. YT: https://www.youtube.com/watch?v=MRRMvRA34T4
 - [July 22, 2021, 12:37 a.m.](https://roytang.net/2021/07/1417886501023543302/): Jetsons dump truck #sketchdaily 202/365
 - [July 20, 2021, 10:05 p.m.](https://roytang.net/2021/07/1417485850267557894/): Kraken attack part 3 #sketchdaily 201/365 Previously, previously
 - [July 20, 2021, 5:43 p.m.](https://roytang.net/2021/07/1417419914491555840/): Hungry Hippo menu circa 2013 (RIP)
