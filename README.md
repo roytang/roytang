@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 22, 2021, 7:15 p.m.](https://roytang.net/2021/07/1418167706780684289/): Drafting Adventures in the Forgotten Realms! ep 5 https://www.twitch.tv/twitchyroy #mtgafr #twitch #magicarena
 - [July 22, 2021, 12:37 a.m.](https://roytang.net/2021/07/1417886501023543302/): Jetsons dump truck #sketchdaily 202/365
 - [July 20, 2021, 10:05 p.m.](https://roytang.net/2021/07/1417485850267557894/): Kraken attack part 3 #sketchdaily 201/365 Previously, previously
 - [July 20, 2021, 5:43 p.m.](https://roytang.net/2021/07/1417419914491555840/): Hungry Hippo menu circa 2013 (RIP)
 - [July 20, 2021, 4:54 p.m.](https://roytang.net/2021/07/1417407676640813061/): @rocketkeis Yes para accessible to blind people
-- [July 20, 2021, 4:43 p.m.](https://roytang.net/2021/07/1417404857376415744/): When you accept turncoats and balimbings and trapos into your party, would you really expect them to have loyalty or respect for your party and its history? Quoted inquirerdotnet&#x27;s tweet: Senator Aquilino “Koko” Pimentel III poured his heart out as he talked about the worsening rift within the PDP-Laban, which was founded by his own father, the late Senator Aquilino “Nene” Pimentel Jr. https://inq.news/PimentelPDP
 
 [View all notes](https://roytang.net/notes)
 
