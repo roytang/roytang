@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [D&amp;amp;D’s Drizzt books were built on racist tropes, R.A. Salvatore wants to change that](https://roytang.net/2021/07/dampds-drizzt-books-were-built-on-racist-tropes-ra-salvatore-wants-to-change-that/)
+- [PostgreSQL: LIMIT vs FETCH FIRST ROWS … WITH TIES](https://roytang.net/2021/07/postgresql-limit-vs-fetch-first-rows-with-ties/)
 - [on feeling safe](https://roytang.net/2021/07/on-feeling-safe/)
 - [Designers Use “Guerilla Greening” To Imagine Major Cities as Vibrant Urban Forests](https://roytang.net/2021/07/designers-use-guerilla-greening-to-imagine-major-cities-as-vibrant-urban-forests/)
 - [Drawing pictures of cities](https://roytang.net/2021/07/drawing-pictures-of-cities/)
-- [‘We Won, and We Turned Into Assholes’](https://roytang.net/2021/07/we-won-and-we-turned-into-assholes/)
-- [Ask for Help](https://roytang.net/2021/07/ask-for-help/)
 
 [View all links](https://roytang.net/links)
 
