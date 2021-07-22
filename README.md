@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [July 22, 2021, 9:14 p.m.](https://roytang.net/2021/07/1418197671228047362/): I guess I&#x27;m doing this #Tumindig thing as well, despite my shaky hands. Inspired by @KevinKalbo. Also #sketchdaily 203/365 Context: https://www.gmanetwork.com/news/lifestyle/artandculture/796248/viral-illustration-sparks-solidarity-among-pinoy-artists-to-stand-in-dissent/story/
 - [July 22, 2021, 7:15 p.m.](https://roytang.net/2021/07/1418167706780684289/): Drafting Adventures in the Forgotten Realms! ep 5 https://www.twitch.tv/twitchyroy #mtgafr #twitch #magicarena
 - [July 22, 2021, 12:37 a.m.](https://roytang.net/2021/07/1417886501023543302/): Jetsons dump truck #sketchdaily 202/365
 - [July 20, 2021, 10:05 p.m.](https://roytang.net/2021/07/1417485850267557894/): Kraken attack part 3 #sketchdaily 201/365 Previously, previously
 - [July 20, 2021, 5:43 p.m.](https://roytang.net/2021/07/1417419914491555840/): Hungry Hippo menu circa 2013 (RIP)
-- [July 20, 2021, 4:54 p.m.](https://roytang.net/2021/07/1417407676640813061/): @rocketkeis Yes para accessible to blind people
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/24/e0/24e0d3d6aafdb4a6cd96c59d8942b7d7.jpg)
 - ![](https://roytang.net/media/cache/da/54/da546dd186cdf1162db2d10986c12448.jpg)
 - ![](https://roytang.net/media/cache/d9/0d/d90da302dc63e835c962ae8b591c3518.jpg)
+- ![](https://roytang.net/media/cache/2b/29/2b29faa3ddd2c397d2ea60333f4ef09e.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
