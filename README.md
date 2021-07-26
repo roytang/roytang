@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 26, 2021, 9:47 p.m.](https://roytang.net/2021/07/1419655504289095688/): Best news of the day, if not the past 5 years. Congratulations, you deserve all the accolades for almost practically carrying the country. What a time to be alive! Quoted RapplerSports&#x27;s tweet: SALAMAT, HIDILYN DIAZ! 🇵🇭🥇🏋🏻‍♀️ Even with her mask on, Hidilyn Diaz could not hide her emotions. Tears of joy for the Philippines&#x27; first-ever Olympic gold medalist. (Photos: Edgard Garrido/Reuters) #Tokyo2020 #Olympics #PHI #Weightlifting READ: https://www.rappler.com/sports/weightlifting-results-hidilyn-diaz-tokyo-olympics-july-26-2021
 - [July 26, 2021, 9:15 p.m.](https://roytang.net/2021/07/1419647521350066181/): Beach laziness #sketchdaily 206/365
 - [July 26, 2021, 3:03 a.m.](https://roytang.net/2021/07/1419372790331805698/): Roy Mustang #sketchdaily 205/365 I enjoyed this one and liked how it turned out, but it took me over an hour because I was playing with various #Procreate tools and brushes. Here&#x27;s a timelapse: https://www.youtube.com/watch?v=OOYUkG1ac38
 - [July 26, 2021, 12:40 a.m.](https://roytang.net/2021/07/1419336759284944897/): Trying out https://tweet-like-me.xyz/. Not sure I agree with these results!
 - [July 25, 2021, 11:25 p.m.](https://roytang.net/2021/07/1419317904571387909/): Car broke down #sketchdaily 204/365
-- [July 24, 2021, 4:37 p.m.](https://roytang.net/2021/07/1418852829381337088/): Ted Lasso being absolutely right about Gin Blossoms - Ted Lasso S02E01 #tv
 
 [View all notes](https://roytang.net/notes)
 
