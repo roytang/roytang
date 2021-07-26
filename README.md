@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [July 26, 2021, 11:58 p.m.](https://roytang.net/2021/07/1419688642017054723/): I guess I&#x27;m getting all my drafting done by Aug 12 so I can focus on collecting these! The F2P #magicarena challenge just got more interesting lol Quoted MTG_Arena&#x27;s tweet: It&#x27;s all here—Jumpstart: Historic Horizons expands the Historic format further, providing a glimpse of what&#x27;s possible for Magic: The Gathering Arena. https://www.ign.com/articles/jumpstart-historic-horizons-spoilers-mtg-arena-digital-only-card-reveal-details
+- [July 26, 2021, 11:51 p.m.](https://roytang.net/2021/07/1419686724809105409/): Mad Hatter #sketchdaily 207/365
 - [July 26, 2021, 9:47 p.m.](https://roytang.net/2021/07/1419655504289095688/): Best news of the day, if not the past 5 years. Congratulations, you deserve all the accolades for almost practically carrying the country. What a time to be alive! Quoted RapplerSports&#x27;s tweet: SALAMAT, HIDILYN DIAZ! 🇵🇭🥇🏋🏻‍♀️ Even with her mask on, Hidilyn Diaz could not hide her emotions. Tears of joy for the Philippines&#x27; first-ever Olympic gold medalist. (Photos: Edgard Garrido/Reuters) #Tokyo2020 #Olympics #PHI #Weightlifting READ: https://www.rappler.com/sports/weightlifting-results-hidilyn-diaz-tokyo-olympics-july-26-2021
 - [July 26, 2021, 9:15 p.m.](https://roytang.net/2021/07/1419647521350066181/): Beach laziness #sketchdaily 206/365
 - [July 26, 2021, 3:03 a.m.](https://roytang.net/2021/07/1419372790331805698/): Roy Mustang #sketchdaily 205/365 I enjoyed this one and liked how it turned out, but it took me over an hour because I was playing with various #Procreate tools and brushes. Here&#x27;s a timelapse: https://www.youtube.com/watch?v=OOYUkG1ac38
-- [July 26, 2021, 12:40 a.m.](https://roytang.net/2021/07/1419336759284944897/): Trying out https://tweet-like-me.xyz/. Not sure I agree with these results!
-- [July 25, 2021, 11:25 p.m.](https://roytang.net/2021/07/1419317904571387909/): Car broke down #sketchdaily 204/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/62/fc/62fc0d465e8db2102c4d75f91f4786b4.jpg)
 - ![](https://roytang.net/media/cache/c2/c7/c2c747090695a8888f87f5ac4e9fc5fc.jpg)
 - ![](https://roytang.net/media/cache/76/d1/76d16a1346159c86531ad6b4954c79d4.jpg)
+- ![](https://roytang.net/media/cache/a5/a1/a5a129ce71d5ce23211e6c68d2697f0a.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
