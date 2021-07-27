@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 28, 2021, 1:27 a.m.](https://roytang.net/2021/07/1420073402728026115/): I&#x27;m here for the tiny Stay Pufts at 1:32 Ghostbusters Afterlife Trailer: https://www.youtube.com/watch?v=XKe5XTrThj8 #movies
+- [July 28, 2021, 1:21 a.m.](https://roytang.net/2021/07/1420071833718591489/): The Great Ace Attorney Chronicles is out on Steam! I did a Let&#x27;s Play + commentary with some friends for the first hour or so of the game: https://www.youtube.com/watch?v=X-jAUOpQUO4 #gaming
 - [July 27, 2021, 10:21 p.m.](https://roytang.net/2021/07/1420026535797563394/): Sailor Man #sketchdaily 208/365
 - [July 27, 2021, 10 p.m.](https://roytang.net/2021/07/1420021350303940614/): Whenever this guy (Concepcion) says anything it always sounds like peak late stage capitalism trying to maximize profit at the cost of people&#x27;s welfare Quoted cnnphilippines&#x27;s tweet: “What is the least pain? Don’t lock down the entire economy, lock down the unvaccinated people.” http://bit.ly/3eYvK5U
 - [July 27, 2021, 2:23 p.m.](https://roytang.net/2021/07/1419906150078697473/): Great thread, including the followup threads Quoted ErynnBrook&#x27;s tweet: I want to tell you a story about how my mum taught me that I’m allowed to leave an uncomfortable situation.
-- [July 26, 2021, 11:58 p.m.](https://roytang.net/2021/07/1419688642017054723/): I guess I&#x27;m getting all my drafting done by Aug 12 so I can focus on collecting these! The F2P #magicarena challenge just got more interesting lol Quoted MTG_Arena&#x27;s tweet: It&#x27;s all here—Jumpstart: Historic Horizons expands the Historic format further, providing a glimpse of what&#x27;s possible for Magic: The Gathering Arena. https://www.ign.com/articles/jumpstart-historic-horizons-spoilers-mtg-arena-digital-only-card-reveal-details
-- [July 26, 2021, 11:51 p.m.](https://roytang.net/2021/07/1419686724809105409/): Mad Hatter #sketchdaily 207/365
 
 [View all notes](https://roytang.net/notes)
 
