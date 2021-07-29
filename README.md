@@ -6,21 +6,21 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Reviews: Casino Royale, Gunpowder Milkshake, The Long Halloween, Masters of the Universe Revelation](https://roytang.net/2021/07/reviews-casino-gunpowder-halloween-masters/)
 - [Weeknotes 2021-07-25](https://roytang.net/2021/07/weeknotes-2021-07-25/)
 - [Reviews: Die Another Day, Army of the Dead, Valerian, Superstore, Omelas](https://roytang.net/2021/07/dad-aotd-vatcoatp-omelas/)
 - [Weeknotes 2021-07-18](https://roytang.net/2021/07/weeknotes-2021-07-18/)
 - [Reviews: The World is Not Enough, Barry season 1, Loki](https://roytang.net/2021/07/wine-barry-loki/)
-- [Weeknotes 2021-07-11](https://roytang.net/2021/07/weeknotes-2021-07-11/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
+- [The Day the Good Internet Died](https://roytang.net/2021/07/the-day-the-good-internet-died/)
 - [D&amp;amp;D’s Drizzt books were built on racist tropes, R.A. Salvatore wants to change that](https://roytang.net/2021/07/dampds-drizzt-books-were-built-on-racist-tropes-ra-salvatore-wants-to-change-that/)
 - [PostgreSQL: LIMIT vs FETCH FIRST ROWS … WITH TIES](https://roytang.net/2021/07/postgresql-limit-vs-fetch-first-rows-with-ties/)
 - [on feeling safe](https://roytang.net/2021/07/on-feeling-safe/)
 - [Designers Use “Guerilla Greening” To Imagine Major Cities as Vibrant Urban Forests](https://roytang.net/2021/07/designers-use-guerilla-greening-to-imagine-major-cities-as-vibrant-urban-forests/)
-- [Drawing pictures of cities](https://roytang.net/2021/07/drawing-pictures-of-cities/)
 
 [View all links](https://roytang.net/links)
 
