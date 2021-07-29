@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Return-to-Office Existential Crisis](https://roytang.net/2021/07/the-return-to-office-existential-crisis/)
 - [The Day the Good Internet Died](https://roytang.net/2021/07/the-day-the-good-internet-died/)
 - [D&amp;amp;D’s Drizzt books were built on racist tropes, R.A. Salvatore wants to change that](https://roytang.net/2021/07/dampds-drizzt-books-were-built-on-racist-tropes-ra-salvatore-wants-to-change-that/)
 - [PostgreSQL: LIMIT vs FETCH FIRST ROWS … WITH TIES](https://roytang.net/2021/07/postgresql-limit-vs-fetch-first-rows-with-ties/)
 - [on feeling safe](https://roytang.net/2021/07/on-feeling-safe/)
-- [Designers Use “Guerilla Greening” To Imagine Major Cities as Vibrant Urban Forests](https://roytang.net/2021/07/designers-use-guerilla-greening-to-imagine-major-cities-as-vibrant-urban-forests/)
 
 [View all links](https://roytang.net/links)
 
