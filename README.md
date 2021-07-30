@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [July 30, 2021, 10:57 p.m.](https://roytang.net/2021/07/1421122746860244998/): Look to the sky #sketchdaily 211/365
 - [July 30, 2021, 10:48 p.m.](https://roytang.net/2021/07/1421120486411440129/): @ohhhace July is month 7. We&#x27;ve been in the second half for a month now.
 - [July 29, 2021, 11:42 p.m.](https://roytang.net/2021/07/1420771836619497474/): Bicycle Kick #sketchdaily 210/365
 - [July 28, 2021, 11:57 p.m.](https://roytang.net/2021/07/1420413172377276427/): The Skifree Monster #sketchdaily 209/365
 - [July 28, 2021, 7:31 p.m.](https://roytang.net/2021/07/1420346237467910146/): Drafting Adventures in the Forgotten Realms! ep 6 - Quick Drafts! https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch It was a bit of longish stream. I did two quick drafts, a mediocre RW run and an excellent BW run that hit 7 wins and got me into platinum! YT: https://www.youtube.com/watch?v=jFaQI99Ksfg
-- [July 28, 2021, 1:27 a.m.](https://roytang.net/2021/07/1420073402728026115/): I&#x27;m here for the tiny Stay Pufts at 1:32 Ghostbusters Afterlife Trailer: https://www.youtube.com/watch?v=XKe5XTrThj8 #movies
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/e3/ec/e3ec14a9893ba1abba4f878bdd897a3c.jpg)
 - ![](https://roytang.net/media/cache/09/37/0937af0184635d07416d813c3e9388d2.jpg)
 - ![](https://roytang.net/media/cache/70/c0/70c018e9d6652d3118f51b4eb4e17f06.jpg)
+- ![](https://roytang.net/media/cache/81/55/81550458fc2c51a99756e364a83b393d.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
