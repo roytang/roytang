@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 30, 2021, 10:48 p.m.](https://roytang.net/2021/07/1421120486411440129/): @ohhhace July is month 7. We&#x27;ve been in the second half for a month now.
 - [July 29, 2021, 11:42 p.m.](https://roytang.net/2021/07/1420771836619497474/): Bicycle Kick #sketchdaily 210/365
 - [July 28, 2021, 11:57 p.m.](https://roytang.net/2021/07/1420413172377276427/): The Skifree Monster #sketchdaily 209/365
 - [July 28, 2021, 7:31 p.m.](https://roytang.net/2021/07/1420346237467910146/): Drafting Adventures in the Forgotten Realms! ep 6 - Quick Drafts! https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch It was a bit of longish stream. I did two quick drafts, a mediocre RW run and an excellent BW run that hit 7 wins and got me into platinum! YT: https://www.youtube.com/watch?v=jFaQI99Ksfg
 - [July 28, 2021, 1:27 a.m.](https://roytang.net/2021/07/1420073402728026115/): I&#x27;m here for the tiny Stay Pufts at 1:32 Ghostbusters Afterlife Trailer: https://www.youtube.com/watch?v=XKe5XTrThj8 #movies
-- [July 28, 2021, 1:21 a.m.](https://roytang.net/2021/07/1420071833718591489/): The Great Ace Attorney Chronicles is out on Steam! I did a Let&#x27;s Play + commentary with some friends for the first hour or so of the game: https://www.youtube.com/watch?v=X-jAUOpQUO4 #gaming
 
 [View all notes](https://roytang.net/notes)
 
