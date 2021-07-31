@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [July 31, 2021, 9:44 p.m.](https://roytang.net/2021/07/1421466841453502467/): Old Man McDonald #sketchdaily 212/365
 - [July 31, 2021, 1:20 a.m.](https://roytang.net/2021/07/1421158845007634433/): Couldn&#x27;t sleep, decided to grind some @EternalCardGame instead, finally hit Master rank after a long drought, just before the end of the month too. I think it&#x27;s been an even longer time since I&#x27;ve had both Master in Eternal and Mythic in Arena!
 - [July 30, 2021, 10:57 p.m.](https://roytang.net/2021/07/1421122746860244998/): Look to the sky #sketchdaily 211/365
 - [July 30, 2021, 10:48 p.m.](https://roytang.net/2021/07/1421120486411440129/): @ohhhace July is month 7. We&#x27;ve been in the second half for a month now.
 - [July 29, 2021, 11:42 p.m.](https://roytang.net/2021/07/1420771836619497474/): Bicycle Kick #sketchdaily 210/365
-- [July 28, 2021, 11:57 p.m.](https://roytang.net/2021/07/1420413172377276427/): The Skifree Monster #sketchdaily 209/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/09/37/0937af0184635d07416d813c3e9388d2.jpg)
 - ![](https://roytang.net/media/cache/70/c0/70c018e9d6652d3118f51b4eb4e17f06.jpg)
 - ![](https://roytang.net/media/cache/81/55/81550458fc2c51a99756e364a83b393d.jpg)
+- ![](https://roytang.net/media/cache/09/dd/09dd829abcbacbc74b91c818461bba6f.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
