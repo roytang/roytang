@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Duterte restores Philippines as ‘sick man of Asia’](https://roytang.net/2021/08/duterte-restores-philippines-as-sick-man-of-asia/)
 - [What is a diamond dependency conflict?](https://roytang.net/2021/08/what-is-a-diamond-dependency-conflict/)
 - [700,000 lines of code, 20 years, and one developer: How Dwarf Fortress is built](https://roytang.net/2021/08/700000-lines-of-code-20-years-and-one-developer-how-dwarf-fortress-is-built/)
 - [The Return-to-Office Existential Crisis](https://roytang.net/2021/07/the-return-to-office-existential-crisis/)
 - [The Day the Good Internet Died](https://roytang.net/2021/07/the-day-the-good-internet-died/)
-- [D&amp;amp;D’s Drizzt books were built on racist tropes, R.A. Salvatore wants to change that](https://roytang.net/2021/07/dampds-drizzt-books-were-built-on-racist-tropes-ra-salvatore-wants-to-change-that/)
 
 [View all links](https://roytang.net/links)
 
