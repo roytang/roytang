@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [What is a diamond dependency conflict?](https://roytang.net/2021/08/what-is-a-diamond-dependency-conflict/)
+- [700,000 lines of code, 20 years, and one developer: How Dwarf Fortress is built](https://roytang.net/2021/08/700000-lines-of-code-20-years-and-one-developer-how-dwarf-fortress-is-built/)
 - [The Return-to-Office Existential Crisis](https://roytang.net/2021/07/the-return-to-office-existential-crisis/)
 - [The Day the Good Internet Died](https://roytang.net/2021/07/the-day-the-good-internet-died/)
 - [D&amp;amp;D’s Drizzt books were built on racist tropes, R.A. Salvatore wants to change that](https://roytang.net/2021/07/dampds-drizzt-books-were-built-on-racist-tropes-ra-salvatore-wants-to-change-that/)
-- [PostgreSQL: LIMIT vs FETCH FIRST ROWS … WITH TIES](https://roytang.net/2021/07/postgresql-limit-vs-fetch-first-rows-with-ties/)
-- [on feeling safe](https://roytang.net/2021/07/on-feeling-safe/)
 
 [View all links](https://roytang.net/links)
 
