@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-08-01](https://roytang.net/2021/08/weeknotes-2021-08-01/)
 - [Reviews: Casino Royale, Gunpowder Milkshake, The Long Halloween, Masters of the Universe Revelation](https://roytang.net/2021/07/reviews-casino-gunpowder-halloween-masters/)
 - [Weeknotes 2021-07-25](https://roytang.net/2021/07/weeknotes-2021-07-25/)
 - [Reviews: Die Another Day, Army of the Dead, Valerian, Superstore, Omelas](https://roytang.net/2021/07/dad-aotd-vatcoatp-omelas/)
 - [Weeknotes 2021-07-18](https://roytang.net/2021/07/weeknotes-2021-07-18/)
-- [Reviews: The World is Not Enough, Barry season 1, Loki](https://roytang.net/2021/07/wine-barry-loki/)
 
 [View all posts](https://roytang.net/blog)
 
