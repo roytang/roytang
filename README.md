@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 1, 2021, 12:46 p.m.](https://roytang.net/2021/08/1421693688900505603/): Managed to clear the #mtgarena Standard Open in just under an hour using @urlichmtg &#x27;s Monowhite Book list. Wasted a bunch of gems though, since I had a first run that was plagued by network issues on my end. Still, looking forward to day 2!
 - [July 31, 2021, 9:44 p.m.](https://roytang.net/2021/07/1421466841453502467/): Old Man McDonald #sketchdaily 212/365
 - [July 31, 2021, 1:20 a.m.](https://roytang.net/2021/07/1421158845007634433/): Couldn&#x27;t sleep, decided to grind some @EternalCardGame instead, finally hit Master rank after a long drought, just before the end of the month too. I think it&#x27;s been an even longer time since I&#x27;ve had both Master in Eternal and Mythic in Arena!
 - [July 30, 2021, 10:57 p.m.](https://roytang.net/2021/07/1421122746860244998/): Look to the sky #sketchdaily 211/365
 - [July 30, 2021, 10:48 p.m.](https://roytang.net/2021/07/1421120486411440129/): @ohhhace July is month 7. We&#x27;ve been in the second half for a month now.
-- [July 29, 2021, 11:42 p.m.](https://roytang.net/2021/07/1420771836619497474/): Bicycle Kick #sketchdaily 210/365
 
 [View all notes](https://roytang.net/notes)
 
