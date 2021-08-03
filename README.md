@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Quantum of Solace](https://roytang.net/2021/08/quantum-of-solace/)
 - [Performative Politics](https://roytang.net/2021/08/performative-politics/)
 - [Weeknotes 2021-08-01](https://roytang.net/2021/08/weeknotes-2021-08-01/)
 - [Reviews: Casino Royale, Gunpowder Milkshake, The Long Halloween, Masters of the Universe Revelation](https://roytang.net/2021/07/reviews-casino-gunpowder-halloween-masters/)
 - [Weeknotes 2021-07-25](https://roytang.net/2021/07/weeknotes-2021-07-25/)
-- [Reviews: Die Another Day, Army of the Dead, Valerian, Superstore, Omelas](https://roytang.net/2021/07/dad-aotd-vatcoatp-omelas/)
 
 [View all posts](https://roytang.net/blog)
 
