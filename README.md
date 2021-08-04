@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 4, 2021, 4:22 p.m.](https://roytang.net/2021/08/1422835317141164038/): This aged kinda well. Still waiting on the holiday. Quoted roytang&#x27;s tweet: Siguro pag may nanalo ng gold medal na Pilipino, magkakaron tayo ng holiday, sangkaterbang parada, at bagong national hero
 - [Aug. 3, 2021, 11:49 p.m.](https://roytang.net/2021/08/1422585370118561795/): Rebel flight suit #sketchdaily 215/365
 - [Aug. 2, 2021, 10:27 p.m.](https://roytang.net/2021/08/1422202441706082308/): Caricature practice #sketchdaily 214/365
 - [Aug. 2, 2021, 9:56 p.m.](https://roytang.net/2021/08/1422194625184354311/): Castle town #sketchdaily 213/365
 - [Aug. 2, 2021, 6:59 p.m.](https://roytang.net/2021/08/1422150033558937605/): Drafting Adventures in the Forgotten Realms! ep 7 - Quick Drafts! https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch [21:15] Did two quick drafts today, both BR, but neither one went the distance. Maybe try some other archetypes next time? YT: https://www.youtube.com/watch?v=_dctRWIvwJE
-- [Aug. 1, 2021, 12:46 p.m.](https://roytang.net/2021/08/1421693688900505603/): Managed to clear the #mtgarena Standard Open in just under an hour using @urlichmtg &#x27;s Monowhite Book list. Wasted a bunch of gems though, since I had a first run that was plagued by network issues on my end. Still, looking forward to day 2! [2021-08-02 02:06] Unfortunately, day 2 didn&#x27;t go quite as well. Finished day 2 at 5-2, just short of cash prizes! Such is life. Deck was a great choice though! BO3 decklist attached for reference.
 
 [View all notes](https://roytang.net/notes)
 
