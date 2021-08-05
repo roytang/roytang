@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The most unbelievable things about life before smartphones](https://roytang.net/2021/08/the-most-unbelievable-things-about-life-before-smartphones/)
 - [Duterte restores Philippines as ‘sick man of Asia’](https://roytang.net/2021/08/duterte-restores-philippines-as-sick-man-of-asia/)
 - [What is a diamond dependency conflict?](https://roytang.net/2021/08/what-is-a-diamond-dependency-conflict/)
 - [700,000 lines of code, 20 years, and one developer: How Dwarf Fortress is built](https://roytang.net/2021/08/700000-lines-of-code-20-years-and-one-developer-how-dwarf-fortress-is-built/)
 - [The Return-to-Office Existential Crisis](https://roytang.net/2021/07/the-return-to-office-existential-crisis/)
-- [The Day the Good Internet Died](https://roytang.net/2021/07/the-day-the-good-internet-died/)
 
 [View all links](https://roytang.net/links)
 
