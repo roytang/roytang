@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Aug. 5, 2021, 9:24 p.m.](https://roytang.net/2021/08/1423273687017394177/): Beach volleyball #sketchdaily 217/365
+- [Aug. 5, 2021, 9:24 p.m.](https://roytang.net/2021/08/1423273687017394177/): Beach volleyball #sketchdaily 217/365 Previously
 - [Aug. 4, 2021, 11:25 p.m.](https://roytang.net/2021/08/1422941887971790850/): Red panda #sketchdaily 216/365
 - [Aug. 4, 2021, 4:22 p.m.](https://roytang.net/2021/08/1422835317141164038/): This aged kinda well. Still waiting on the holiday. Quoted roytang&#x27;s tweet: Siguro pag may nanalo ng gold medal na Pilipino, magkakaron tayo ng holiday, sangkaterbang parada, at bagong national hero
 - [Aug. 3, 2021, 11:49 p.m.](https://roytang.net/2021/08/1422585370118561795/): Rebel flight suit #sketchdaily 215/365
