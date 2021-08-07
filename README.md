@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 7, 2021, 4:59 p.m.](https://roytang.net/2021/08/eadcdf2ad2ac11d0a9314a65ab108d4e/): Paint Everything Everywhere: https://www.puzzlescript.net/play.html?p=6a412035f6f1999cc773ddcb071de6e6 A nice short puzzle game
 - [Aug. 7, 2021, 8:32 a.m.](https://roytang.net/2021/08/1423804243601879042/): Nanaue #sketchdaily 218/365 #TheSuicideSquad
 - [Aug. 7, 2021, 7:59 a.m.](https://roytang.net/2021/08/1423796016222937090/): After last night&#x27;s terrible W/L record in the final #mtgafr draft stream, I decided to do an off-stream quick draft just so I hit platinum by Aug 10. Naturally this was the one where I managed to get 7 wins lol
 - [Aug. 6, 2021, 6:36 p.m.](https://roytang.net/2021/08/1423593848127770630/): Drafting Adventures in the Forgotten Realms! final (?) episode https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch [22:42] Tonight&#x27;s extra long final AFR stream featured FOUR DRAFTS. Look at these piles and try to guess whether I made it out of Gold rank? YT: https://www.youtube.com/watch?v=3B7kTTuQGgM
 - [Aug. 6, 2021, 6:27 p.m.](https://roytang.net/2021/08/12cbfc5fe2bf124a832da481095c364b/): THE SUICIDE SQUAD spoiler-free review: great, fun, violent, hilarious, possibly best of DCEU so far trailers have spoiled waaaay too much of this movie first act was ok, second act felt a bit meh, third act was great hard to comment on actor performances without spoiling things, but Daniela Melchior was great and Idris Elba took the role seriously there is a post-credits scene Full review on the blog later
-- [Aug. 5, 2021, 9:24 p.m.](https://roytang.net/2021/08/1423273687017394177/): Beach volleyball #sketchdaily 217/365 Previously
 
 [View all notes](https://roytang.net/notes)
 
