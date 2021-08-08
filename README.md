@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Eternal Change for No Energy: A Time Crystal Finally Made Real](https://roytang.net/2021/08/eternal-change-for-no-energy-a-time-crystal-finally-made-real/)
 - [In praise of PostgreSQL](https://roytang.net/2021/08/in-praise-of-postgresql/)
 - [Why medieval city-builder video games are historically inaccurate](https://roytang.net/2021/08/why-medieval-city-builder-video-games-are-historically-inaccurate/)
 - [Scammers sell griefers](https://roytang.net/2021/08/0ef548f1624894edda4350ba01704d4f/)
 - [Foundations](https://roytang.net/2021/08/foundations/)
-- [The most unbelievable things about life before smartphones](https://roytang.net/2021/08/the-most-unbelievable-things-about-life-before-smartphones/)
 
 [View all links](https://roytang.net/links)
 
