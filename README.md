@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [In praise of PostgreSQL](https://roytang.net/2021/08/in-praise-of-postgresql/)
+- [Why medieval city-builder video games are historically inaccurate](https://roytang.net/2021/08/why-medieval-city-builder-video-games-are-historically-inaccurate/)
 - [Scammers sell griefers](https://roytang.net/2021/08/0ef548f1624894edda4350ba01704d4f/)
 - [Foundations](https://roytang.net/2021/08/foundations/)
 - [The most unbelievable things about life before smartphones](https://roytang.net/2021/08/the-most-unbelievable-things-about-life-before-smartphones/)
-- [Duterte restores Philippines as ‘sick man of Asia’](https://roytang.net/2021/08/duterte-restores-philippines-as-sick-man-of-asia/)
-- [What is a diamond dependency conflict?](https://roytang.net/2021/08/what-is-a-diamond-dependency-conflict/)
 
 [View all links](https://roytang.net/links)
 
