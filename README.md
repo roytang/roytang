@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-08-08](https://roytang.net/2021/08/weeknotes-2021-08-08/)
 - [The Suicide Squad](https://roytang.net/2021/08/the-suicide-squad/)
 - [&quot;Async read access to your brain&quot;](https://roytang.net/2021/08/async-read-access/)
 - [Quantum of Solace](https://roytang.net/2021/08/quantum-of-solace/)
 - [Performative Politics](https://roytang.net/2021/08/performative-politics/)
-- [Weeknotes 2021-08-01](https://roytang.net/2021/08/weeknotes-2021-08-01/)
 
 [View all posts](https://roytang.net/blog)
 
