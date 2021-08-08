@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [💡 Kevin Kelly: The Case for Optimism](https://roytang.net/2021/08/kevin-kelly-the-case-for-optimism/)
 - [Eternal Change for No Energy: A Time Crystal Finally Made Real](https://roytang.net/2021/08/eternal-change-for-no-energy-a-time-crystal-finally-made-real/)
 - [In praise of PostgreSQL](https://roytang.net/2021/08/in-praise-of-postgresql/)
 - [Why medieval city-builder video games are historically inaccurate](https://roytang.net/2021/08/why-medieval-city-builder-video-games-are-historically-inaccurate/)
 - [Scammers sell griefers](https://roytang.net/2021/08/0ef548f1624894edda4350ba01704d4f/)
-- [Foundations](https://roytang.net/2021/08/foundations/)
 
 [View all links](https://roytang.net/links)
 
