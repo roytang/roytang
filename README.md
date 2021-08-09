@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 9, 2021, 12:47 p.m.](https://roytang.net/2021/08/1424593218046287873/): @rowheyourboat Hi. I&#x27;m a tall and heavy person. Will a folding bike work for me?
 - [Aug. 9, 2021, 12:51 a.m.](https://roytang.net/2021/08/1424412880116453377/): Bespin Cloud City #sketchdaily 219/365
 - [Aug. 7, 2021, 4:59 p.m.](https://roytang.net/2021/08/eadcdf2ad2ac11d0a9314a65ab108d4e/): Paint Everything Everywhere: https://www.puzzlescript.net/play.html?p=6a412035f6f1999cc773ddcb071de6e6 A nice short puzzle game
 - [Aug. 7, 2021, 8:32 a.m.](https://roytang.net/2021/08/1423804243601879042/): Nanaue #sketchdaily 218/365 #TheSuicideSquad
 - [Aug. 7, 2021, 7:59 a.m.](https://roytang.net/2021/08/1423796016222937090/): After last night&#x27;s terrible W/L record in the final #mtgafr draft stream, I decided to do an off-stream quick draft just so I hit platinum by Aug 10. Naturally this was the one where I managed to get 7 wins lol
-- [Aug. 6, 2021, 6:36 p.m.](https://roytang.net/2021/08/1423593848127770630/): Drafting Adventures in the Forgotten Realms! final (?) episode https://www.twitch.tv/twitchyroy #mtgafr #magicarena #twitch [22:42] Tonight&#x27;s extra long final AFR stream featured FOUR DRAFTS. Look at these piles and try to guess whether I made it out of Gold rank? YT: https://www.youtube.com/watch?v=3B7kTTuQGgM
 
 [View all notes](https://roytang.net/notes)
 
