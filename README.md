@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 10, 2021, 6:01 p.m.](https://roytang.net/2021/08/1425034630760079363/): @monday_demos @rowheyourboat thanks pala for the responses
 - [Aug. 10, 2021, 4:01 p.m.](https://roytang.net/2021/08/1425004461445971976/): And even if it does all end, even if civilisation crumbles, even if we are the last ever generation of humans to walk this earth, let&#x27;s not waste our precious last few decades on doom and defeatism. Let&#x27;s hold onto out hope, our humanity and our very real power to make change.
 - [Aug. 9, 2021, 8:34 p.m.](https://roytang.net/2021/08/1424710746819203074/): Civil War #sketchdaily 221/365
 - [Aug. 9, 2021, 8:09 p.m.](https://roytang.net/2021/08/1424704446626414595/): Old man #sketchdaily 220/365
 - [Aug. 9, 2021, 1:17 p.m.](https://roytang.net/2021/08/1424600789809463299/): I thought I was done with #mtgafr, limited but in the wee hours of the morning earlier I threw some gems away on the draft challenge. RW pile went 0-2 (boo!), UR went 4-2 (better, but still not happy with it). I should stop letting the format keep drawing me back in lol
-- [Aug. 9, 2021, 12:47 p.m.](https://roytang.net/2021/08/1424593218046287873/): @rowheyourboat Hi. I&#x27;m a tall and heavy person. Will a folding bike work for me?
 
 [View all notes](https://roytang.net/notes)
 
