@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 12, 2021, 12:21 p.m.](https://roytang.net/2021/08/1425673745612435457/): I don&#x27;t pay a lot of attention to fonts, so I might not have noticed the Twitter font change if so many people weren&#x27;t talking about it
 - [Aug. 12, 2021, 2 a.m.](https://roytang.net/2021/08/1425517490952540166/): Soldier fly #sketchdaily 223/365 (Click photos to view full-size)
 - [Aug. 10, 2021, 8:26 p.m.](https://roytang.net/2021/08/1425071072802525195/): Old school gaming #sketchdaily 222/365 (Click photos to view full-size)
 - [Aug. 10, 2021, 6:01 p.m.](https://roytang.net/2021/08/1425034630760079363/): @monday_demos @rowheyourboat thanks pala for the responses
 - [Aug. 10, 2021, 4:01 p.m.](https://roytang.net/2021/08/1425004461445971976/): And even if it does all end, even if civilisation crumbles, even if we are the last ever generation of humans to walk this earth, let&#x27;s not waste our precious last few decades on doom and defeatism. Let&#x27;s hold onto out hope, our humanity and our very real power to make change.
-- [Aug. 9, 2021, 8:34 p.m.](https://roytang.net/2021/08/1424710746819203074/): Civil War #sketchdaily 221/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
