@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 14, 2021, 9:03 p.m.](https://roytang.net/2021/08/1426529886261239808/): I just solved @AmuseLabs&#x27;s crossword in 26 minutes, 9 seconds. Can you beat my time? https://www.newsday.com/?id=Creators_WEB_20210814&amp;set=creatorsweb&amp;puzzleType=crossword
 - [Aug. 12, 2021, 11:23 p.m.](https://roytang.net/2021/08/1425840354574553089/): Brewmaster #sketchdaily 224/365 (Click photos to view full-size)
 - [Aug. 12, 2021, 12:21 p.m.](https://roytang.net/2021/08/1425673745612435457/): I don&#x27;t pay a lot of attention to fonts, so I might not have noticed the Twitter font change if so many people weren&#x27;t talking about it
 - [Aug. 12, 2021, 2 a.m.](https://roytang.net/2021/08/1425517490952540166/): Soldier fly #sketchdaily 223/365 (Click photos to view full-size)
 - [Aug. 10, 2021, 8:26 p.m.](https://roytang.net/2021/08/1425071072802525195/): Old school gaming #sketchdaily 222/365 (Click photos to view full-size)
-- [Aug. 10, 2021, 6:01 p.m.](https://roytang.net/2021/08/1425034630760079363/): @monday_demos @rowheyourboat thanks pala for the responses
 
 [View all notes](https://roytang.net/notes)
 
