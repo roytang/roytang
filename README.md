@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 17, 2021, 12:53 a.m.](https://roytang.net/2021/08/1427312576048758784/): Time flies. Do you remember when you joined Twitter? I do! #MyTwitterAnniversary (Click photos to view full-size)
 - [Aug. 16, 2021, 11:26 p.m.](https://roytang.net/2021/08/1427290672290095112/): Owls #sketchdaily 227/365 (Click photos to view full-size)
 - [Aug. 16, 2021, 12:05 a.m.](https://roytang.net/2021/08/1426938162517970945/): Jump off #sketchdaily 226/365 (Click photos to view full-size)
 - [Aug. 15, 2021, 11:08 p.m.](https://roytang.net/2021/08/1426923772397834242/): “Not sure you brought enough guys.” #sketchdaily 225/365 (Click photos to view full-size)
 - [Aug. 15, 2021, 1:18 a.m.](https://roytang.net/2021/08/1426594025113485312/): Divergent association task thingy: https://www.datcreativity.com/task (Click photos to view full-size)
-- [Aug. 14, 2021, 9:03 p.m.](https://roytang.net/2021/08/1426529886261239808/): I just solved @AmuseLabs&#x27;s crossword in 26 minutes, 9 seconds. Can you beat my time? https://www.newsday.com/?id=Creators_WEB_20210814&amp;set=creatorsweb&amp;puzzleType=crossword
 
 [View all notes](https://roytang.net/notes)
 
