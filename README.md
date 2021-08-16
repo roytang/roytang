@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 16, 2021, 11:26 p.m.](https://roytang.net/2021/08/1427290672290095112/): Owls #sketchdaily 227/365 (Click photos to view full-size)
 - [Aug. 16, 2021, 12:05 a.m.](https://roytang.net/2021/08/1426938162517970945/): Jump off #sketchdaily 226/365 (Click photos to view full-size)
 - [Aug. 15, 2021, 11:08 p.m.](https://roytang.net/2021/08/1426923772397834242/): “Not sure you brought enough guys.” #sketchdaily 225/365 (Click photos to view full-size)
 - [Aug. 15, 2021, 1:18 a.m.](https://roytang.net/2021/08/1426594025113485312/): Divergent association task thingy: https://www.datcreativity.com/task (Click photos to view full-size)
 - [Aug. 14, 2021, 9:03 p.m.](https://roytang.net/2021/08/1426529886261239808/): I just solved @AmuseLabs&#x27;s crossword in 26 minutes, 9 seconds. Can you beat my time? https://www.newsday.com/?id=Creators_WEB_20210814&amp;set=creatorsweb&amp;puzzleType=crossword
-- [Aug. 12, 2021, 11:23 p.m.](https://roytang.net/2021/08/1425840354574553089/): Brewmaster #sketchdaily 224/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/83/37/83375347f0306f2a4df78b3a12d5058d.jpg)
 - ![](https://roytang.net/media/cache/7d/20/7d20f8307c379d3244dce5618abe2bb9.jpg)
 - ![](https://roytang.net/media/cache/cb/7d/cb7dc38e36b35a4fc01333de020d0225.jpg)
+- ![](https://roytang.net/media/cache/fe/0f/fe0f6b0d1a87cb11913fb7b0791f9188.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
