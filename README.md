@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 17, 2021, 3:44 p.m.](https://roytang.net/2021/08/1427536918812585987/): Roman soldier #sketchdaily 228/365 (Click photos to view full-size)
 - [Aug. 17, 2021, 3:08 p.m.](https://roytang.net/2021/08/1427527694883770368/): DOTC -&gt; DOH, PNoy -&gt; Duterte, Abaya -&gt; Duque Quoted roytang&#x27;s tweet: What dark hold does the DOTC chief have over PNoy? Abaya is easily the worst-performing cabinet member http://philstar.com/headlines/2016… #FireAbaya
 - [Aug. 17, 2021, 12:53 a.m.](https://roytang.net/2021/08/1427312576048758784/): Time flies. Do you remember when you joined Twitter? I do! #MyTwitterAnniversary (Click photos to view full-size)
 - [Aug. 16, 2021, 11:26 p.m.](https://roytang.net/2021/08/1427290672290095112/): Owls #sketchdaily 227/365 (Click photos to view full-size)
 - [Aug. 16, 2021, 12:05 a.m.](https://roytang.net/2021/08/1426938162517970945/): Jump off #sketchdaily 226/365 (Click photos to view full-size)
-- [Aug. 15, 2021, 11:08 p.m.](https://roytang.net/2021/08/1426923772397834242/): “Not sure you brought enough guys.” #sketchdaily 225/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/7d/20/7d20f8307c379d3244dce5618abe2bb9.jpg)
 - ![](https://roytang.net/media/cache/cb/7d/cb7dc38e36b35a4fc01333de020d0225.jpg)
 - ![](https://roytang.net/media/cache/fe/0f/fe0f6b0d1a87cb11913fb7b0791f9188.jpg)
+- ![](https://roytang.net/media/cache/6e/ab/6eabc0a7cf7f6251e8d027b4ae4c69fd.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
