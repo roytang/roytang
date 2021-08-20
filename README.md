@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 20, 2021, 6:22 p.m.](https://roytang.net/2021/08/1428663635035910147/): Very on-brand Quoted james_chip_rpg&#x27;s tweet: Do you want two stats? https://twostats.neocities.org/ (Click photos to view full-size)
 - [Aug. 19, 2021, 9:27 p.m.](https://roytang.net/2021/08/1428347956315320320/): “This doesnt seem like the best business model” #sketchdaily 231/365 (Click photos to view full-size)
 - [Aug. 18, 2021, 10:43 p.m.](https://roytang.net/2021/08/1428004523549728770/): “You are quite articulate for a duck.” “That sir, is very close-minded.” #sketchdaily 230/365 (Click photos to view full-size)
 - [Aug. 18, 2021, 10:20 p.m.](https://roytang.net/2021/08/1427998834391543817/): Thinking #sketchdaily 229/365 (Click photos to view full-size)
 - [Aug. 17, 2021, 3:44 p.m.](https://roytang.net/2021/08/1427536918812585987/): Roman soldier #sketchdaily 228/365 (Click photos to view full-size)
-- [Aug. 17, 2021, 3:08 p.m.](https://roytang.net/2021/08/1427527694883770368/): DOTC -&gt; DOH, PNoy -&gt; Duterte, Abaya -&gt; Duque Quoted roytang&#x27;s tweet: What dark hold does the DOTC chief have over PNoy? Abaya is easily the worst-performing cabinet member http://philstar.com/headlines/2016… #FireAbaya
 
 [View all notes](https://roytang.net/notes)
 
