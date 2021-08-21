@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Review: A Stack of Comics](https://roytang.net/2021/08/stack-of-comics/)
 - [Weeknotes 2021-08-15](https://roytang.net/2021/08/weeknotes-2021-08-15/)
 - [Reviews: Skyfall, Jumanji: Welcome to the Jungle, Police Story](https://roytang.net/2021/08/skyfall-jumanji-police-story/)
 - [Forty Three](https://roytang.net/2021/08/forty-three/)
 - [Weeknotes 2021-08-08](https://roytang.net/2021/08/weeknotes-2021-08-08/)
-- [The Suicide Squad](https://roytang.net/2021/08/the-suicide-squad/)
 
 [View all posts](https://roytang.net/blog)
 
