@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Maya&#x27;s subscriptions](https://roytang.net/2021/08/mayas-subscriptions/)
 - [Welcome to Nestflix](https://roytang.net/2021/08/welcome-to-nestflix/)
 - [💡 Kevin Kelly: The Case for Optimism](https://roytang.net/2021/08/kevin-kelly-the-case-for-optimism/)
 - [Eternal Change for No Energy: A Time Crystal Finally Made Real](https://roytang.net/2021/08/eternal-change-for-no-energy-a-time-crystal-finally-made-real/)
 - [In praise of PostgreSQL](https://roytang.net/2021/08/in-praise-of-postgresql/)
-- [Why medieval city-builder video games are historically inaccurate](https://roytang.net/2021/08/why-medieval-city-builder-video-games-are-historically-inaccurate/)
 
 [View all links](https://roytang.net/links)
 
