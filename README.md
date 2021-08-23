@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 23, 2021, 12:02 p.m.](https://roytang.net/2021/08/h9zscdv/): New here, why does the group hate VUL?
 - [Aug. 23, 2021, 4:27 a.m.](https://roytang.net/2021/08/1429540693697986561/): En Dwi Gast (The Grandmaster) #sketchdaily 234/365 (Click photos to view full-size)
 - [Aug. 22, 2021, 6:44 p.m.](https://roytang.net/2021/08/1429394157970223104/): Manny has always been a great example to the youth. People may see you as an underdog but you know your worth and proved that you have a heart of gold. I will forever be a fan kahit tapos na ang Modern Family. #mannydelgado
 - [Aug. 22, 2021, 1:27 a.m.](https://roytang.net/2021/08/1429133078245429248/): Spider-woman #sketchdaily 233/365 (Click photos to view full-size)
 - [Aug. 21, 2021, 10:43 p.m.](https://roytang.net/2021/08/1429091826787504138/): The most dangerous beaver #sketchdaily 232/365 (Click photos to view full-size)
-- [Aug. 20, 2021, 6:22 p.m.](https://roytang.net/2021/08/1428663635035910147/): Very on-brand Quoted james_chip_rpg&#x27;s tweet: Do you want two stats? https://twostats.neocities.org/ (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
