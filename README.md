@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 25, 2021, 2:30 a.m.](https://roytang.net/2021/08/1430236159586619395/): Shark attack! #sketchdaily 236/365 (Click photos to view full-size)
 - [Aug. 24, 2021, 11:14 a.m.](https://roytang.net/2021/08/1430005609596817413/): SPIDER-MAN: NO WAY HOME - Official Teaser Trailer (HD) https://youtu.be/rt-2cxAiPJk via @YouTube Wow, they really went there.
 - [Aug. 24, 2021, 12:02 a.m.](https://roytang.net/2021/08/1429836370567077891/): Starface #sketchdaily 235/365 (Click photos to view full-size)
 - [Aug. 23, 2021, 12:02 p.m.](https://roytang.net/2021/08/h9zscdv/): New here, why does the group hate VUL?
 - [Aug. 23, 2021, 4:27 a.m.](https://roytang.net/2021/08/1429540693697986561/): En Dwi Gast (The Grandmaster) #sketchdaily 234/365 (Click photos to view full-size)
-- [Aug. 22, 2021, 6:44 p.m.](https://roytang.net/2021/08/1429394157970223104/): Manny has always been a great example to the youth. People may see you as an underdog but you know your worth and proved that you have a heart of gold. I will forever be a fan kahit tapos na ang Modern Family. #mannydelgado
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/95/d4/95d433b8cae261098d5cee6187668353.jpg)
 - ![](https://roytang.net/media/cache/87/0c/870cd35c58b7ba60e2d71e2dfa31df72.jpg)
 - ![](https://roytang.net/media/cache/84/7f/847f23b30b2c619de3a7f3dd550aa5ed.jpg)
+- ![](https://roytang.net/media/cache/89/81/898143a391e54f6a311db37e3910ede4.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
