@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 27, 2021, 12:55 a.m.](https://roytang.net/2021/08/1430936936240214026/): Jumpstart Historic Horizons is out on #magicarena! #jhh The theme packs show you what rare they contain, which is neat. Thread of picks and results: Run no. 1: Teyo Merfolk 2-2 (Click photos to view full-size)
 - [Aug. 26, 2021, 10:50 p.m.](https://roytang.net/2021/08/1430905427185704960/): Bojack #sketchdaily 238/365 (Click photos to view full-size)
 - [Aug. 26, 2021, 4:35 p.m.](https://roytang.net/2021/08/1430811049243021318/): @ohhhace Nothing&#x27;s stopping you from making creative fan sites now. Make the internet you want to have
 - [Aug. 26, 2021, 3:24 a.m.](https://roytang.net/2021/08/1430612081183580161/): Fidel 237/365 #sketchdaily (Click photos to view full-size)
 - [Aug. 25, 2021, 5:24 p.m.](https://roytang.net/2021/08/1430461157303750656/): I hope Doctor Strange accidentally brings back Vindicated by Dashboard Confessional from the Spider-Man 2 soundtrack
-- [Aug. 25, 2021, 11:02 a.m.](https://roytang.net/2021/08/1430364888648413185/): #mtg announcement day reactions: LOTR set is modern and historic-legal: Excited for Arena, but that&#x27;s gonna get a lot of whining Street Fighter secret lair drop: Oh no, I don&#x27;t want to buy secret lairs! (Click photos to view full-size) [11:02] - Kamigawa Neon Dynasty: nice, looking forward to see how this evolves Streets of New Capena: meh Dominaria United: meh Brothers War: oh wow Pioneer event decks look good. Everything else: Don&#x27;t really care (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
