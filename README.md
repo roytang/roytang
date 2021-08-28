@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 28, 2021, 1:11 p.m.](https://roytang.net/2021/08/pandemic-photo-dump/): Cleaning up pictures off my phone, decided to post some random photos from around the neighborhood. Most of these are from when I go on my daily walks, which I wasn&#x27;t doing for the first 6 months or so of the pandemic.
 - [Aug. 27, 2021, 6:51 p.m.](https://roytang.net/2021/08/1431207751229878277/): Streaming some Jumpstart Historic Horizons! https://www.twitch.tv/twitchyroy #magicarena #mtg #twitch #jhh
 - [Aug. 27, 2021, 12:55 a.m.](https://roytang.net/2021/08/1430936936240214026/): Jumpstart Historic Horizons is out on #magicarena! #jhh The theme packs show you what rare they contain, which is neat. Thread of picks and results: Run no. 1: Teyo Merfolk 2-2 (Click photos to view full-size) [01:32] Oh, the previewed card isn&#x27;t always a rare! How does that work? Run no. 2: Ninja Above the Clouds 2-2 (Click photos to view full-size) [20:32] Run no. 3: Bears Pumped Up 2-0 Run no. 4 Freyalise Squirrels 2-0 Run no. 5: Sarkhan Davriel 2-2 Run no. 6: Relentless Plague 2-1 (Click photos to view full-size)
 - [Aug. 26, 2021, 10:50 p.m.](https://roytang.net/2021/08/1430905427185704960/): Bojack #sketchdaily 238/365 (Click photos to view full-size)
 - [Aug. 26, 2021, 4:35 p.m.](https://roytang.net/2021/08/1430811049243021318/): @ohhhace Nothing&#x27;s stopping you from making creative fan sites now. Make the internet you want to have
-- [Aug. 26, 2021, 3:24 a.m.](https://roytang.net/2021/08/1430612081183580161/): Fidel 237/365 #sketchdaily (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
