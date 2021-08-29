@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-08-29](https://roytang.net/2021/08/weeknotes-2021-08-29/)
 - [Horizon Zero Dawn](https://roytang.net/2021/08/horizon-zero-dawn/)
 - [Smaller Tasks](https://roytang.net/2021/08/smaller-tasks/)
 - [Reviews: Rurouni Kenshin The Beginning, Jumanji the Next Level, Superman and Lois](https://roytang.net/2021/08/rktb-jtnl-sl/)
 - [Weeknotes 2021-08-22](https://roytang.net/2021/08/weeknotes-2021-08-22/)
-- [Review: A Stack of Comics](https://roytang.net/2021/08/stack-of-comics/)
 
 [View all posts](https://roytang.net/blog)
 
