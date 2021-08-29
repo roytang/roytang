@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Funcooker.fun](https://roytang.net/2021/08/52eef896e37ef921a0b250864974e14c/)
 - [Funcooker](https://roytang.net/2021/08/funcooker/)
 - [https://how-i-experience-web-today.com](https://roytang.net/2021/08/httpshow-i-experience-web-todaycom/)
 - [Maya&#x27;s subscriptions](https://roytang.net/2021/08/mayas-subscriptions/)
 - [Welcome to Nestflix](https://roytang.net/2021/08/welcome-to-nestflix/)
-- [💡 Kevin Kelly: The Case for Optimism](https://roytang.net/2021/08/kevin-kelly-the-case-for-optimism/)
 
 [View all links](https://roytang.net/links)
 
