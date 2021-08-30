@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 31, 2021, 12:48 a.m.](https://roytang.net/2021/08/1432384712438267905/): Taco #sketchdaily 242/365 (Click photos to view full-size)
 - [Aug. 30, 2021, 11:09 p.m.](https://roytang.net/2021/08/1432359908993687552/): Tennis dive #sketchdaily 241/365 (Click photos to view full-size)
 - [Aug. 29, 2021, 8:56 p.m.](https://roytang.net/2021/08/1431963906583371776/): Stranded on a deserted island 240/365 #sketchdaily (Click photos to view full-size)
 - [Aug. 29, 2021, 5:29 p.m.](https://roytang.net/2021/08/1431911760143925254/): The prevalent topic during catch up calls these days: vaccination status updates
 - [Aug. 28, 2021, 11:05 p.m.](https://roytang.net/2021/08/1431634121776721923/): Commander Owl #sketchdaily 239/365 #root (Click photos to view full-size)
-- [Aug. 28, 2021, 1:11 p.m.](https://roytang.net/2021/08/pandemic-photo-dump/): Cleaning up pictures off my phone, decided to post some random photos from around the neighborhood. Most of these are from when I go on my daily walks, which I wasn&#x27;t doing for the first 6 months or so of the pandemic.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/6f/aa/6faa1ae25d95eea29dc9d2f56a681b4c.jpg)
 - ![](https://roytang.net/media/cache/67/dc/67dc1c2fbabcfd24a65bebce00f18dd2.jpg)
 - ![](https://roytang.net/media/cache/46/ed/46ed4a293c426d52484e0f3ec7a766ae.jpg)
+- ![](https://roytang.net/media/cache/e9/38/e93831ed5d7ee1f94932d37bb6b2e7b4.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
