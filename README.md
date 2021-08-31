@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 31, 2021, 5:31 p.m.](https://roytang.net/2021/08/1432637132179267584/): In my headcanon, they are Smithers and Mr. Burns. Take that as you will. Quoted chicprotagonist&#x27;s tweet: An unparalleled profession of undying love and devotion! Walang sinabi sina Romeo at Juliet. (Click photos to view full-size) [17:31] Your browser does not support the video tag.
 - [Aug. 31, 2021, 12:48 a.m.](https://roytang.net/2021/08/1432384712438267905/): Taco #sketchdaily 242/365 (Click photos to view full-size)
 - [Aug. 30, 2021, 11:09 p.m.](https://roytang.net/2021/08/1432359908993687552/): Tennis dive #sketchdaily 241/365 (Click photos to view full-size)
 - [Aug. 29, 2021, 8:56 p.m.](https://roytang.net/2021/08/1431963906583371776/): Stranded on a deserted island 240/365 #sketchdaily (Click photos to view full-size)
 - [Aug. 29, 2021, 5:29 p.m.](https://roytang.net/2021/08/1431911760143925254/): The prevalent topic during catch up calls these days: vaccination status updates
-- [Aug. 28, 2021, 11:05 p.m.](https://roytang.net/2021/08/1431634121776721923/): Commander Owl #sketchdaily 239/365 #root (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
