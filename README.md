@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 2, 2021, 8:30 p.m.](https://roytang.net/2021/09/1433407001590071296/): Finished the first half of The Great Ace Attorney Chronicles today. Final case was great, lots of twists, and the game had a fun credit sequence! Looking forward to the second half! (Click photos to view full-size)
 - [Sept. 2, 2021, 10:49 a.m.](https://roytang.net/2021/09/1433260717772214272/): Didn&#x27;t manage to hit Mythic in Arena last month, but I did manage to hit the @EternalCardGame leaderboards for the first time (I&#x27;m no. 21 on the throne list!) (Click photos to view full-size)
 - [Sept. 1, 2021, 8:29 p.m.](https://roytang.net/2021/09/1433044241735770115/): Sept 1 #sketchdaily 244/365 (Click photos to view full-size)
 - [Sept. 1, 2021, 3:38 a.m.](https://roytang.net/2021/09/1432790021124157444/): On the train #sketchdaily 243/365 (Click photos to view full-size)
 - [Aug. 31, 2021, 5:31 p.m.](https://roytang.net/2021/08/1432637132179267584/): In my headcanon, they are Smithers and Mr. Burns. Take that as you will. Quoted chicprotagonist&#x27;s tweet: An unparalleled profession of undying love and devotion! Walang sinabi sina Romeo at Juliet. (Click photos to view full-size) [17:31] Your browser does not support the video tag.
-- [Aug. 31, 2021, 12:48 a.m.](https://roytang.net/2021/08/1432384712438267905/): Taco #sketchdaily 242/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
