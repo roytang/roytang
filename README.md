@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 3, 2021, 11:48 p.m.](https://roytang.net/2021/09/1433819215207624706/): I had always assumed I started @duolingo in late 2014/early 2015, as prep for my trip to Spain. 8 year anniversary means 2013. I guess I had foresight? (Click photos to view full-size)
 - [Sept. 3, 2021, 11:35 p.m.](https://roytang.net/2021/09/1433816033547096067/): Hey @AmuseLabs what&#x27;s up with this clue and answer in today&#x27;s Newsday crossword? 44 quadrupled is 44 x4 = 176 = CLXXVI (Click photos to view full-size)
 - [Sept. 2, 2021, 11:38 p.m.](https://roytang.net/2021/09/1433454218665365511/): The Wheel Of Time – Official Teaser Trailer | Prime Video https://www.youtube.com/watch?v=3Fus4Xb_TLg&amp;feature=youtu.be via @YouTube NGL, this looks better than I thought it would be
 - [Sept. 2, 2021, 10:21 p.m.](https://roytang.net/2021/09/1433434899600449541/): Banana Peel #sketchdaily 245/365 (Click photos to view full-size)
 - [Sept. 2, 2021, 8:30 p.m.](https://roytang.net/2021/09/1433407001590071296/): Finished the first half of The Great Ace Attorney Chronicles today. Final case was great, lots of twists, and the game had a fun credit sequence! Looking forward to the second half! (Click photos to view full-size)
-- [Sept. 2, 2021, 10:49 a.m.](https://roytang.net/2021/09/1433260717772214272/): Didn&#x27;t manage to hit Mythic in Arena last month, but I did manage to hit the @EternalCardGame leaderboards for the first time (I&#x27;m no. 21 on the throne list!) (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
