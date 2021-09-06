@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 6, 2021, 10:47 p.m.](https://roytang.net/2021/09/1434891084514009095/): Red Lantern Kara Zor-el #sketchdaily 247/365 (Click photos to view full-size)
 - [Sept. 6, 2021, 12:18 a.m.](https://roytang.net/2021/09/1434551539188731908/): Strange. #sketchdaily 246/365 (Click photos to view full-size)
 - [Sept. 3, 2021, 11:48 p.m.](https://roytang.net/2021/09/1433819215207624706/): I had always assumed I started @duolingo in late 2014/early 2015, as prep for my trip to Spain. 8 year anniversary means 2013. I guess I had foresight? (Click photos to view full-size)
 - [Sept. 3, 2021, 11:35 p.m.](https://roytang.net/2021/09/1433816033547096067/): Hey @AmuseLabs what&#x27;s up with this clue and answer in today&#x27;s Newsday crossword? 44 quadrupled is 44 x4 = 176 = CLXXVI (Click photos to view full-size)
 - [Sept. 2, 2021, 11:38 p.m.](https://roytang.net/2021/09/1433454218665365511/): The Wheel Of Time – Official Teaser Trailer | Prime Video https://www.youtube.com/watch?v=3Fus4Xb_TLg&amp;feature=youtu.be via @YouTube NGL, this looks better than I thought it would be
-- [Sept. 2, 2021, 10:21 p.m.](https://roytang.net/2021/09/1433434899600449541/): Banana Peel #sketchdaily 245/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/0e/b0/0eb0772f8950bf56572dfab7fd7235c5.jpg)
 - ![](https://roytang.net/media/cache/3d/8d/3d8d37b5f34c77daa29063ceaa65d5a5.jpg)
 - ![](https://roytang.net/media/cache/87/e0/87e036fd006ed6e80b05a6b85faadaab.jpg)
+- ![](https://roytang.net/media/cache/ed/64/ed64538fdc149530e5838ab02ddf0e26.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
