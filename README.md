@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 8, 2021, 12:11 a.m.](https://roytang.net/2021/09/1435274453844250625/): Jiminy #sketchdaily 249/365 (Click photos to view full-size)
 - [Sept. 7, 2021, 4:57 p.m.](https://roytang.net/2021/09/1435165284520771584/): I have a face shield joke, but it doesn&#x27;t work.
 - [Sept. 7, 2021, 4:43 p.m.](https://roytang.net/2021/09/1435161723913203715/): #House S07E06 &quot;Rules are just helpful guidelines for stupid people who can&#x27;t make up their own mind.&quot; (Click photos to view full-size)
 - [Sept. 7, 2021, 1:06 a.m.](https://roytang.net/2021/09/1434926011611705348/): Hey geeks! A lot of people are stuck at home for a while. So, I&#x27;m releasing 5 of my books as free pdfs until COVID19 is defeated. https://www.smbc-comics.com/covid/ One is kid-appropriate, and has art by @Bouletcorp I encourage other artists to do the same, if possible! (Click photos to view full-size)
 - [Sept. 6, 2021, 11:02 p.m.](https://roytang.net/2021/09/1434894742488117252/): Bean #sketchdaily 248/365 (Click photos to view full-size)
-- [Sept. 6, 2021, 10:47 p.m.](https://roytang.net/2021/09/1434891084514009095/): Red Lantern Kara Zor-el #sketchdaily 247/365 (Click photos to view full-size) [22:50] I like how this turned out, so here’s the timelapse Your browser does not support the video tag.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/87/e0/87e036fd006ed6e80b05a6b85faadaab.jpg)
 - ![](https://roytang.net/media/cache/ed/64/ed64538fdc149530e5838ab02ddf0e26.jpg)
 - ![](https://roytang.net/media/cache/62/ad/62ad4c40a13ce175c2593d34e8c1ebcb.jpg)
+- ![](https://roytang.net/media/cache/d0/f3/d0f39fe560deeb4094c08cafa9ccde1c.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
