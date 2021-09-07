@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 7, 2021, 4:43 p.m.](https://roytang.net/2021/09/1435161723913203715/): #House S07E06 &quot;Rules are just helpful guidelines for stupid people who can&#x27;t make up their own mind.&quot; (Click photos to view full-size)
 - [Sept. 7, 2021, 1:06 a.m.](https://roytang.net/2021/09/1434926011611705348/): Hey geeks! A lot of people are stuck at home for a while. So, I&#x27;m releasing 5 of my books as free pdfs until COVID19 is defeated. https://www.smbc-comics.com/covid/ One is kid-appropriate, and has art by @Bouletcorp I encourage other artists to do the same, if possible! (Click photos to view full-size)
 - [Sept. 6, 2021, 11:02 p.m.](https://roytang.net/2021/09/1434894742488117252/): Bean #sketchdaily 248/365 (Click photos to view full-size)
 - [Sept. 6, 2021, 10:47 p.m.](https://roytang.net/2021/09/1434891084514009095/): Red Lantern Kara Zor-el #sketchdaily 247/365 (Click photos to view full-size) [22:50] I like how this turned out, so here’s the timelapse Your browser does not support the video tag.
 - [Sept. 6, 2021, 12:18 a.m.](https://roytang.net/2021/09/1434551539188731908/): Strange. #sketchdaily 246/365 (Click photos to view full-size)
-- [Sept. 3, 2021, 11:48 p.m.](https://roytang.net/2021/09/1433819215207624706/): I had always assumed I started @duolingo in late 2014/early 2015, as prep for my trip to Spain. 8 year anniversary means 2013. I guess I had foresight? (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
