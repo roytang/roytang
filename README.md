@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Escaping The Cage of Algorithmic Recommendations](https://roytang.net/2021/09/cage-recommendations/)
 - [Weeknotes 2021-09-05](https://roytang.net/2021/09/weeknotes-2021-09-05/)
 - [Spectre](https://roytang.net/2021/09/spectre/)
 - [Weeknotes 2021-08-29](https://roytang.net/2021/08/weeknotes-2021-08-29/)
 - [Horizon Zero Dawn](https://roytang.net/2021/08/horizon-zero-dawn/)
-- [Smaller Tasks](https://roytang.net/2021/08/smaller-tasks/)
 
 [View all posts](https://roytang.net/blog)
 
