@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Bruce Lawson&#x27;s personal site](https://roytang.net/2021/09/bruce-lawsons-personal-site/)
 - [The Single-Page-App Morality Play](https://roytang.net/2021/09/the-single-page-app-morality-play/)
 - [The Other Sara Morrisons are ruining my inbox](https://roytang.net/2021/09/the-other-sara-morrisons-are-ruining-my-inbox/)
 - [When there’s shelf space in wrong, someone’s gonna fill it](https://roytang.net/2021/09/when-theres-shelf-space-in-wrong-someones-gonna-fill-it/)
 - [People are realizing that degrowth is bad](https://roytang.net/2021/09/people-are-realizing-that-degrowth-is-bad/)
-- [Maybe You Missed It, but the Internet ‘Died’ Five Years Ago](https://roytang.net/2021/09/073ab5b52efd5697d1e93fae30e1f4c1/)
 
 [View all links](https://roytang.net/links)
 
