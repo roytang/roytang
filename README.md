@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
-- [Sept. 10, 2021, 1:09 p.m.](https://roytang.net/2021/09/1436195008332197899/): I had forgotten that #House got an employee of Filipino lineage in season 8 so we get random PH references like this one in ep 4 (Click photos to view full-size)
+- [Sept. 10, 2021, 1:35 p.m.](https://roytang.net/2021/09/1436201734456545281/): The Matrix Resurrections – Official Trailer 1 https://www.youtube.com/watch?v=9ix7TUGVYIo&amp;feature=youtu.be via @YouTube WHAT YEAR IS IT?!?
+- [Sept. 10, 2021, 1:09 p.m.](https://roytang.net/2021/09/1436195008332197899/): I had forgotten that #House got an employee of Filipino lineage in season 8 so we get random PH references like this one in ep 4 (Click photos to view full-size) [13:36] It&#x27;s actually too bad we only got one season of Dr Chi Park lol
 - [Sept. 9, 2021, 10:39 p.m.](https://roytang.net/2021/09/1435976263475236872/): Kuribo’s shoe 252/365 #sketchdaily (Click photos to view full-size)
 - [Sept. 9, 2021, 9:03 p.m.](https://roytang.net/2021/09/1435951981600772099/): Spidey Claus #sketchdaily 251/365 (Click photos to view full-size)
 - [Sept. 8, 2021, 1:07 a.m.](https://roytang.net/2021/09/1435288526820573187/): Super Mario Sunshine #sketchdaily 250/365 (Click photos to view full-size)
-- [Sept. 8, 2021, 12:11 a.m.](https://roytang.net/2021/09/1435274453844250625/): Jiminy #sketchdaily 249/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
