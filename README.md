@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 13, 2021, 2:49 a.m.](https://roytang.net/2021/09/1437126341149683713/): To infinity and beyond! #sketchdaily 254/365 (Click photos to view full-size)
 - [Sept. 13, 2021, 12:23 a.m.](https://roytang.net/2021/09/1437089567387967491/): A croissant? #sketchdaily 253/365 (Click photos to view full-size)
 - [Sept. 12, 2021, 11:47 p.m.](https://roytang.net/2021/09/1437080456873201679/): #House S08E22 they waited until the series finale to make this reference! Also, 9 year old spoilers I guess (Click photos to view full-size)
 - [Sept. 10, 2021, 1:35 p.m.](https://roytang.net/2021/09/1436201734456545281/): The Matrix Resurrections – Official Trailer 1 https://www.youtube.com/watch?v=9ix7TUGVYIo&amp;feature=youtu.be via @YouTube WHAT YEAR IS IT?!?
 - [Sept. 10, 2021, 1:09 p.m.](https://roytang.net/2021/09/1436195008332197899/): I had forgotten that #House got an employee of Filipino lineage in season 8 so we get random PH references like this one in ep 4 (Click photos to view full-size) [13:36] It&#x27;s actually too bad we only got one season of Dr Chi Park lol
-- [Sept. 9, 2021, 10:39 p.m.](https://roytang.net/2021/09/1435976263475236872/): Kuribo’s shoe 252/365 #sketchdaily (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/a1/cc/a1cce73b24cc17d22d9eed65f2c68452.jpg)
 - ![](https://roytang.net/media/cache/f8/f2/f8f2e92b39e939005cfa74d3e29dea35.jpg)
 - ![](https://roytang.net/media/cache/9d/28/9d28c3f4b9d797208e06cd8089f33e6a.jpg)
+- ![](https://roytang.net/media/cache/cc/d2/ccd225732ca250a7663fb3966eda5f42.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
