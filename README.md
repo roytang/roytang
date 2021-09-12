@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-09-12](https://roytang.net/2021/09/weeknotes-2021-09-12/)
 - [Rubber Band-Powered Bottle Car](https://roytang.net/2021/09/rubber-band-bottle-car/)
 - [Books: The Left Hand of Darkness by Ursula K. Le Guin](https://roytang.net/2021/09/lhod/)
 - [Escaping The Cage of Algorithmic Recommendations](https://roytang.net/2021/09/cage-recommendations/)
 - [Weeknotes 2021-09-05](https://roytang.net/2021/09/weeknotes-2021-09-05/)
-- [Spectre](https://roytang.net/2021/09/spectre/)
 
 [View all posts](https://roytang.net/blog)
 
