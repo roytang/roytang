@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 13, 2021, 9:09 p.m.](https://roytang.net/2021/09/1437402945243344898/): Marvel Studios’ Hawkeye | Official Trailer | Disney+ https://youtu.be/5VYb3B1ETlk via @YouTube Okay, this looks great. The tracksuit draculas are here!
 - [Sept. 13, 2021, 8:52 p.m.](https://roytang.net/2021/09/1437398804966244354/): Todoroki #sketchdaily 255/365 (Click photos to view full-size)
 - [Sept. 13, 2021, 2:49 a.m.](https://roytang.net/2021/09/1437126341149683713/): To infinity and beyond! #sketchdaily 254/365 (Click photos to view full-size)
 - [Sept. 13, 2021, 12:23 a.m.](https://roytang.net/2021/09/1437089567387967491/): A croissant? #sketchdaily 253/365 (Click photos to view full-size)
 - [Sept. 12, 2021, 11:47 p.m.](https://roytang.net/2021/09/1437080456873201679/): #House S08E22 they waited until the series finale to make this reference! Also, 9 year old spoilers I guess (Click photos to view full-size)
-- [Sept. 10, 2021, 1:35 p.m.](https://roytang.net/2021/09/1436201734456545281/): The Matrix Resurrections – Official Trailer 1 https://www.youtube.com/watch?v=9ix7TUGVYIo&amp;feature=youtu.be via @YouTube WHAT YEAR IS IT?!?
 
 [View all notes](https://roytang.net/notes)
 
