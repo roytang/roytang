@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [5 reasons every developer should learn to write well](https://roytang.net/2021/09/5-reasons-every-developer-should-learn-to-write-well/)
 - [Briefing to the UK Competition and Markets Authority on Apple’s iOS browser monopoly and Progressive](https://roytang.net/2021/09/e70d9944158e48f21f45880e61981adc/)
 - [The Single-Page-App Morality Play](https://roytang.net/2021/09/the-single-page-app-morality-play/)
 - [The Other Sara Morrisons are ruining my inbox](https://roytang.net/2021/09/the-other-sara-morrisons-are-ruining-my-inbox/)
 - [When there’s shelf space in wrong, someone’s gonna fill it](https://roytang.net/2021/09/when-theres-shelf-space-in-wrong-someones-gonna-fill-it/)
-- [People are realizing that degrowth is bad](https://roytang.net/2021/09/people-are-realizing-that-degrowth-is-bad/)
 
 [View all links](https://roytang.net/links)
 
