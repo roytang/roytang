@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 13, 2021, 11:10 p.m.](https://roytang.net/2021/09/1437433432389259271/): “Oh my, I’m running late!” #sketchdaily 256/365 (Click photos to view full-size)
 - [Sept. 13, 2021, 9:09 p.m.](https://roytang.net/2021/09/1437402945243344898/): Marvel Studios’ Hawkeye | Official Trailer | Disney+ https://youtu.be/5VYb3B1ETlk via @YouTube Okay, this looks great. The tracksuit draculas are here!
 - [Sept. 13, 2021, 8:52 p.m.](https://roytang.net/2021/09/1437398804966244354/): Todoroki #sketchdaily 255/365 (Click photos to view full-size)
 - [Sept. 13, 2021, 2:49 a.m.](https://roytang.net/2021/09/1437126341149683713/): To infinity and beyond! #sketchdaily 254/365 (Click photos to view full-size)
 - [Sept. 13, 2021, 12:23 a.m.](https://roytang.net/2021/09/1437089567387967491/): A croissant? #sketchdaily 253/365 (Click photos to view full-size)
-- [Sept. 12, 2021, 11:47 p.m.](https://roytang.net/2021/09/1437080456873201679/): #House S08E22 they waited until the series finale to make this reference! Also, 9 year old spoilers I guess (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/9d/28/9d28c3f4b9d797208e06cd8089f33e6a.jpg)
 - ![](https://roytang.net/media/cache/cc/d2/ccd225732ca250a7663fb3966eda5f42.jpg)
 - ![](https://roytang.net/media/cache/1d/00/1d00ee30d2e22d7ecfaa2b65adaa81b8.jpg)
+- ![](https://roytang.net/media/cache/f4/a0/f4a08aa94bc3034684b163619a875402.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
