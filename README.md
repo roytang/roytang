@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 14, 2021, 9:35 p.m.](https://roytang.net/2021/09/1437772003247894545/): Giraffe #sketchdaily 257/365 (Click photos to view full-size)
 - [Sept. 14, 2021, 8:59 p.m.](https://roytang.net/2021/09/1437762927289720837/): Took me another six months to climb back into silver league with Birdie in #streetfighterv! Hopefully I can keep rising up! #gaming (Click photos to view full-size)
 - [Sept. 13, 2021, 11:10 p.m.](https://roytang.net/2021/09/1437433432389259271/): “Oh my, I’m running late!” #sketchdaily 256/365 (Click photos to view full-size)
 - [Sept. 13, 2021, 9:09 p.m.](https://roytang.net/2021/09/1437402945243344898/): Marvel Studios’ Hawkeye | Official Trailer | Disney+ https://youtu.be/5VYb3B1ETlk via @YouTube Okay, this looks great. The tracksuit draculas are here!
 - [Sept. 13, 2021, 8:52 p.m.](https://roytang.net/2021/09/1437398804966244354/): Todoroki #sketchdaily 255/365 (Click photos to view full-size)
-- [Sept. 13, 2021, 2:49 a.m.](https://roytang.net/2021/09/1437126341149683713/): To infinity and beyond! #sketchdaily 254/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/cc/d2/ccd225732ca250a7663fb3966eda5f42.jpg)
 - ![](https://roytang.net/media/cache/1d/00/1d00ee30d2e22d7ecfaa2b65adaa81b8.jpg)
 - ![](https://roytang.net/media/cache/f4/a0/f4a08aa94bc3034684b163619a875402.jpg)
+- ![](https://roytang.net/media/cache/1e/83/1e835b7386efc1e76fb667b57f9dbbe7.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
