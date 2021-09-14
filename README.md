@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [TV Retrospective: House MD](https://roytang.net/2021/09/house/)
 - [Mobile and Tablet Browsing Annoyances](https://roytang.net/2021/09/mobile-tablet-annoyances/)
 - [Weeknotes 2021-09-12](https://roytang.net/2021/09/weeknotes-2021-09-12/)
 - [Rubber Band-Powered Bottle Car](https://roytang.net/2021/09/rubber-band-bottle-car/)
 - [Books: The Left Hand of Darkness by Ursula K. Le Guin](https://roytang.net/2021/09/lhod/)
-- [Escaping The Cage of Algorithmic Recommendations](https://roytang.net/2021/09/cage-recommendations/)
 
 [View all posts](https://roytang.net/blog)
 
