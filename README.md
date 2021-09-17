@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 18, 2021, 3:44 a.m.](https://roytang.net/2021/09/1438952030811262979/): Puppet #sketchdaily 259/365 (Click photos to view full-size)
 - [Sept. 17, 2021, 7:11 p.m.](https://roytang.net/2021/09/1438822790975483908/): Innistrad Midnight Hunt is out on #MagicArena! Before getting into some drafts, I decided to do a sealed first to get a feel of how the new mechanics play. This is the pile I decided to play with, unfortunately I only went 3-3, boo! Will do drafts next week! #MTGMidnight (Click photos to view full-size)
 - [Sept. 15, 2021, 11:53 p.m.](https://roytang.net/2021/09/1438169156013023239/): Beard #sketchdaily 258/365 (Click photos to view full-size)
 - [Sept. 15, 2021, 1:16 a.m.](https://roytang.net/2021/09/hcucto5/): Just log in right now and you&#x27;ll be fine
 - [Sept. 14, 2021, 9:35 p.m.](https://roytang.net/2021/09/1437772003247894545/): Giraffe #sketchdaily 257/365 (Click photos to view full-size)
-- [Sept. 14, 2021, 8:59 p.m.](https://roytang.net/2021/09/1437762927289720837/): Took me another six months to climb back into silver league with Birdie in #streetfighterv! Hopefully I can keep rising up! #gaming (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/f4/a0/f4a08aa94bc3034684b163619a875402.jpg)
 - ![](https://roytang.net/media/cache/1e/83/1e835b7386efc1e76fb667b57f9dbbe7.jpg)
 - ![](https://roytang.net/media/cache/26/c1/26c1502ee4289262dff76c7da2a2d282.jpg)
+- ![](https://roytang.net/media/cache/a3/e4/a3e44816f32918ece310e308b6531be7.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
