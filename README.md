@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 20, 2021, 1:28 a.m.](https://roytang.net/2021/09/1439642543591878667/): Alphonse Elric #sketchdaily 261/365 (Click photos to view full-size)
 - [Sept. 20, 2021, 12:17 a.m.](https://roytang.net/2021/09/1439624773542178824/): Knight token for #mtg (forest for scale), with scan in case I actually decide to use it. #sketchdaily 260/365 (Click photos to view full-size)
 - [Sept. 19, 2021, 8:06 p.m.](https://roytang.net/2021/09/1439561567641636867/): Early master rank (for me) this month on @EternalCardGame , despite scrubbing out at the Throne Open last week. Let&#x27;s see if we can&#x27;t finish high again this month. (Click photos to view full-size)
 - [Sept. 19, 2021, 1:41 p.m.](https://roytang.net/2021/09/1439464543038496768/): Confession: I still like Bon Jovi (Click photos to view full-size)
 - [Sept. 18, 2021, 3:44 a.m.](https://roytang.net/2021/09/1438952030811262979/): Puppet #sketchdaily 259/365 (Click photos to view full-size)
-- [Sept. 17, 2021, 7:11 p.m.](https://roytang.net/2021/09/1438822790975483908/): Innistrad Midnight Hunt is out on #MagicArena! Before getting into some drafts, I decided to do a sealed first to get a feel of how the new mechanics play. This is the pile I decided to play with, unfortunately I only went 3-3, boo! Will do drafts next week! #MTGMidnight (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/26/c1/26c1502ee4289262dff76c7da2a2d282.jpg)
 - ![](https://roytang.net/media/cache/a3/e4/a3e44816f32918ece310e308b6531be7.jpg)
 - ![](https://roytang.net/media/cache/ad/df/addfca2bf2e289a58e8e4797215760ec.jpg)
+- ![](https://roytang.net/media/cache/de/76/de765f9e3b21140d300794780cc37653.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
