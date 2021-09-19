@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 19, 2021, 8:06 p.m.](https://roytang.net/2021/09/1439561567641636867/): Early master rank (for me) this month on @EternalCardGame , despite scrubbing out at the Throne Open last week. Let&#x27;s see if we can&#x27;t finish high again this month. (Click photos to view full-size)
 - [Sept. 19, 2021, 1:41 p.m.](https://roytang.net/2021/09/1439464543038496768/): Confession: I still like Bon Jovi (Click photos to view full-size)
 - [Sept. 18, 2021, 3:44 a.m.](https://roytang.net/2021/09/1438952030811262979/): Puppet #sketchdaily 259/365 (Click photos to view full-size)
 - [Sept. 17, 2021, 7:11 p.m.](https://roytang.net/2021/09/1438822790975483908/): Innistrad Midnight Hunt is out on #MagicArena! Before getting into some drafts, I decided to do a sealed first to get a feel of how the new mechanics play. This is the pile I decided to play with, unfortunately I only went 3-3, boo! Will do drafts next week! #MTGMidnight (Click photos to view full-size)
 - [Sept. 15, 2021, 11:53 p.m.](https://roytang.net/2021/09/1438169156013023239/): Beard #sketchdaily 258/365 (Click photos to view full-size)
-- [Sept. 15, 2021, 1:16 a.m.](https://roytang.net/2021/09/hcucto5/): Just log in right now and you&#x27;ll be fine
 
 [View all notes](https://roytang.net/notes)
 
