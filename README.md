@@ -27,7 +27,7 @@ Latest shared links:
 Latest notes:
 
 - [Sept. 20, 2021, 11:43 p.m.](https://roytang.net/2021/09/1439978495333920771/): Black Lotus #sketchdaily #mtg 262/365 (Click photos to view full-size)
-- [Sept. 20, 2021, 6:50 p.m.](https://roytang.net/2021/09/1439904837718712323/): Streaming some Midnight Hunt limited episode 1! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgmidnight
+- [Sept. 20, 2021, 6:50 p.m.](https://roytang.net/2021/09/1439904837718712323/): Streaming some Midnight Hunt limited episode 1! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgmidnight [23:52] Did three drafts today, and the only reason I would do that would be if the first two were terrible! Finally got out of RB for the last one and redeemed myself a bit! YT: https://www.youtube.com/watch?v=aHACJUboakc (Click photos to view full-size)
 - [Sept. 20, 2021, 3:54 p.m.](https://roytang.net/2021/09/1439860389790076928/): @viceasia posted this three months ago and look at that ratio. 😬 So much work still needs to be done to undo the seeds of misinformation that have been planted by those who working hard to rehabilitate their image. #MarcosNotAHero Watch, like, share: https://youtu.be/-p0FSHa3EBc (Click photos to view full-size)
 - [Sept. 20, 2021, 1:20 p.m.](https://roytang.net/2021/09/1439821721385652225/): If you think you are bad at naming characters or variables, just remember Marvel has a character named BlackBolt whose real name is Blackagar Boltagon #comicbooks
 - [Sept. 20, 2021, 1:28 a.m.](https://roytang.net/2021/09/1439642543591878667/): Alphonse Elric #sketchdaily 261/365 (Click photos to view full-size)
