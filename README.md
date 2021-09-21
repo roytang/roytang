@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Draw Something 2](https://roytang.net/2021/09/draw-something-2/)
 - [Weeknotes 2021-09-19](https://roytang.net/2021/09/weeknotes-2021-09-19/)
 - [TV Retrospective: House MD](https://roytang.net/2021/09/house/)
 - [Mobile and Tablet Browsing Annoyances](https://roytang.net/2021/09/mobile-tablet-annoyances/)
 - [Weeknotes 2021-09-12](https://roytang.net/2021/09/weeknotes-2021-09-12/)
-- [Rubber Band-Powered Bottle Car](https://roytang.net/2021/09/rubber-band-bottle-car/)
 
 [View all posts](https://roytang.net/blog)
 
