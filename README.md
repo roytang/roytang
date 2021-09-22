@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Drone Photo Awards 2021 Winners](https://roytang.net/2021/09/2b3b318814a7938d45953f856543a347/)
+- [File not found: A generation that grew up with Google is forcing professors to rethink their lesson](https://roytang.net/2021/09/c505ac55fd30cc210adf29911cc9bc1f/)
 - [Stop Making Students Use Eclipse](https://roytang.net/2021/09/stop-making-students-use-eclipse/)
 - [Social media and social groups](https://roytang.net/2021/09/social-media-and-social-groups/)
 - [5 reasons every developer should learn to write well](https://roytang.net/2021/09/5-reasons-every-developer-should-learn-to-write-well/)
-- [Briefing to the UK Competition and Markets Authority on Apple’s iOS browser monopoly and Progressive](https://roytang.net/2021/09/e70d9944158e48f21f45880e61981adc/)
-- [The Single-Page-App Morality Play](https://roytang.net/2021/09/the-single-page-app-morality-play/)
 
 [View all links](https://roytang.net/links)
 
