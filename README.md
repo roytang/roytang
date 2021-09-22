@@ -27,7 +27,7 @@ Latest shared links:
 Latest notes:
 
 - [Sept. 22, 2021, 9:43 p.m.](https://roytang.net/2021/09/1440673107744722954/): Hawkgirl #sketchdaily 265/365 (Click photos to view full-size)
-- [Sept. 22, 2021, 7:28 p.m.](https://roytang.net/2021/09/1440639122591268864/): Streaming some Midnight Hunt limited episode 2! https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgmidnight #twitch
+- [Sept. 22, 2021, 7:28 p.m.](https://roytang.net/2021/09/1440639122591268864/): Streaming some Midnight Hunt limited episode 2! https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgmidnight #twitch [22:43] Got my first 7-win Midnight Hunt draft tonight! The other draft was a failed UR experiment. YT: https://www.youtube.com/watch?v=um3rQLpQ8_0 (Click photos to view full-size)
 - [Sept. 22, 2021, 7:03 p.m.](https://roytang.net/2021/09/1440632749560197124/): was rereading the little prince last night and i forgot how good this part was at explaining NFTs (Click photos to view full-size)
 - [Sept. 21, 2021, 9:29 p.m.](https://roytang.net/2021/09/1440307266071117832/): Norse Bros #sketchdaily 264/365 (Click photos to view full-size)
 - [Sept. 21, 2021, 8:51 p.m.](https://roytang.net/2021/09/1440297532299481093/): I’m a sucker for shiny new things so of course when I saw iPadOS 15 was available I just installed it immediately. Can finally have widgets on the home screen and can remove apps from the home screen without deleting them! (Android has had these features forever lol) (Click photos to view full-size) [20:52] Maybe now I&#x27;ll finally get around to organizing my home screen(s). Also, hopefully this upgrade improves performance!
