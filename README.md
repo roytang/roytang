@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 22, 2021, 7:03 p.m.](https://roytang.net/2021/09/1440632749560197124/): was rereading the little prince last night and i forgot how good this part was at explaining NFTs (Click photos to view full-size)
 - [Sept. 21, 2021, 9:29 p.m.](https://roytang.net/2021/09/1440307266071117832/): Norse Bros #sketchdaily 264/365 (Click photos to view full-size)
 - [Sept. 21, 2021, 8:51 p.m.](https://roytang.net/2021/09/1440297532299481093/): I’m a sucker for shiny new things so of course when I saw iPadOS 15 was available I just installed it immediately. Can finally have widgets on the home screen and can remove apps from the home screen without deleting them! (Android has had these features forever lol) (Click photos to view full-size) [20:52] Maybe now I&#x27;ll finally get around to organizing my home screen(s). Also, hopefully this upgrade improves performance!
 - [Sept. 21, 2021, 8:04 p.m.](https://roytang.net/2021/09/1440285715561005060/): Depressingly, a debunked theory is believed by the vast majority of teachers. The belief in Learning Styles (that some people are auditory learners, visual learners, etc) is not only wrong, it can hurt. But the research shows that when teachers learn why, they change. So, a 🧵1/ (Click photos to view full-size)
 - [Sept. 21, 2021, 12:22 a.m.](https://roytang.net/2021/09/1439988426250457089/): Never a bad time to re-up this explanation of Bayes Theorem, showing how vaccinated people will make up a majority of COVID hospitalizations in high-vaccinated areas. However, their hospitalization rate will still be fraction of the unvaccinated population. https://twitter.com/kennyshirley/status/1417177778013843456
-- [Sept. 21, 2021, 12:08 a.m.](https://roytang.net/2021/09/1439984744695926786/): Combat Boots #sketchdaily 263/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
