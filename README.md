@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 22, 2021, 9:43 p.m.](https://roytang.net/2021/09/1440673107744722954/): Hawkgirl #sketchdaily 265/365 (Click photos to view full-size)
 - [Sept. 22, 2021, 7:28 p.m.](https://roytang.net/2021/09/1440639122591268864/): Streaming some Midnight Hunt limited episode 2! https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgmidnight #twitch
 - [Sept. 22, 2021, 7:03 p.m.](https://roytang.net/2021/09/1440632749560197124/): was rereading the little prince last night and i forgot how good this part was at explaining NFTs (Click photos to view full-size)
 - [Sept. 21, 2021, 9:29 p.m.](https://roytang.net/2021/09/1440307266071117832/): Norse Bros #sketchdaily 264/365 (Click photos to view full-size)
 - [Sept. 21, 2021, 8:51 p.m.](https://roytang.net/2021/09/1440297532299481093/): I’m a sucker for shiny new things so of course when I saw iPadOS 15 was available I just installed it immediately. Can finally have widgets on the home screen and can remove apps from the home screen without deleting them! (Android has had these features forever lol) (Click photos to view full-size) [20:52] Maybe now I&#x27;ll finally get around to organizing my home screen(s). Also, hopefully this upgrade improves performance!
-- [Sept. 21, 2021, 8:04 p.m.](https://roytang.net/2021/09/1440285715561005060/): Depressingly, a debunked theory is believed by the vast majority of teachers. The belief in Learning Styles (that some people are auditory learners, visual learners, etc) is not only wrong, it can hurt. But the research shows that when teachers learn why, they change. So, a 🧵1/ (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/b4/1f/b41ff13f8c2d1d3b5696d76812707f1c.jpg)
 - ![](https://roytang.net/media/cache/f8/a4/f8a42bdcc690d718501b0c320fbf37f9.jpg)
 - ![](https://roytang.net/media/cache/f7/bc/f7bc4f4a0fe9e9994ab03d6f7122ff2f.jpg)
+- ![](https://roytang.net/media/cache/c0/26/c02693f247408f0daa87a77fdb125b74.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
