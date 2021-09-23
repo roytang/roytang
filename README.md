@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 23, 2021, 7:15 p.m.](https://roytang.net/2021/09/1440998158142640139/): Shredder #sketchdaily 266/365 (Click photos to view full-size)
 - [Sept. 23, 2021, 6:55 a.m.](https://roytang.net/2021/09/1440811984388194306/): Look, you don&#x27;t have to stay friends with Marcos apologists
 - [Sept. 22, 2021, 9:43 p.m.](https://roytang.net/2021/09/1440673107744722954/): Hawkgirl #sketchdaily 265/365 (Click photos to view full-size)
 - [Sept. 22, 2021, 7:28 p.m.](https://roytang.net/2021/09/1440639122591268864/): Streaming some Midnight Hunt limited episode 2! https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgmidnight #twitch [22:43] Got my first 7-win Midnight Hunt draft tonight! The other draft was a failed UR experiment. YT: https://www.youtube.com/watch?v=um3rQLpQ8_0 (Click photos to view full-size)
 - [Sept. 22, 2021, 7:03 p.m.](https://roytang.net/2021/09/1440632749560197124/): was rereading the little prince last night and i forgot how good this part was at explaining NFTs (Click photos to view full-size)
-- [Sept. 21, 2021, 9:29 p.m.](https://roytang.net/2021/09/1440307266071117832/): Norse Bros #sketchdaily 264/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/f8/a4/f8a42bdcc690d718501b0c320fbf37f9.jpg)
 - ![](https://roytang.net/media/cache/f7/bc/f7bc4f4a0fe9e9994ab03d6f7122ff2f.jpg)
 - ![](https://roytang.net/media/cache/c0/26/c02693f247408f0daa87a77fdb125b74.jpg)
+- ![](https://roytang.net/media/cache/ff/ec/ffecb535f8293eeb99e9821ce2b43754.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
