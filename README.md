@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 24, 2021, 2:14 a.m.](https://roytang.net/2021/09/1441103717437095938/): @Westraid Wait you can tweet in italics?
 - [Sept. 23, 2021, 7:15 p.m.](https://roytang.net/2021/09/1440998158142640139/): Shredder #sketchdaily 266/365 (Click photos to view full-size)
 - [Sept. 23, 2021, 6:55 a.m.](https://roytang.net/2021/09/1440811984388194306/): Look, you don&#x27;t have to stay friends with Marcos apologists
 - [Sept. 22, 2021, 9:43 p.m.](https://roytang.net/2021/09/1440673107744722954/): Hawkgirl #sketchdaily 265/365 (Click photos to view full-size)
 - [Sept. 22, 2021, 7:28 p.m.](https://roytang.net/2021/09/1440639122591268864/): Streaming some Midnight Hunt limited episode 2! https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgmidnight #twitch [22:43] Got my first 7-win Midnight Hunt draft tonight! The other draft was a failed UR experiment. YT: https://www.youtube.com/watch?v=um3rQLpQ8_0 (Click photos to view full-size)
-- [Sept. 22, 2021, 7:03 p.m.](https://roytang.net/2021/09/1440632749560197124/): was rereading the little prince last night and i forgot how good this part was at explaining NFTs (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
