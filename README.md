@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Python as a build tool](https://roytang.net/2021/09/python-as-a-build-tool/)
 - [Drone Photo Awards 2021 Winners](https://roytang.net/2021/09/2b3b318814a7938d45953f856543a347/)
 - [File not found: A generation that grew up with Google is forcing professors to rethink their lesson](https://roytang.net/2021/09/c505ac55fd30cc210adf29911cc9bc1f/)
 - [Stop Making Students Use Eclipse](https://roytang.net/2021/09/stop-making-students-use-eclipse/)
 - [Social media and social groups](https://roytang.net/2021/09/social-media-and-social-groups/)
-- [5 reasons every developer should learn to write well](https://roytang.net/2021/09/5-reasons-every-developer-should-learn-to-write-well/)
 
 [View all links](https://roytang.net/links)
 
