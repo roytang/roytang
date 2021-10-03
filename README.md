@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
-- [Oct. 3, 2021, 3:58 p.m.](https://roytang.net/2021/10/ad9c089d867d43574f51f149c71f5370/): The covid situation is still enfolding, but it&#x27;s no longer at home. I am relatively fine and doing well, aside from some minor things. But there are others to take cre of as well. I wish more words could be spared, but that will have to wait until this is all over. Until then, the blog gets little more than a placeholder. The world can wait.
 - [Oct. 1, 2021, 5:39 p.m.](https://roytang.net/2021/10/1443873307120467969/): FLYBOY breaking lingual barriers; connecting people (Click photos to view full-size)
 - [Sept. 24, 2021, 2:14 a.m.](https://roytang.net/2021/09/1441103717437095938/): @Westraid Wait you can tweet in italics?
 - [Sept. 23, 2021, 7:15 p.m.](https://roytang.net/2021/09/1440998158142640139/): Shredder #sketchdaily 266/365 (Click photos to view full-size)
 - [Sept. 23, 2021, 6:55 a.m.](https://roytang.net/2021/09/1440811984388194306/): Look, you don&#x27;t have to stay friends with Marcos apologists
+- [Sept. 22, 2021, 9:43 p.m.](https://roytang.net/2021/09/1440673107744722954/): Hawkgirl #sketchdaily 265/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
