@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-10-03 Proof of Life](https://roytang.net/2021/10/weeknotes-2021-10-03/)
 - [Weeknotes 2021-09-26](https://roytang.net/2021/09/weeknotes-2021-09-26/)
 - [Jack Ryan Week](https://roytang.net/2021/09/jack-ryan-week/)
 - [Draw Something (screenshots batch 2 - 2017 wave)](https://roytang.net/2021/09/draw-something-2/)
 - [Weeknotes 2021-09-19](https://roytang.net/2021/09/weeknotes-2021-09-19/)
-- [TV Retrospective: House MD](https://roytang.net/2021/09/house/)
 
 [View all posts](https://roytang.net/blog)
 
