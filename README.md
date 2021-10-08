@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Rewilding Your Attention](https://roytang.net/2021/10/2cf0e36eb98f383bfadcf0dc11ad2baa/)
 - [Facebook Banned Me for Life Because I Help People Use It Less](https://roytang.net/2021/10/30db1452d5381966acedbdd760510185/)
 - [I quit: Peak indifference, big tobacco, disinformation and death](https://roytang.net/2021/09/9eef5c61f68f4444b31d3cde214a5ec5/)
 - [Python as a build tool](https://roytang.net/2021/09/python-as-a-build-tool/)
 - [Drone Photo Awards 2021 Winners](https://roytang.net/2021/09/2b3b318814a7938d45953f856543a347/)
-- [File not found: A generation that grew up with Google is forcing professors to rethink their lesson](https://roytang.net/2021/09/c505ac55fd30cc210adf29911cc9bc1f/)
 
 [View all links](https://roytang.net/links)
 
