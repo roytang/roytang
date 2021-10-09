@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 9, 2021, 9:18 p.m.](https://roytang.net/2021/10/1446827317028818949/): Some quick doodles to cut back on the #sketchdaily backlog 9/24 woman with gun 267/365 9/25 alien abduction 268/365 9/26 wolf in chicken costume 269/365 9/27 oversized scissors 270/365 (Click photos to view full-size)
 - [Oct. 9, 2021, 8:15 p.m.](https://roytang.net/2021/10/1446811505437986816/): @SeresaTagAraw date him to find out
 - [Oct. 8, 2021, 4:39 p.m.](https://roytang.net/2021/10/1446394831090040839/): &quot;Mom, can we have Sara Duterte for president?&quot; &quot;No we have Sara Duterte at home.&quot; Sara Duterte at home: Quoted mlq3&#x27;s tweet: What they were praying for. What they got. (Click photos to view full-size)
 - [Oct. 8, 2021, 3:50 p.m.](https://roytang.net/2021/10/1446382369137520643/): @bloodyvints what game is it?
 - [Oct. 8, 2021, 3:04 p.m.](https://roytang.net/2021/10/1446370919522324485/): This is a screenshot of my College Instructor who is currently working with VP Leni. He was able to work with other politicians too so I would know that what he&#x27;s saying are all true. I believe in Leni. Let her lead. PLEASE RT TO SPREAD #LabanLeni2022 (Click photos to view full-size)
-- [Oct. 1, 2021, 5:39 p.m.](https://roytang.net/2021/10/1443873307120467969/): FLYBOY breaking lingual barriers; connecting people (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/f7/bc/f7bc4f4a0fe9e9994ab03d6f7122ff2f.jpg)
 - ![](https://roytang.net/media/cache/c0/26/c02693f247408f0daa87a77fdb125b74.jpg)
 - ![](https://roytang.net/media/cache/ff/ec/ffecb535f8293eeb99e9821ce2b43754.jpg)
+- ![](https://roytang.net/media/cache/12/d4/12d419d648692732ba6c44b9ced1d269.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
