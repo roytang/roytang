@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 10, 2021, 8:33 a.m.](https://roytang.net/2021/10/1446997172679938048/): 1000 day #duolingo streak! (Click photos to view full-size)
 - [Oct. 9, 2021, 9:18 p.m.](https://roytang.net/2021/10/1446827317028818949/): Some quick doodles to cut back on the #sketchdaily backlog 9/24 woman with gun 267/365 9/25 alien abduction 268/365 9/26 wolf in chicken costume 269/365 9/27 oversized scissors 270/365 (Click photos to view full-size)
 - [Oct. 9, 2021, 8:15 p.m.](https://roytang.net/2021/10/1446811505437986816/): @SeresaTagAraw date him to find out
 - [Oct. 8, 2021, 4:39 p.m.](https://roytang.net/2021/10/1446394831090040839/): &quot;Mom, can we have Sara Duterte for president?&quot; &quot;No we have Sara Duterte at home.&quot; Sara Duterte at home: Quoted mlq3&#x27;s tweet: What they were praying for. What they got. (Click photos to view full-size)
 - [Oct. 8, 2021, 3:50 p.m.](https://roytang.net/2021/10/1446382369137520643/): @bloodyvints what game is it?
-- [Oct. 8, 2021, 3:04 p.m.](https://roytang.net/2021/10/1446370919522324485/): This is a screenshot of my College Instructor who is currently working with VP Leni. He was able to work with other politicians too so I would know that what he&#x27;s saying are all true. I believe in Leni. Let her lead. PLEASE RT TO SPREAD #LabanLeni2022 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
