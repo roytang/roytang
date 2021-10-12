@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 12, 2021, 10:41 p.m.](https://roytang.net/2021/10/1447935535604027405/): More #sketchdaily #inktober catchup doodles! (I just gave up on drawtober lol) Day 5 Raven 278/365 Day 6 Spirit of vengeance 279/365 Day 7 Can&#x27;t beat Airman! 280/365 (Click photos to view full-size)
 - [Oct. 11, 2021, 3:57 p.m.](https://roytang.net/2021/10/1447471441046228994/): More #sketchdaily catchup doodles. Lets try doing #inktober and #drawtober as well! Day 1: clown finds a crystal 274/365 Day 2: clown suit 275/365 Day 3: clown vessel 276/365 Day 4: clown balloon animal in knots 277/365 (Click photos to view full-size)
 - [Oct. 10, 2021, 11:36 a.m.](https://roytang.net/2021/10/1447043403645026323/): Some more #sketchdaily catchup doodles 9/28 wall painting 271/365 9/29 sandwich 272/365 9/30 hand 273/365 (Click photos to view full-size)
 - [Oct. 10, 2021, 8:33 a.m.](https://roytang.net/2021/10/1446997172679938048/): 1000 day #duolingo streak! (Click photos to view full-size)
 - [Oct. 9, 2021, 9:18 p.m.](https://roytang.net/2021/10/1446827317028818949/): Some quick doodles to cut back on the #sketchdaily backlog 9/24 woman with gun 267/365 9/25 alien abduction 268/365 9/26 wolf in chicken costume 269/365 9/27 oversized scissors 270/365 (Click photos to view full-size)
-- [Oct. 9, 2021, 8:15 p.m.](https://roytang.net/2021/10/1446811505437986816/): @SeresaTagAraw date him to find out
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/12/d4/12d419d648692732ba6c44b9ced1d269.jpg)
-- ![](https://roytang.net/media/cache/9b/24/9b2407421ad6830abee4dec21764df79.jpg)
-- ![](https://roytang.net/media/cache/8b/f9/8bf9e204367b4c0734bfa1b9d578c153.jpg)
+- ![](https://roytang.net/media/cache/22/e6/22e6bd26d073469a3a9468e300453ca3.jpg)
+- ![](https://roytang.net/media/cache/04/f5/04f5e575561a4516eddce85872182e94.jpg)
+- ![](https://roytang.net/media/cache/e9/1d/e91d535ce23631d907883684c69d5a11.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
