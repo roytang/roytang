@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 14, 2021, 7:58 p.m.](https://roytang.net/2021/10/1448619103430725641/): Even more #sketchdaily #inktober catchup doodles! Day 8: Watch 281/365 Day 9: Pressure 282/365 Day 10: Pickaxe 283/365 (Click photos to view full-size)
 - [Oct. 12, 2021, 10:41 p.m.](https://roytang.net/2021/10/1447935535604027405/): More #sketchdaily #inktober catchup doodles! (I just gave up on drawtober lol) Day 5 Raven 278/365 Day 6 Spirit of vengeance 279/365 Day 7 Can&#x27;t beat Airman! 280/365 (Click photos to view full-size)
 - [Oct. 11, 2021, 3:57 p.m.](https://roytang.net/2021/10/1447471441046228994/): More #sketchdaily catchup doodles. Lets try doing #inktober and #drawtober as well! Day 1: clown finds a crystal 274/365 Day 2: clown suit 275/365 Day 3: clown vessel 276/365 Day 4: clown balloon animal in knots 277/365 (Click photos to view full-size)
 - [Oct. 10, 2021, 11:36 a.m.](https://roytang.net/2021/10/1447043403645026323/): Some more #sketchdaily catchup doodles 9/28 wall painting 271/365 9/29 sandwich 272/365 9/30 hand 273/365 (Click photos to view full-size)
 - [Oct. 10, 2021, 8:33 a.m.](https://roytang.net/2021/10/1446997172679938048/): 1000 day #duolingo streak! (Click photos to view full-size)
-- [Oct. 9, 2021, 9:18 p.m.](https://roytang.net/2021/10/1446827317028818949/): Some quick doodles to cut back on the #sketchdaily backlog 9/24 woman with gun 267/365 9/25 alien abduction 268/365 9/26 wolf in chicken costume 269/365 9/27 oversized scissors 270/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/22/e6/22e6bd26d073469a3a9468e300453ca3.jpg)
-- ![](https://roytang.net/media/cache/04/f5/04f5e575561a4516eddce85872182e94.jpg)
-- ![](https://roytang.net/media/cache/e9/1d/e91d535ce23631d907883684c69d5a11.jpg)
+- ![](https://roytang.net/media/cache/06/e2/06e204e60ca4ad64d5d3fdcfc6df23f2.jpg)
+- ![](https://roytang.net/media/cache/db/4b/db4bff677b8f189c69632218f617755c.jpg)
+- ![](https://roytang.net/media/cache/59/c3/59c38866cecb10082d3f173e2c7d60b7.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
