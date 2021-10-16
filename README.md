@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 17, 2021, 7:03 a.m.](https://roytang.net/2021/10/1449511385155588098/): lets panic more tomorrow
 - [Oct. 14, 2021, 7:58 p.m.](https://roytang.net/2021/10/1448619103430725641/): Even more #sketchdaily #inktober catchup doodles! Day 8: Watch 281/365 Day 9: Pressure 282/365 Day 10: Pickaxe 283/365 (Click photos to view full-size)
 - [Oct. 12, 2021, 10:41 p.m.](https://roytang.net/2021/10/1447935535604027405/): More #sketchdaily #inktober catchup doodles! (I just gave up on drawtober lol) Day 5 Raven 278/365 Day 6 Spirit of vengeance 279/365 Day 7 Can&#x27;t beat Airman! 280/365 (Click photos to view full-size)
 - [Oct. 11, 2021, 3:57 p.m.](https://roytang.net/2021/10/1447471441046228994/): More #sketchdaily catchup doodles. Lets try doing #inktober and #drawtober as well! Day 1: clown finds a crystal 274/365 Day 2: clown suit 275/365 Day 3: clown vessel 276/365 Day 4: clown balloon animal in knots 277/365 (Click photos to view full-size)
 - [Oct. 10, 2021, 11:36 a.m.](https://roytang.net/2021/10/1447043403645026323/): Some more #sketchdaily catchup doodles 9/28 wall painting 271/365 9/29 sandwich 272/365 9/30 hand 273/365 (Click photos to view full-size)
-- [Oct. 10, 2021, 8:33 a.m.](https://roytang.net/2021/10/1446997172679938048/): 1000 day #duolingo streak! (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
