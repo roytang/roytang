@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 17, 2021, 9:27 p.m.](https://roytang.net/2021/10/1449728815559704579/): @zaaaldehyde The tagalog term was derived from the japanese iirc
 - [Oct. 17, 2021, 6:59 p.m.](https://roytang.net/2021/10/1449691610346766342/): Quoted negapark&#x27;s tweet: parang it&#x27;s so hard for good people to unite kasi like everyone&#x27;s like &quot;but I&#x27;m more correct&quot; tapos meanwhile the bad people unite super bilis kasi they&#x27;re like &quot;I wanna make kupit&quot; and they&#x27;re OK na like you get? (Click photos to view full-size)
 - [Oct. 17, 2021, 3:53 p.m.](https://roytang.net/2021/10/1449644703947784193/): Home is where your browser knows all your passwords
 - [Oct. 17, 2021, 7:03 a.m.](https://roytang.net/2021/10/1449511385155588098/): lets panic more tomorrow
 - [Oct. 14, 2021, 7:58 p.m.](https://roytang.net/2021/10/1448619103430725641/): Even more #sketchdaily #inktober catchup doodles! Day 8: Watch 281/365 Day 9: Pressure 282/365 Day 10: Pickaxe 283/365 (Click photos to view full-size)
-- [Oct. 12, 2021, 10:41 p.m.](https://roytang.net/2021/10/1447935535604027405/): More #sketchdaily #inktober catchup doodles! (I just gave up on drawtober lol) Day 5 Raven 278/365 Day 6 Spirit of vengeance 279/365 Day 7 Can&#x27;t beat Airman! 280/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
