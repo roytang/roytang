@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 18, 2021, 6:46 p.m.](https://roytang.net/2021/10/1450050524145803267/): More #sketchdaily #inktober catchup doodles (now on a clear pad!) Day 11: Sour 284/365 Day 12: Stuck 285/365 Day 13: Roof 286/365 Day 14: Tick 287/365 (Click photos to view full-size)
 - [Oct. 17, 2021, 10:04 p.m.](https://roytang.net/2021/10/1449738141921730565/): @MarnelEstrada may paper events na?
 - [Oct. 17, 2021, 9:27 p.m.](https://roytang.net/2021/10/1449728815559704579/): @zaaaldehyde The tagalog term was derived from the japanese iirc
 - [Oct. 17, 2021, 6:59 p.m.](https://roytang.net/2021/10/1449691610346766342/): Quoted negapark&#x27;s tweet: parang it&#x27;s so hard for good people to unite kasi like everyone&#x27;s like &quot;but I&#x27;m more correct&quot; tapos meanwhile the bad people unite super bilis kasi they&#x27;re like &quot;I wanna make kupit&quot; and they&#x27;re OK na like you get? (Click photos to view full-size)
 - [Oct. 17, 2021, 3:53 p.m.](https://roytang.net/2021/10/1449644703947784193/): Home is where your browser knows all your passwords
-- [Oct. 17, 2021, 7:03 a.m.](https://roytang.net/2021/10/1449511385155588098/): lets panic more tomorrow
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/06/e2/06e204e60ca4ad64d5d3fdcfc6df23f2.jpg)
-- ![](https://roytang.net/media/cache/db/4b/db4bff677b8f189c69632218f617755c.jpg)
-- ![](https://roytang.net/media/cache/59/c3/59c38866cecb10082d3f173e2c7d60b7.jpg)
+- ![](https://roytang.net/media/cache/71/97/7197fe7cadb78ec1623dcaf44f563db6.jpg)
+- ![](https://roytang.net/media/cache/7d/42/7d4242f7a0b1d0f537eee076b21fbbaf.jpg)
+- ![](https://roytang.net/media/cache/aa/ea/aaea51aaed5a5ac40647a8ea83118fd6.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
