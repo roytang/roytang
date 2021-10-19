@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 19, 2021, 9:30 p.m.](https://roytang.net/2021/10/1450454402519736323/): #sketchdaily and #inktober catchup doodles: Day 15 Helmet 288/365 Day 16 Compass 289/365 Day 17 Collide 290/365 (Click photos to view full-size)
 - [Oct. 19, 2021, 12:09 a.m.](https://roytang.net/2021/10/f3cb16d7f21123133bc0506e9ddfc641/): Watched Kate (2021). Straightforward John Wick-style action film, with a promise that the protag dies. Mary Elizabeth Winstead gives a fantastic performance. There&#x27;s some great fight and camera work, and some great use of Tokyo as the backdrop for the movie.
 - [Oct. 18, 2021, 6:46 p.m.](https://roytang.net/2021/10/1450050524145803267/): More #sketchdaily #inktober catchup doodles (now on a clear pad!) Day 11: Sour 284/365 Day 12: Stuck 285/365 Day 13: Roof 286/365 Day 14: Tick 287/365 (Click photos to view full-size)
 - [Oct. 17, 2021, 10:04 p.m.](https://roytang.net/2021/10/1449738141921730565/): @MarnelEstrada may paper events na?
 - [Oct. 17, 2021, 9:27 p.m.](https://roytang.net/2021/10/1449728815559704579/): @zaaaldehyde The tagalog term was derived from the japanese iirc
-- [Oct. 17, 2021, 6:59 p.m.](https://roytang.net/2021/10/1449691610346766342/): Quoted negapark&#x27;s tweet: parang it&#x27;s so hard for good people to unite kasi like everyone&#x27;s like &quot;but I&#x27;m more correct&quot; tapos meanwhile the bad people unite super bilis kasi they&#x27;re like &quot;I wanna make kupit&quot; and they&#x27;re OK na like you get? (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/71/97/7197fe7cadb78ec1623dcaf44f563db6.jpg)
-- ![](https://roytang.net/media/cache/7d/42/7d4242f7a0b1d0f537eee076b21fbbaf.jpg)
-- ![](https://roytang.net/media/cache/aa/ea/aaea51aaed5a5ac40647a8ea83118fd6.jpg)
+- ![](https://roytang.net/media/cache/29/1a/291aa46d45833c1aef46146653a14cae.jpg)
+- ![](https://roytang.net/media/cache/90/5f/905f6d7cbb4289eff34020b5de5f13f4.jpg)
+- ![](https://roytang.net/media/cache/80/52/8052142037c0496e3fe148e9ee1208e3.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
