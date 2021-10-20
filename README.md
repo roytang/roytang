@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 20, 2021, 6:24 p.m.](https://roytang.net/2021/10/1450770001615597571/): Streaming some Midnight Hunt limited episode 3! https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgmidnight #twitch
 - [Oct. 20, 2021, 4:06 a.m.](https://roytang.net/2021/10/1450554012126699526/): @ohhhace may One Piece na parating lol
 - [Oct. 19, 2021, 9:30 p.m.](https://roytang.net/2021/10/1450454402519736323/): #sketchdaily and #inktober catchup doodles: Day 15 Helmet 288/365 Day 16 Compass 289/365 Day 17 Collide 290/365 (Click photos to view full-size)
 - [Oct. 19, 2021, 12:09 a.m.](https://roytang.net/2021/10/f3cb16d7f21123133bc0506e9ddfc641/): Watched Kate (2021). Straightforward John Wick-style action film, with a promise that the protag dies. Mary Elizabeth Winstead gives a fantastic performance. There&#x27;s some great fight and camera work, and some great use of Tokyo as the backdrop for the movie.
 - [Oct. 18, 2021, 6:46 p.m.](https://roytang.net/2021/10/1450050524145803267/): More #sketchdaily #inktober catchup doodles (now on a clear pad!) Day 11: Sour 284/365 Day 12: Stuck 285/365 Day 13: Roof 286/365 Day 14: Tick 287/365 (Click photos to view full-size)
-- [Oct. 17, 2021, 10:04 p.m.](https://roytang.net/2021/10/1449738141921730565/): @MarnelEstrada may paper events na?
 
 [View all notes](https://roytang.net/notes)
 
