@@ -28,7 +28,7 @@ Latest notes:
 
 - [Oct. 20, 2021, 10:25 p.m.](https://roytang.net/2021/10/1450830497513279491/): remember, it is not our job to determine what happens to the things we create. it is only our job to offer them sincerely.
 - [Oct. 20, 2021, 10:01 p.m.](https://roytang.net/2021/10/1450824461821702146/): Final (hopefully!) #sketchdaily #inktober catchup doodles set! Day 18 Moon 291/365 Day 19 Loop 292/365 Day 20 Sprout 293/365 I&#x27;m all caught up! (Click photos to view full-size)
-- [Oct. 20, 2021, 6:24 p.m.](https://roytang.net/2021/10/1450770001615597571/): Streaming some Midnight Hunt limited episode 3! https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgmidnight #twitch
+- [Oct. 20, 2021, 6:24 p.m.](https://roytang.net/2021/10/1450770001615597571/): Streaming some Midnight Hunt limited episode 3! https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgmidnight #twitch [23:07] I drafted what I thought was a decent UW deck for this one, but didn&#x27;t get all the way there. At least I didn&#x27;t scrub out! YT: https://www.youtube.com/watch?v=EAdIE8PiaCs (Click photos to view full-size)
 - [Oct. 20, 2021, 4:06 a.m.](https://roytang.net/2021/10/1450554012126699526/): @ohhhace may One Piece na parating lol
 - [Oct. 19, 2021, 9:30 p.m.](https://roytang.net/2021/10/1450454402519736323/): #sketchdaily and #inktober catchup doodles: Day 15 Helmet 288/365 Day 16 Compass 289/365 Day 17 Collide 290/365 (Click photos to view full-size)
 
