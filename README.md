@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 21, 2021, 10:30 p.m.](https://roytang.net/2021/10/1451194166688444420/): #sketchdaily #inktober day 21 Bucky the cat from Get Fuzzy (Click photos to view full-size)
 - [Oct. 21, 2021, 4:44 p.m.](https://roytang.net/2021/10/1451107153914187780/): Just realized @EternalCardGame is also on #NintendoSwitch ! (Click photos to view full-size)
 - [Oct. 21, 2021, 11:38 a.m.](https://roytang.net/2021/10/1451030052166979584/): I do not know if a candidate in the Philippines can actually win trying to tell people to be kind to each other. But I&#x27;m happy to see someone try.
 - [Oct. 20, 2021, 11:20 p.m.](https://roytang.net/2021/10/1450844278825967617/): “The paper’s insiders had already given me, albeit secretly, the reason: http://Inquirer.net had a standing editorial policy not to publish anything unfavorable to Bongbong Marcos and Bong Go…” https://verafiles.org/articles/censorship-time-duterte
 - [Oct. 20, 2021, 10:25 p.m.](https://roytang.net/2021/10/1450830497513279491/): remember, it is not our job to determine what happens to the things we create. it is only our job to offer them sincerely.
-- [Oct. 20, 2021, 10:01 p.m.](https://roytang.net/2021/10/1450824461821702146/): Final (hopefully!) #sketchdaily #inktober catchup doodles set! Day 18 Moon 291/365 Day 19 Loop 292/365 Day 20 Sprout 293/365 I&#x27;m all caught up! (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/d7/00/d700a949874bb960041514ebbc473913.jpg)
-- ![](https://roytang.net/media/cache/c8/fa/c8faada1b806219d6671842fdca7ea2f.jpg)
-- ![](https://roytang.net/media/cache/b7/36/b736abe903ce071258321b3419636638.jpg)
+- ![](https://roytang.net/media/cache/ee/71/ee71009a2164feea855b931b9e035af7.jpg)
+- ![](https://roytang.net/media/cache/ca/33/ca330c687ce074e2ef7af1cf2a9bda15.jpg)
+- ![](https://roytang.net/media/cache/cd/4e/cd4ee64f0cafda6213b7858998373052.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
