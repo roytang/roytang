@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 24, 2021, 7:21 p.m.](https://roytang.net/2021/10/1452233769251966976/): #inktober #sketchdaily #inktober2021 Day 24 Extinct 297/365 (Click photos to view full-size)
 - [Oct. 24, 2021, 2:19 p.m.](https://roytang.net/2021/10/1452157717808771074/): RT 🔒 (with permission): &quot;Ok so, I just read through all 173 pages of the unredacted Google antitrust filing and I have to say that either Google is screwed or society is screwed, we&#x27;ll find out which. Unordered list of fun things I learned:&quot;
 - [Oct. 23, 2021, 10:32 p.m.](https://roytang.net/2021/10/1451919375879921672/): #sketchdaily #inktober Day 22 Open 295/365 Day 23 Leak 296/365 (Click photos to view full-size)
 - [Oct. 21, 2021, 10:30 p.m.](https://roytang.net/2021/10/1451194166688444420/): #sketchdaily #inktober day 21 Bucky the cat from Get Fuzzy (Click photos to view full-size) [23:41] 294/365
 - [Oct. 21, 2021, 4:44 p.m.](https://roytang.net/2021/10/1451107153914187780/): Just realized @EternalCardGame is also on #NintendoSwitch ! (Click photos to view full-size)
-- [Oct. 21, 2021, 11:38 a.m.](https://roytang.net/2021/10/1451030052166979584/): I do not know if a candidate in the Philippines can actually win trying to tell people to be kind to each other. But I&#x27;m happy to see someone try.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/0a/29/0a298098059b23bdf68652e85d04c715.jpg)
-- ![](https://roytang.net/media/cache/13/f6/13f68736d144467e8a37352760880182.jpg)
-- ![](https://roytang.net/media/cache/36/10/3610d8e175802e9839a2f4f0ce4bfac8.jpg)
+- ![](https://roytang.net/media/cache/b0/6d/b06de5d1dfc1fd7eca2ace9b996051c5.jpg)
+- ![](https://roytang.net/media/cache/d2/71/d2712f503d5b23fc63ddbe38af523fc4.jpg)
+- ![](https://roytang.net/media/cache/28/52/2852824611a132138bff4f7b04d6c9ba.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
