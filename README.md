@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 24, 2021, 9:39 p.m.](https://roytang.net/2021/10/1452268456565428233/): Sunday Night Drafting: Midnight Hunt limited episode 4! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgmidnight
 - [Oct. 24, 2021, 7:21 p.m.](https://roytang.net/2021/10/1452233769251966976/): #inktober #sketchdaily #inktober2021 Day 24 Extinct 297/365 (Click photos to view full-size)
 - [Oct. 24, 2021, 2:19 p.m.](https://roytang.net/2021/10/1452157717808771074/): RT 🔒 (with permission): &quot;Ok so, I just read through all 173 pages of the unredacted Google antitrust filing and I have to say that either Google is screwed or society is screwed, we&#x27;ll find out which. Unordered list of fun things I learned:&quot;
 - [Oct. 23, 2021, 10:32 p.m.](https://roytang.net/2021/10/1451919375879921672/): #sketchdaily #inktober Day 22 Open 295/365 Day 23 Leak 296/365 (Click photos to view full-size)
 - [Oct. 21, 2021, 10:30 p.m.](https://roytang.net/2021/10/1451194166688444420/): #sketchdaily #inktober day 21 Bucky the cat from Get Fuzzy (Click photos to view full-size) [23:41] 294/365
-- [Oct. 21, 2021, 4:44 p.m.](https://roytang.net/2021/10/1451107153914187780/): Just realized @EternalCardGame is also on #NintendoSwitch ! (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
