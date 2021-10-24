@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Willingness to look stupid](https://roytang.net/2021/10/willingness-to-look-stupid/)
 - [How to get useful answers to your questions](https://roytang.net/2021/10/how-to-get-useful-answers-to-your-questions/)
 - [Software developers have stopped caring about reliability](https://roytang.net/2021/10/software-developers-have-stopped-caring-about-reliability/)
 - [You Are What You Consume](https://roytang.net/2021/10/you-are-what-you-consume/)
 - [What&#x27;s next for the web? Building new weblike things](https://roytang.net/2021/10/35a3ec04101035aadc01d9ec0b06a9f7/)
-- [Rewilding Your Attention](https://roytang.net/2021/10/2cf0e36eb98f383bfadcf0dc11ad2baa/)
 
 [View all links](https://roytang.net/links)
 
