@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 25, 2021, 9:46 p.m.](https://roytang.net/2021/10/1452632610543325185/): #sketchdaily #inktober Day 25 Splat 298/265 (Click photos to view full-size)
 - [Oct. 25, 2021, 6:54 p.m.](https://roytang.net/2021/10/1452589435120390148/): Midnight Hunt limited episode 5: Draft challenge! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgmidnight
 - [Oct. 24, 2021, 9:39 p.m.](https://roytang.net/2021/10/1452268456565428233/): Sunday Night Drafting: Midnight Hunt limited episode 4! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgmidnight [2021-10-25 05:46] Managed two drafts, both of which did relatively well. YT: https://www.youtube.com/watch?v=NIktcnn3jPM (Click photos to view full-size)
 - [Oct. 24, 2021, 7:21 p.m.](https://roytang.net/2021/10/1452233769251966976/): #inktober #sketchdaily #inktober2021 Day 24 Extinct 297/365 (Click photos to view full-size)
 - [Oct. 24, 2021, 2:19 p.m.](https://roytang.net/2021/10/1452157717808771074/): RT 🔒 (with permission): &quot;Ok so, I just read through all 173 pages of the unredacted Google antitrust filing and I have to say that either Google is screwed or society is screwed, we&#x27;ll find out which. Unordered list of fun things I learned:&quot;
-- [Oct. 23, 2021, 10:32 p.m.](https://roytang.net/2021/10/1451919375879921672/): #sketchdaily #inktober Day 22 Open 295/365 Day 23 Leak 296/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/b0/6d/b06de5d1dfc1fd7eca2ace9b996051c5.jpg)
 - ![](https://roytang.net/media/cache/d2/71/d2712f503d5b23fc63ddbe38af523fc4.jpg)
 - ![](https://roytang.net/media/cache/28/52/2852824611a132138bff4f7b04d6c9ba.jpg)
+- ![](https://roytang.net/media/cache/91/de/91deea41f5c7f26270ed4afa5390d02d.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
