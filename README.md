@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Oct. 27, 2021, 1:04 a.m.](https://roytang.net/2021/10/07d4cb108213d3ff7f84637f8a30a4e9/): Just spent an hour trying to figure out why my Django webapp suddenly wasn&#x27;t working because apparently if you accidentally delete an __init__.py you&#x27;re gonna have a bad time.
+- [Oct. 27, 2021, 1:04 a.m.](https://roytang.net/2021/10/07d4cb108213d3ff7f84637f8a30a4e9/): Just spent an hour trying to figure out why my Django webapp suddenly wasn&#x27;t working because apparently if you accidentally delete an __init__.py you&#x27;re gonna have a bad time. [01:28] It took me a while because the issue only happened on the live server and not on local. Django only complained when it was run via WSGI and nothing was showing up in the logs.
 - [Oct. 26, 2021, 7:45 p.m.](https://roytang.net/2021/10/1452964666594840584/): #sketchdaily #inktober Day 26 Connect 299/365 (Click photos to view full-size)
 - [Oct. 25, 2021, 9:46 p.m.](https://roytang.net/2021/10/1452632610543325185/): #sketchdaily #inktober Day 25 Splat 298/265 (Click photos to view full-size)
 - [Oct. 25, 2021, 6:54 p.m.](https://roytang.net/2021/10/1452589435120390148/): Midnight Hunt limited episode 5: Draft challenge! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgmidnight [2021-10-26 06:27] Unfortunately, we didn&#x27;t do too well in the draft challenge, and this is probably the last midnight hunt episode too. YT: https://www.youtube.com/watch?v=koGMsQYsikY (Click photos to view full-size)
