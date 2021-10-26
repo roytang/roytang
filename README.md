@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Covid Experience](https://roytang.net/2021/10/covid-experience/)
 - [Weeknotes 2021-10-24](https://roytang.net/2021/10/weeknotes-2021-10-24/)
 - [Weeknotes 2021-10-17 There And Back Again](https://roytang.net/2021/10/weeknotes-10-17/)
 - [Weeknotes 2021-10-10 The Road to Recovery](https://roytang.net/2021/10/weeknotes-10-10/)
 - [The Three-Body Problem by Liu Cixin](https://roytang.net/2021/10/three-body-problem/)
-- [Thoughts on the Leni Campaign](https://roytang.net/2021/10/leni-campaign/)
 
 [View all posts](https://roytang.net/blog)
 
