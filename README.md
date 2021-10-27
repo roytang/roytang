@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Z-Library single sign on](https://roytang.net/2021/10/z-library-single-sign-on/)
 - [What we can learn from “_why”, the long lost open source developer](https://roytang.net/2021/10/f477a6a18fe5fb487eacd5418311c51e/)
 - [136 facts every web dev should know before they burn out and turn to landscape painting or nude modelling](https://roytang.net/2021/10/136-facts-every-web-dev-should-know-before-they-burn-out-and-turn-to-landscape-painting-or-nude-mode/)
 - [Willingness to look stupid](https://roytang.net/2021/10/willingness-to-look-stupid/)
 - [How to get useful answers to your questions](https://roytang.net/2021/10/how-to-get-useful-answers-to-your-questions/)
-- [Software developers have stopped caring about reliability](https://roytang.net/2021/10/software-developers-have-stopped-caring-about-reliability/)
 
 [View all links](https://roytang.net/links)
 
