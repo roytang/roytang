@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 29, 2021, 8:02 p.m.](https://roytang.net/2021/10/1454056097656958976/): #inktober #inktober2021 #sketchdaily Day 29 Patch 302/365 (Click photos to view full-size)
 - [Oct. 28, 2021, 8:42 p.m.](https://roytang.net/2021/10/1453703652414164997/): Paul&#x27;s response at the end of DUNE always gets me emotional (Click photos to view full-size)
 - [Oct. 28, 2021, 8:25 p.m.](https://roytang.net/2021/10/1453699323263209473/): #inktober #inktober2021 #sketchdaily Day 28 Crispy 301/365 (Click photos to view full-size)
 - [Oct. 28, 2021, 6:57 p.m.](https://roytang.net/2021/10/52e3b11e292131936b3e30a2c7fa15f3/): Look, am I a webdev with over 18 years experience? Yes. Did I just spend 30 mins wondering why my file upload wasn&#x27;t working because I forget to set the form as multipart? Also yes.
 - [Oct. 27, 2021, 5:33 p.m.](https://roytang.net/2021/10/1453293791276830733/): #Inktober #inktober2021 #sketchdaily #Transformers Day 27 Spark 300/365 (Click photos to view full-size)
-- [Oct. 27, 2021, 3:01 p.m.](https://roytang.net/2021/10/1453255563224178696/): 🦉 Wisdom Project updates. https://gist.github.com/merlinmann/09af1df28d76ba028b0999f66945fd61#yet-yet-more-new-wisdom (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/4d/59/4d59d4a4036bbc2d42f37e80954d0883.jpg)
 - ![](https://roytang.net/media/cache/8a/c7/8ac7ad168d81553b57cddd8230f378f1.jpg)
 - ![](https://roytang.net/media/cache/89/c2/89c2178d0799dce457956002d120a18f.jpg)
+- ![](https://roytang.net/media/cache/63/82/6382811a4b4d6faf83f3b592b264c6cc.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
