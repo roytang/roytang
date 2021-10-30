@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 30, 2021, 5:15 p.m.](https://roytang.net/2021/10/1454376445367644160/): #inktober #inktober2021 #sketchdaily Day 30 Slither 303/365 (Click photos to view full-size)
 - [Oct. 30, 2021, 8:11 a.m.](https://roytang.net/2021/10/1454239483046490115/): @SeresaTagAraw Ayaw mo nun, festive ang umaga. Good morning!
 - [Oct. 29, 2021, 8:02 p.m.](https://roytang.net/2021/10/1454056097656958976/): #inktober #inktober2021 #sketchdaily Day 29 Patch 302/365 (Click photos to view full-size)
 - [Oct. 28, 2021, 8:42 p.m.](https://roytang.net/2021/10/1453703652414164997/): Paul&#x27;s response at the end of DUNE always gets me emotional (Click photos to view full-size)
 - [Oct. 28, 2021, 8:25 p.m.](https://roytang.net/2021/10/1453699323263209473/): #inktober #inktober2021 #sketchdaily Day 28 Crispy 301/365 (Click photos to view full-size)
-- [Oct. 28, 2021, 6:57 p.m.](https://roytang.net/2021/10/52e3b11e292131936b3e30a2c7fa15f3/): Look, am I a webdev with over 18 years experience? Yes. Did I just spend 30 mins wondering why my file upload wasn&#x27;t working because I forget to set the form as multipart? Also yes.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/8a/c7/8ac7ad168d81553b57cddd8230f378f1.jpg)
 - ![](https://roytang.net/media/cache/89/c2/89c2178d0799dce457956002d120a18f.jpg)
 - ![](https://roytang.net/media/cache/63/82/6382811a4b4d6faf83f3b592b264c6cc.jpg)
+- ![](https://roytang.net/media/cache/9c/ca/9cca832980d008feb5d6e58687b6a8d4.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
