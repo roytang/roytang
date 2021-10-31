@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 31, 2021, 11:42 a.m.](https://roytang.net/2021/10/1454654931336527883/): Managed to hit Mythic on #magicarena on the last day, despite not playing for half of the month. Climbing from Diamond 1 is always a terrible grind =/ (Click photos to view full-size)
 - [Oct. 30, 2021, 5:15 p.m.](https://roytang.net/2021/10/1454376445367644160/): #inktober #inktober2021 #sketchdaily Day 30 Slither 303/365 (Click photos to view full-size)
 - [Oct. 30, 2021, 8:11 a.m.](https://roytang.net/2021/10/1454239483046490115/): @SeresaTagAraw Ayaw mo nun, festive ang umaga. Good morning!
 - [Oct. 29, 2021, 8:02 p.m.](https://roytang.net/2021/10/1454056097656958976/): #inktober #inktober2021 #sketchdaily Day 29 Patch 302/365 (Click photos to view full-size)
 - [Oct. 28, 2021, 8:42 p.m.](https://roytang.net/2021/10/1453703652414164997/): Paul&#x27;s response at the end of DUNE always gets me emotional (Click photos to view full-size)
-- [Oct. 28, 2021, 8:25 p.m.](https://roytang.net/2021/10/1453699323263209473/): #inktober #inktober2021 #sketchdaily Day 28 Crispy 301/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
