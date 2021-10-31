@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 31, 2021, 9:12 p.m.](https://roytang.net/2021/10/1454798534973149189/): #inktober #inktober2021 #sketchdaily Day 31 (final day!) Risk 304/365 (Click photos to view full-size)
 - [Oct. 31, 2021, 1:55 p.m.](https://roytang.net/2021/10/1454688355153690624/): My peoples, the time has come for a MEGATHREAD. In 40 tweets I will explain another 40 concepts you should know. Strap in. Here we go:
 - [Oct. 31, 2021, 11:42 a.m.](https://roytang.net/2021/10/1454654931336527883/): Managed to hit Mythic on #magicarena on the last day, despite not playing for half of the month. Climbing from Diamond 1 is always a terrible grind =/ (Click photos to view full-size)
 - [Oct. 30, 2021, 5:15 p.m.](https://roytang.net/2021/10/1454376445367644160/): #inktober #inktober2021 #sketchdaily Day 30 Slither 303/365 (Click photos to view full-size)
 - [Oct. 30, 2021, 8:11 a.m.](https://roytang.net/2021/10/1454239483046490115/): @SeresaTagAraw Ayaw mo nun, festive ang umaga. Good morning!
-- [Oct. 29, 2021, 8:02 p.m.](https://roytang.net/2021/10/1454056097656958976/): #inktober #inktober2021 #sketchdaily Day 29 Patch 302/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/89/c2/89c2178d0799dce457956002d120a18f.jpg)
 - ![](https://roytang.net/media/cache/63/82/6382811a4b4d6faf83f3b592b264c6cc.jpg)
 - ![](https://roytang.net/media/cache/9c/ca/9cca832980d008feb5d6e58687b6a8d4.jpg)
+- ![](https://roytang.net/media/cache/1c/38/1c3867ff8ef788e8a30e279891c9aaa9.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
