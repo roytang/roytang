@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Tago Fabic: Key Things I learned after moving into a Software Architect role](https://roytang.net/2021/10/5fd630eb6ea3f3ac35a11df669eaf908/)
 - [Merlin&#x27;s Wisdom Project (Draft)](https://roytang.net/2021/10/a19275311bdfc7f94531e8179dff86ab/)
 - [What we can learn from “_why”, the long lost open source developer](https://roytang.net/2021/10/f477a6a18fe5fb487eacd5418311c51e/)
 - [136 facts every web dev should know before they burn out and turn to landscape painting or nude modelling](https://roytang.net/2021/10/136-facts-every-web-dev-should-know-before-they-burn-out-and-turn-to-landscape-painting-or-nude-mode/)
 - [Willingness to look stupid](https://roytang.net/2021/10/willingness-to-look-stupid/)
-- [How to get useful answers to your questions](https://roytang.net/2021/10/how-to-get-useful-answers-to-your-questions/)
 
 [View all links](https://roytang.net/links)
 
