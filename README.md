@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 1, 2021, 9:24 p.m.](https://roytang.net/2021/11/1455163715263754243/): @jaymelynilao Happy birthday!
 - [Nov. 1, 2021, 8:03 p.m.](https://roytang.net/2021/11/1455143493978914818/): #sketchdaily Giant Monster 305/365 I can go back to digital now that Inktober is done lol (Click photos to view full-size)
 - [Oct. 31, 2021, 9:12 p.m.](https://roytang.net/2021/10/1454798534973149189/): #inktober #inktober2021 #sketchdaily Day 31 (final day!) Risk 304/365 (Click photos to view full-size)
 - [Oct. 31, 2021, 1:55 p.m.](https://roytang.net/2021/10/1454688355153690624/): My peoples, the time has come for a MEGATHREAD. In 40 tweets I will explain another 40 concepts you should know. Strap in. Here we go:
 - [Oct. 31, 2021, 11:42 a.m.](https://roytang.net/2021/10/1454654931336527883/): Managed to hit Mythic on #magicarena on the last day, despite not playing for half of the month. Climbing from Diamond 1 is always a terrible grind =/ (Click photos to view full-size)
-- [Oct. 30, 2021, 5:15 p.m.](https://roytang.net/2021/10/1454376445367644160/): #inktober #inktober2021 #sketchdaily Day 30 Slither 303/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
