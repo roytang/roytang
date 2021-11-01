@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 1, 2021, 11:20 p.m.](https://roytang.net/2021/11/1b266589f886bed3ba7c7af21fe3a070/): Watched Dune (2021). Only read the book in 2014, but I can hardly remember the plot except for the broad strokes. Movie is pretty good though; a reasonable adaptation of a supposedly &quot;unfilmable&quot; book. Arrakis is pretty close to how I imagined it in my head. The sandworms look great. Oscar Isaac, Rebecca Ferguson, and Timothee Chalamet gave pretty good performances. Ending might be weird if you didn&#x27;t know it was a two-parter going in. Looking forward to the next movie.
 - [Nov. 1, 2021, 9:24 p.m.](https://roytang.net/2021/11/1455163715263754243/): @jaymelynilao Happy birthday!
 - [Nov. 1, 2021, 8:03 p.m.](https://roytang.net/2021/11/1455143493978914818/): #sketchdaily Giant Monster 305/365 I can go back to digital now that Inktober is done lol (Click photos to view full-size)
 - [Oct. 31, 2021, 9:12 p.m.](https://roytang.net/2021/10/1454798534973149189/): #inktober #inktober2021 #sketchdaily Day 31 (final day!) Risk 304/365 (Click photos to view full-size)
 - [Oct. 31, 2021, 1:55 p.m.](https://roytang.net/2021/10/1454688355153690624/): My peoples, the time has come for a MEGATHREAD. In 40 tweets I will explain another 40 concepts you should know. Strap in. Here we go:
-- [Oct. 31, 2021, 11:42 a.m.](https://roytang.net/2021/10/1454654931336527883/): Managed to hit Mythic on #magicarena on the last day, despite not playing for half of the month. Climbing from Diamond 1 is always a terrible grind =/ (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
