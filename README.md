@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How do you tell if a problem is caused by DNS?](https://roytang.net/2021/11/how-do-you-tell-if-a-problem-is-caused-by-dns/)
 - [What if Xi Jinping just isn&#x27;t that competent?](https://roytang.net/2021/11/what-if-xi-jinping-just-isnt-that-competent/)
 - [I really like discovering and reading blogs](https://roytang.net/2021/11/i-really-like-discovering-and-reading-blogs/)
 - [#70: When I was an influencer](https://roytang.net/2021/11/70-when-i-was-an-influencer/)
 - [Tago Fabic: Key Things I learned after moving into a Software Architect role](https://roytang.net/2021/10/5fd630eb6ea3f3ac35a11df669eaf908/)
-- [Merlin&#x27;s Wisdom Project (Draft)](https://roytang.net/2021/10/a19275311bdfc7f94531e8179dff86ab/)
 
 [View all links](https://roytang.net/links)
 
