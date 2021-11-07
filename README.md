@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-11-07](https://roytang.net/2021/11/weeknotes-11-07/)
 - [Weeknotes 2021-10-31](https://roytang.net/2021/10/weeknotes-2021-10-31/)
 - [The Little Things Add Up](https://roytang.net/2021/10/little-things-add-up/)
 - [The Covid Experience](https://roytang.net/2021/10/covid-experience/)
 - [Weeknotes 2021-10-24](https://roytang.net/2021/10/weeknotes-2021-10-24/)
-- [Weeknotes 2021-10-17 There And Back Again](https://roytang.net/2021/10/weeknotes-10-17/)
 
 [View all posts](https://roytang.net/blog)
 
