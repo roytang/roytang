@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Posting via the Mastodon API using Python](https://roytang.net/2021/11/mastodon-api-python/)
 - [Weeknotes 2021-11-07](https://roytang.net/2021/11/weeknotes-11-07/)
 - [Weeknotes 2021-10-31](https://roytang.net/2021/10/weeknotes-2021-10-31/)
 - [The Little Things Add Up](https://roytang.net/2021/10/little-things-add-up/)
 - [The Covid Experience](https://roytang.net/2021/10/covid-experience/)
-- [Weeknotes 2021-10-24](https://roytang.net/2021/10/weeknotes-2021-10-24/)
 
 [View all posts](https://roytang.net/blog)
 
