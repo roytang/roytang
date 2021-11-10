@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 10, 2021, 8:25 p.m.](https://roytang.net/2021/11/4737c6da7ee142af8b00576b407172a2/): Watched Blade Runner 2049 (2017), mostly because I had recently watched Dune (2021) and wanted to see more Denis Villeneuve. Was not disappointed. Fantastic visual design and cinematography. Lots of familiar actors showed up! Harrison Ford only appeared halfway through. I liked the reveal of how what the movie was telegraphing all along was a fake.
 - [Nov. 8, 2021, 5:22 p.m.](https://roytang.net/2021/11/0c006ef7ac2c5675e30b3217041e0787/): #sketchdaily catchup doodles: Nov 5: Claws 309/365 Nov 6: Hermit Crab 310/365 Nov 7: Mountain Goat 311/365
 - [Nov. 4, 2021, 11:45 p.m.](https://roytang.net/2021/11/1456286540640833536/): #sketchdaily Timber Wolf 308/365 (Click photos to view full-size)
 - [Nov. 3, 2021, 10:41 p.m.](https://roytang.net/2021/11/1455907869543387142/): #sketchdaily American Gothic 307/365 (Click photos to view full-size)
 - [Nov. 2, 2021, 10:12 p.m.](https://roytang.net/2021/11/1455538392767270922/): #sketchdaily Gluttony 306/365 (Click photos to view full-size)
-- [Nov. 2, 2021, 12:35 a.m.](https://roytang.net/2021/11/1455211810982809603/): This is how I imagine Marcos Jr supporters when they insist (“basta”) on supporting him despite logic, facts, credible sources etc Your browser does not support the video tag.
 
 [View all notes](https://roytang.net/notes)
 
