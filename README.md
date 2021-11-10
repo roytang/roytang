@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 10, 2021, 11:02 p.m.](https://roytang.net/2021/11/fe86639de24301382b9d592909c43315/): #sketchdaily Nov 08 Dog in blanket 312/365 Still a couple of days behind.
 - [Nov. 10, 2021, 8:25 p.m.](https://roytang.net/2021/11/4737c6da7ee142af8b00576b407172a2/): Watched Blade Runner 2049 (2017), mostly because I had recently watched Dune (2021) and wanted to see more Denis Villeneuve. Was not disappointed. Fantastic visual design and cinematography. Lots of familiar actors showed up! Harrison Ford only appeared halfway through. I liked the reveal of how what the movie was telegraphing all along was a fake.
 - [Nov. 8, 2021, 5:22 p.m.](https://roytang.net/2021/11/0c006ef7ac2c5675e30b3217041e0787/): #sketchdaily catchup doodles: Nov 5: Claws 309/365 Nov 6: Hermit Crab 310/365 Nov 7: Mountain Goat 311/365
 - [Nov. 4, 2021, 11:45 p.m.](https://roytang.net/2021/11/1456286540640833536/): #sketchdaily Timber Wolf 308/365 (Click photos to view full-size)
 - [Nov. 3, 2021, 10:41 p.m.](https://roytang.net/2021/11/1455907869543387142/): #sketchdaily American Gothic 307/365 (Click photos to view full-size)
-- [Nov. 2, 2021, 10:12 p.m.](https://roytang.net/2021/11/1455538392767270922/): #sketchdaily Gluttony 306/365 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/27/21/27211afbeac5fd8d3b52dbaff8704fe6.jpg)
 - ![](https://roytang.net/media/cache/b0/46/b04628e51127bb8abded06db83883948.jpg)
 - ![](https://roytang.net/media/cache/8f/4f/8f4f9e31d09624603608ab21a94753cc.jpg)
+- ![](https://roytang.net/media/cache/6b/a4/6ba441ae06ee541a693797250a4f1a39.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
