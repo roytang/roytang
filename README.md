@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [That page doesn’t exist](https://roytang.net/2021/11/that-page-doesnt-exist/)
 - [An oral history of Bank Python](https://roytang.net/2021/11/an-oral-history-of-bank-python/)
 - [How do you tell if a problem is caused by DNS?](https://roytang.net/2021/11/how-do-you-tell-if-a-problem-is-caused-by-dns/)
 - [What if Xi Jinping just isn&#x27;t that competent?](https://roytang.net/2021/11/what-if-xi-jinping-just-isnt-that-competent/)
 - [I really like discovering and reading blogs](https://roytang.net/2021/11/i-really-like-discovering-and-reading-blogs/)
-- [#70: When I was an influencer](https://roytang.net/2021/11/70-when-i-was-an-influencer/)
 
 [View all links](https://roytang.net/links)
 
