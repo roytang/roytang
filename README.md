@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 12, 2021, 10:54 p.m.](https://roytang.net/2021/11/1f7e21d6954f841659274ba57915e9ef/): As is usual, I did a Crimson Vow sealed on #MagicArena to get a feel for the limited format. Got some good rares, but sadly didn&#x27;t manage to get the 7th win (last opponent had Chandra and Manaform Hellkite lol) Will see if I can stream some drafts this weekend! #mtgcrimson
 - [Nov. 12, 2021, 5:32 p.m.](https://roytang.net/2021/11/dd0735aab38c1d9167231474ce6ea5bb/): It&#x27;s 2021 and printers are still terrible and unpredictable machines that randomly dont work or do weird things :/
 - [Nov. 12, 2021, 4:26 p.m.](https://roytang.net/2021/11/1459075159709519873/): Got my #mtgarenastats email for Midnight Hunt! I missed 3 weeks of play so I didn&#x27;t even complete the mastery, but 94 boosters opened is pretty good considering I had 120+ opened for KHM and STX #magicarena #mtgmidnight (Click photos to view full-size) [16:26] (and I didn&#x27;t get a stats email for AFR for some reason...) Also, this stats email didn&#x27;t give me the &quot;most drafted commons / uncommons&quot; stat, is it because I didn&#x27;t draft as much this time?
 - [Nov. 11, 2021, 9:30 p.m.](https://roytang.net/2021/11/c579b98a1c9ba0299d414c0e40754561/): #sketchdaily catchup doodles! Nov 09 Hunting Cryptids 313/365 Nov 10 Sushi Chef 314/365 Nov 11 Turtle Power 315/365 Temporarily back to my pen and tiny pad.
 - [Nov. 10, 2021, 11:02 p.m.](https://roytang.net/2021/11/fe86639de24301382b9d592909c43315/): #sketchdaily Nov 08 Dog in blanket 312/365 Still a couple of days behind.
-- [Nov. 10, 2021, 8:25 p.m.](https://roytang.net/2021/11/4737c6da7ee142af8b00576b407172a2/): Watched Blade Runner 2049 (2017), mostly because I had recently watched Dune (2021) and wanted to see more Denis Villeneuve. Was not disappointed. Fantastic visual design and cinematography. Lots of familiar actors showed up! Harrison Ford only appeared halfway through. I liked the reveal of how what the movie was telegraphing all along was a fake. [2021-11-11 09:31] I actually don&#x27;t remember when I watched the original (probably only within the past 10y or so; I never saw it during the time it came out) and don&#x27;t recall most of the plot, but I feel like this one was much
 
 [View all notes](https://roytang.net/notes)
 
