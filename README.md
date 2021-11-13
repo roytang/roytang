@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Nov. 13, 2021, 1:41 p.m.](https://roytang.net/2021/11/1459395928050257927/): Crimson Vow drafting! https://www.twitch.tv/twitchyroy #magicarena #twitch #mtg #mtgcrimson
+- [Nov. 13, 2021, 1:41 p.m.](https://roytang.net/2021/11/1459395928050257927/): Crimson Vow drafting! https://www.twitch.tv/twitchyroy #magicarena #twitch #mtg #mtgcrimson [21:38] Draft seemed decent, but we didn&#x27;t get there. Better luck next time? YT: https://www.youtube.com/watch?v=yWCAkx9neSA (Click photos to view full-size)
 - [Nov. 12, 2021, 10:54 p.m.](https://roytang.net/2021/11/1f7e21d6954f841659274ba57915e9ef/): As is usual, I did a Crimson Vow sealed on #MagicArena to get a feel for the limited format. Got some good rares, but sadly didn&#x27;t manage to get the 7th win (last opponent had Chandra and Manaform Hellkite lol) Will see if I can stream some drafts this weekend! #mtgcrimson
 - [Nov. 12, 2021, 5:32 p.m.](https://roytang.net/2021/11/dd0735aab38c1d9167231474ce6ea5bb/): It&#x27;s 2021 and printers are still terrible and unpredictable machines that randomly dont work or do weird things :/
 - [Nov. 12, 2021, 4:26 p.m.](https://roytang.net/2021/11/1459075159709519873/): Got my #mtgarenastats email for Midnight Hunt! I missed 3 weeks of play so I didn&#x27;t even complete the mastery, but 94 boosters opened is pretty good considering I had 120+ opened for KHM and STX #magicarena #mtgmidnight (Click photos to view full-size) [16:26] (and I didn&#x27;t get a stats email for AFR for some reason...) Also, this stats email didn&#x27;t give me the &quot;most drafted commons / uncommons&quot; stat, is it because I didn&#x27;t draft as much this time?
