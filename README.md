@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Let a website be a worry stone.](https://roytang.net/2021/11/let-a-website-be-a-worry-stone/)
 - [Why Tokyo Works](https://roytang.net/2021/11/why-tokyo-works/)
 - [Robin Sloan: Notes on Web3](https://roytang.net/2021/11/10809c364f1dd42fcd491152765e682b/)
 - [An oral history of Bank Python](https://roytang.net/2021/11/an-oral-history-of-bank-python/)
 - [How do you tell if a problem is caused by DNS?](https://roytang.net/2021/11/how-do-you-tell-if-a-problem-is-caused-by-dns/)
-- [What if Xi Jinping just isn&#x27;t that competent?](https://roytang.net/2021/11/what-if-xi-jinping-just-isnt-that-competent/)
 
 [View all links](https://roytang.net/links)
 
