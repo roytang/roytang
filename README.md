@@ -27,7 +27,7 @@ Latest shared links:
 Latest notes:
 
 - [Nov. 15, 2021, 10:32 p.m.](https://roytang.net/2021/11/1460254315365371909/): Finally watching Shang-Chi, here as a bus operator to rate the SFT transit factors of The Bus Scene:
-- [Nov. 15, 2021, 6:31 p.m.](https://roytang.net/2021/11/1460193829928251392/): Crimson Vow drafting! ep 2 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson
+- [Nov. 15, 2021, 6:31 p.m.](https://roytang.net/2021/11/1460193829928251392/): Crimson Vow drafting! ep 2 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [23:43] Got my first 7-x Crimson Vow draft on the second try! Pretty sweet! YT: https://www.youtube.com/watch?v=lDSphz08-08 (Click photos to view full-size)
 - [Nov. 13, 2021, 11:44 p.m.](https://roytang.net/2021/11/ad2595c7a2c1045bbeb18b82153c9140/): #sketchdaily Nov 12 Flying Guy 316/365 Nov 13 Hamm 317/365
 - [Nov. 13, 2021, 1:41 p.m.](https://roytang.net/2021/11/1459395928050257927/): Crimson Vow drafting! https://www.twitch.tv/twitchyroy #magicarena #twitch #mtg #mtgcrimson [21:38] Draft seemed decent, but we didn&#x27;t get there. Better luck next time? YT: https://www.youtube.com/watch?v=yWCAkx9neSA (Click photos to view full-size)
 - [Nov. 12, 2021, 10:54 p.m.](https://roytang.net/2021/11/1f7e21d6954f841659274ba57915e9ef/): As is usual, I did a Crimson Vow sealed on #MagicArena to get a feel for the limited format. Got some good rares, but sadly didn&#x27;t manage to get the 7th win (last opponent had Chandra and Manaform Hellkite lol) Will see if I can stream some drafts this weekend! #mtgcrimson
