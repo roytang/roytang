@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 16, 2021, 5:45 a.m.](https://roytang.net/2021/11/1460363252236386305/): So, not to pick on John, but this take is actually wrong and OP is right. Because something catastrophic did happen to Gen X and the Xennial&#x27;s music: the Telecommunication Act of 1996. It&#x27;s story time, kids... 1/ https://twitter.com/adr/status/1459998732506775554
 - [Nov. 16, 2021, 1:06 a.m.](https://roytang.net/2021/11/0e58384d44cdcdeb9242e84bf1bfc460/): Sat through Red Notice (2021) a couple of times while other people were watching. Can&#x27;t say I saw all of it, but certainly the entire second half at least. It had some fun moments, but the &quot;twists&quot; were predictable and I found the ending disappointing.
 - [Nov. 15, 2021, 10:32 p.m.](https://roytang.net/2021/11/1460254315365371909/): Finally watching Shang-Chi, here as a bus operator to rate the SFT transit factors of The Bus Scene:
 - [Nov. 15, 2021, 6:31 p.m.](https://roytang.net/2021/11/1460193829928251392/): Crimson Vow drafting! ep 2 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [23:43] Got my first 7-x Crimson Vow draft on the second try! Pretty sweet! YT: https://www.youtube.com/watch?v=lDSphz08-08 (Click photos to view full-size)
 - [Nov. 13, 2021, 11:44 p.m.](https://roytang.net/2021/11/ad2595c7a2c1045bbeb18b82153c9140/): #sketchdaily Nov 12 Flying Guy 316/365 Nov 13 Hamm 317/365
-- [Nov. 13, 2021, 1:41 p.m.](https://roytang.net/2021/11/1459395928050257927/): Crimson Vow drafting! https://www.twitch.tv/twitchyroy #magicarena #twitch #mtg #mtgcrimson [21:38] Draft seemed decent, but we didn&#x27;t get there. Better luck next time? YT: https://www.youtube.com/watch?v=yWCAkx9neSA (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
