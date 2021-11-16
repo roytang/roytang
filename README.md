@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Cypress: My Custom Blogging System](https://roytang.net/2021/11/cypress/)
 - [Supergirl Finale and What Remains Of The Arrowverse](https://roytang.net/2021/11/supergirl-finale-arrowverse/)
 - [Weeknotes 2021-11-14](https://roytang.net/2021/11/weeknotes-11-14/)
 - [Shang-Chi and the Legend of the Ten Rings (2021)](https://roytang.net/2021/11/shang-chi/)
 - [Books: The Conjugal Dictatorship of Ferdinand Marcos and Imelda Marcos by Primitivo Mijares](https://roytang.net/2021/11/conjugal-dictatorship/)
-- [Posting via the Mastodon API using Python](https://roytang.net/2021/11/mastodon-api-python/)
 
 [View all posts](https://roytang.net/blog)
 
