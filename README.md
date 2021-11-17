@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 18, 2021, 7:44 a.m.](https://roytang.net/2021/11/1461118049990316036/): Some bonus non-streamed #MtgCrimson content: Did the midweek magic phantom quick draft on #magicarena, went UB exploit again. Thought my deck was pretty good but only went 3-2. Everyone was playing black! #mtg (Click photos to view full-size)
 - [Nov. 17, 2021, 6:56 p.m.](https://roytang.net/2021/11/1460924682560024576/): Crimson Vow drafting! ep 3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [22:10] Tried out a couple of new archetypes today, ended up with 2 mediocre runs. YT: https://www.youtube.com/watch?v=q8odfE4oBvk (Click photos to view full-size)
 - [Nov. 16, 2021, 9:05 p.m.](https://roytang.net/2021/11/da957d285167b4b00ea0bb7a9f2fb485/): #sketchdaily catchup: Nov 14: Mug Shot 318/365 Nov 15: Fly Swatter 319/365 Nov 16: Campfire 320/365 When I have to do a bunch of these in a row, it&#x27;s a lot easier to use the pen and pad, since opening Procreate tempts you to use all those features
 - [Nov. 16, 2021, 5:45 a.m.](https://roytang.net/2021/11/1460363252236386305/): So, not to pick on John, but this take is actually wrong and OP is right. Because something catastrophic did happen to Gen X and the Xennial&#x27;s music: the Telecommunication Act of 1996. It&#x27;s story time, kids... 1/ https://twitter.com/adr/status/1459998732506775554
 - [Nov. 16, 2021, 1:06 a.m.](https://roytang.net/2021/11/0e58384d44cdcdeb9242e84bf1bfc460/): Sat through Red Notice (2021) a couple of times while other people were watching. Can&#x27;t say I saw all of it, but certainly the entire second half at least. It had some fun moments, but the &quot;twists&quot; were predictable and I found the ending disappointing.
-- [Nov. 15, 2021, 10:32 p.m.](https://roytang.net/2021/11/1460254315365371909/): Finally watching Shang-Chi, here as a bus operator to rate the SFT transit factors of The Bus Scene:
 
 [View all notes](https://roytang.net/notes)
 
