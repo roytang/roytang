@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Why Curiosity Is Better Than Being Smart?](https://roytang.net/2021/11/why-curiosity-is-better-than-being-smart/)
 - [People Matter](https://roytang.net/2021/11/caaa3232e05b65b6eb2891e18bb5a127/)
 - [Let a website be a worry stone.](https://roytang.net/2021/11/let-a-website-be-a-worry-stone/)
 - [Why Tokyo Works](https://roytang.net/2021/11/why-tokyo-works/)
 - [Robin Sloan: Notes on Web3](https://roytang.net/2021/11/10809c364f1dd42fcd491152765e682b/)
-- [An oral history of Bank Python](https://roytang.net/2021/11/an-oral-history-of-bank-python/)
 
 [View all links](https://roytang.net/links)
 
