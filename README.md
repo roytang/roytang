@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 22, 2021, 10:06 p.m.](https://roytang.net/2021/11/9a2001438ebf04000c6ba08332e099d8/): #sketchdaily catchup doodles: Nov 20: House across the street 324/365 Nov 21: Sailboat 325/365 Nov 22: Fancy clothes 326/365
 - [Nov. 22, 2021, 6:38 p.m.](https://roytang.net/2021/11/1462732224466501635/): Crimson Vow drafting! ep 4 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [21:07] Got my second 7-x draft tonight! Got a bomb, but it only showed up once, to save me in my darkest hour. BR seems pretty good! YT: https://www.youtube.com/watch?v=-yXCDhv_Jj4 (Click photos to view full-size)
 - [Nov. 20, 2021, 1:36 a.m.](https://roytang.net/2021/11/3e145a5fedbc4f5ebd13ec25ec9a9521/): #sketchdaily catchup doodles Nov 17: Igloo 321/365 Nov 18: Guy with glasses (no reference) 322/365 Nov 19: Some other guy 323/365 Someday I&#x27;ll get a hang of drawing real people from reference photos. Until then, I won&#x27;t admit who they&#x27;re supposed to be!
 - [Nov. 18, 2021, 7:44 a.m.](https://roytang.net/2021/11/1461118049990316036/): Some bonus non-streamed #MtgCrimson content: Did the midweek magic phantom quick draft on #magicarena, went UB exploit again. Thought my deck was pretty good but only went 3-2. Everyone was playing black! #mtg (Click photos to view full-size)
 - [Nov. 17, 2021, 6:56 p.m.](https://roytang.net/2021/11/1460924682560024576/): Crimson Vow drafting! ep 3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [22:10] Tried out a couple of new archetypes today, ended up with 2 mediocre runs. YT: https://www.youtube.com/watch?v=q8odfE4oBvk (Click photos to view full-size)
-- [Nov. 16, 2021, 9:05 p.m.](https://roytang.net/2021/11/da957d285167b4b00ea0bb7a9f2fb485/): #sketchdaily catchup: Nov 14: Mug Shot 318/365 Nov 15: Fly Swatter 319/365 Nov 16: Campfire 320/365 When I have to do a bunch of these in a row, it&#x27;s a lot easier to use the pen and pad, since opening Procreate tempts you to use all those features
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/4a/7d/4a7dcd5c49b70a225333b7f5ca2ce349.jpg)
-- ![](https://roytang.net/media/cache/f7/c4/f7c4ab8cb00af81eed8dc6f4c05a0bd0.jpg)
 - ![](https://roytang.net/media/cache/29/0e/290e06235c5304a0dffd362f31996472.jpg)
+- ![](https://roytang.net/media/cache/f8/66/f86613e0daa1eed764a0b407f868831c.jpg)
+- ![](https://roytang.net/media/cache/14/3c/143ccb3ede8cd50cda225cb910a43597.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
