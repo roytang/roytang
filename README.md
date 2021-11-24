@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 24, 2021, 6:52 p.m.](https://roytang.net/2021/11/1463460631722573826/): Crimson Vow drafting! ep 5 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson
 - [Nov. 22, 2021, 10:06 p.m.](https://roytang.net/2021/11/9a2001438ebf04000c6ba08332e099d8/): #sketchdaily catchup doodles: Nov 20: House across the street 324/365 Nov 21: Sailboat 325/365 Nov 22: Fancy clothes 326/365
 - [Nov. 22, 2021, 6:38 p.m.](https://roytang.net/2021/11/1462732224466501635/): Crimson Vow drafting! ep 4 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [21:07] Got my second 7-x draft tonight! Got a bomb, but it only showed up once, to save me in my darkest hour. BR seems pretty good! YT: https://www.youtube.com/watch?v=-yXCDhv_Jj4 (Click photos to view full-size)
 - [Nov. 20, 2021, 1:36 a.m.](https://roytang.net/2021/11/3e145a5fedbc4f5ebd13ec25ec9a9521/): #sketchdaily catchup doodles Nov 17: Igloo 321/365 Nov 18: Guy with glasses (no reference) 322/365 Nov 19: Some other guy 323/365 Someday I&#x27;ll get a hang of drawing real people from reference photos. Until then, I won&#x27;t admit who they&#x27;re supposed to be!
 - [Nov. 18, 2021, 7:44 a.m.](https://roytang.net/2021/11/1461118049990316036/): Some bonus non-streamed #MtgCrimson content: Did the midweek magic phantom quick draft on #magicarena, went UB exploit again. Thought my deck was pretty good but only went 3-2. Everyone was playing black! #mtg (Click photos to view full-size)
-- [Nov. 17, 2021, 6:56 p.m.](https://roytang.net/2021/11/1460924682560024576/): Crimson Vow drafting! ep 3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [22:10] Tried out a couple of new archetypes today, ended up with 2 mediocre runs. YT: https://www.youtube.com/watch?v=q8odfE4oBvk (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
