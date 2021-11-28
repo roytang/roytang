@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I Miss It All](https://roytang.net/2021/11/dac5ccfeacc874f4925140ef30e0f52a/)
 - [The Ten Rules of Golden Age Detective Fiction](https://roytang.net/2021/11/the-ten-rules-of-golden-age-detective-fiction/)
 - [Yesterday Once More — Real Life](https://roytang.net/2021/11/yesterday-once-more-real-life/)
 - [The Handwavy Technobabble Nothingburger](https://roytang.net/2021/11/e2d5d6b70564dff1482e24827e1dcdc2/)
 - [Why Curiosity Is Better Than Being Smart?](https://roytang.net/2021/11/why-curiosity-is-better-than-being-smart/)
-- [People Matter](https://roytang.net/2021/11/caaa3232e05b65b6eb2891e18bb5a127/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [Nov. 28, 2021, 2:01 p.m.](https://roytang.net/2021/11/1464836835109048323/): Two presidential elections later and this isn&#x27;t even true anymore =/ Quoted roytang&#x27;s tweet: it&#x27;s sad that the best thing the leading presidential candidate can say is &quot;hindi ako magnanakaw&quot;
 - [Nov. 26, 2021, 10:50 p.m.](https://roytang.net/2021/11/gaac-photodump/): Warning: Lots of game spoilers!
 - [Nov. 26, 2021, 6:49 p.m.](https://roytang.net/2021/11/1464184415102373888/): Crimson Vow drafting! ep 6 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [21:34] Today&#x27;s draft went better than the last session&#x27;s drafts, even if we got DC&#x27;ed midway through the picks. Didn&#x27;t get to 7 though. YT: https://www.youtube.com/watch?v=SKdeZrfIY80 (Click photos to view full-size)
 - [Nov. 25, 2021, 8:55 p.m.](https://roytang.net/2021/11/fbcf6be3318da8ea9c6b9f2242fdace8/): #sketchdaily catchup doodles: Nov 23: Sisyphus 327/365 Nov 24: Inappropriate beachwear 328/365 Nov 25: Spaghetti 329/365
 - [Nov. 24, 2021, 6:52 p.m.](https://roytang.net/2021/11/1463460631722573826/): Crimson Vow drafting! ep 5 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [21:28] Sadly, another 2 mediocre drafts today. Well, one mediocre and one terrible. YT: https://www.youtube.com/watch?v=i25ZI4lUIOM (Click photos to view full-size)
-- [Nov. 22, 2021, 10:06 p.m.](https://roytang.net/2021/11/9a2001438ebf04000c6ba08332e099d8/): #sketchdaily catchup doodles: Nov 20: House across the street 324/365 Nov 21: Sailboat 325/365 Nov 22: Fancy clothes 326/365
 
 [View all notes](https://roytang.net/notes)
 
