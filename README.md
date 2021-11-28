@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How Facebook and Google fund global misinformation](https://roytang.net/2021/11/902aca5511ea19f374a771ed7065c574/)
 - [I Miss It All](https://roytang.net/2021/11/dac5ccfeacc874f4925140ef30e0f52a/)
 - [The Ten Rules of Golden Age Detective Fiction](https://roytang.net/2021/11/the-ten-rules-of-golden-age-detective-fiction/)
 - [Yesterday Once More — Real Life](https://roytang.net/2021/11/yesterday-once-more-real-life/)
 - [The Handwavy Technobabble Nothingburger](https://roytang.net/2021/11/e2d5d6b70564dff1482e24827e1dcdc2/)
-- [Why Curiosity Is Better Than Being Smart?](https://roytang.net/2021/11/why-curiosity-is-better-than-being-smart/)
 
 [View all links](https://roytang.net/links)
 
