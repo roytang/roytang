@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 30, 2021, 7:46 a.m.](https://roytang.net/2021/11/1465467309753913357/): Nothing like a @talk2GLOBE outage first thing in the morning
 - [Nov. 29, 2021, 6:39 p.m.](https://roytang.net/2021/11/1465269118542753794/): Crimson Vow drafting! ep 7 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgcrimson #twitch [23:06] Did three drafts today, all of them were pretty bad T_T I was unable to escape the curse of alternating good and bad days! YT: https://www.youtube.com/watch?v=MjagSX6OEpo (Click photos to view full-size)
 - [Nov. 29, 2021, 2:43 p.m.](https://roytang.net/2021/11/1465209746344927232/): Ma and I are watching Brad Pitt go to the moon in Ad Astra. Ma: &quot;Totoo bang may mga ganyan sa outer space?&quot; #mama
 - [Nov. 29, 2021, 1:41 a.m.](https://roytang.net/2021/11/1465012958161821706/): Feels like it should be super easy to minimize this sort of thing: don&#x27;t allow COD for deliveries above a certain amount. If you can afford P100k worth of delivery items you can get a credit card Quoted ABSCBNNews&#x27;s tweet: VP Leni Robredo on Monday’s P100,000 delivery scam addresed to OVP: “Baka akala ng scammers yung burden nasa amin. Hindi iniisip na kinakawawa nila yung riders saka yung mga shoppers nila na nabiktima. Umuulan pa naman kahapon and nabasa sila.” | via @adrianayalin
 - [Nov. 29, 2021, 12:24 a.m.](https://roytang.net/2021/11/9f39c7328bf6e0287ddf081133471731/): TIL that if you don&#x27;t put type=&#x27;button&#x27; on your button tag, it will automatically submit the form when clicked.
-- [Nov. 28, 2021, 2:01 p.m.](https://roytang.net/2021/11/1464836835109048323/): Two presidential elections later and this isn&#x27;t even true anymore =/ Quoted roytang&#x27;s tweet: it&#x27;s sad that the best thing the leading presidential candidate can say is &quot;hindi ako magnanakaw&quot;
 
 [View all notes](https://roytang.net/notes)
 
