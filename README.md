@@ -27,10 +27,10 @@ Latest shared links:
 Latest notes:
 
 - [Nov. 30, 2021, 9:01 p.m.](https://roytang.net/2021/11/1465667381175349249/): Our internet came back just in time for me to be able to grind #MagicArena constructed to Mythic on the very last day lol. Now I can focus on limited! (Click photos to view full-size)
-- [Nov. 30, 2021, 12:52 p.m.](https://roytang.net/2021/11/1465544323026407430/): @chancaluys @BattleEmperor @TeeW77594247 @talk2GLOBE @enjoyGLOBE @IskoMoreno @iampinglacson @lenirobredo From experience medyo useless ang customer service nila e. Paupdate na lang po if naayos na internet nyo or may nasabi silang useful [19:01] @chancaluys @BattleEmperor @TeeW77594247 @talk2GLOBE @enjoyGLOBE @IskoMoreno @iampinglacson @lenirobredo Hi all, as of 7pm meron na kami internet fyi. Check nyo na po sa inyo (Tandang Sora area)
 - [Nov. 30, 2021, 11:08 a.m.](https://roytang.net/2021/11/1465517962941452288/): @chancaluys @BattleEmperor @TeeW77594247 @talk2GLOBE @enjoyGLOBE @IskoMoreno @iampinglacson @lenirobredo Hello po. Wala pa rin bo kayo internet sa tandang sora and may nasabi bang useful sa inyo si @talk2GLOBE
 - [Nov. 30, 2021, 7:46 a.m.](https://roytang.net/2021/11/1465467309753913357/): Nothing like a @talk2GLOBE outage first thing in the morning [18:02] Aftet such a long time senpai finally noticed us! (Click photos to view full-size) [19:00] Looks like internet service was finally restored. Was down since around 3am, so rougly 16hrs downtime.
 - [Nov. 29, 2021, 6:39 p.m.](https://roytang.net/2021/11/1465269118542753794/): Crimson Vow drafting! ep 7 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgcrimson #twitch [23:06] Did three drafts today, all of them were pretty bad T_T I was unable to escape the curse of alternating good and bad days! YT: https://www.youtube.com/watch?v=MjagSX6OEpo (Click photos to view full-size)
+- [Nov. 29, 2021, 2:43 p.m.](https://roytang.net/2021/11/1465209746344927232/): Ma and I are watching Brad Pitt go to the moon in Ad Astra. Ma: &quot;Totoo bang may mga ganyan sa outer space?&quot; #mama
 
 [View all notes](https://roytang.net/notes)
 
