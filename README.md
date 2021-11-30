@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 1, 2021, 1:15 a.m.](https://roytang.net/2021/12/542943a3fe4f47fe8835e574496f3d63/): #sketchdaily catch up doodles (I am so behind D:) Nov 26: 2B 330/365 Nov 27: Cat with a hat 331/365 Nov 28: Grinch 332/365
 - [Nov. 30, 2021, 9:01 p.m.](https://roytang.net/2021/11/1465667381175349249/): Our internet came back just in time for me to be able to grind #MagicArena constructed to Mythic on the very last day lol. Now I can focus on limited! (Click photos to view full-size)
 - [Nov. 30, 2021, 11:08 a.m.](https://roytang.net/2021/11/1465517962941452288/): @chancaluys @BattleEmperor @TeeW77594247 @talk2GLOBE @enjoyGLOBE @IskoMoreno @iampinglacson @lenirobredo Hello po. Wala pa rin bo kayo internet sa tandang sora and may nasabi bang useful sa inyo si @talk2GLOBE
 - [Nov. 30, 2021, 7:46 a.m.](https://roytang.net/2021/11/1465467309753913357/): Nothing like a @talk2GLOBE outage first thing in the morning [18:02] Aftet such a long time senpai finally noticed us! (Click photos to view full-size) [19:00] Looks like internet service was finally restored. Was down since around 3am, so rougly 16hrs downtime.
 - [Nov. 29, 2021, 6:39 p.m.](https://roytang.net/2021/11/1465269118542753794/): Crimson Vow drafting! ep 7 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgcrimson #twitch [23:06] Did three drafts today, all of them were pretty bad T_T I was unable to escape the curse of alternating good and bad days! YT: https://www.youtube.com/watch?v=MjagSX6OEpo (Click photos to view full-size)
-- [Nov. 29, 2021, 2:43 p.m.](https://roytang.net/2021/11/1465209746344927232/): Ma and I are watching Brad Pitt go to the moon in Ad Astra. Ma: &quot;Totoo bang may mga ganyan sa outer space?&quot; #mama
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/37/a9/37a9e47e5c75d3e875603e6c4848f8f5.jpg)
-- ![](https://roytang.net/media/cache/31/f6/31f61892547fc596546c54f7087765d9.jpg)
-- ![](https://roytang.net/media/cache/68/b6/68b60af032c33165ff9f090aae9f46fe.jpg)
+- ![](https://roytang.net/media/cache/4a/39/4a39ca038d0b8d304349b0cf4823e054.jpg)
+- ![](https://roytang.net/media/cache/e8/9e/e89ecf305ccc7e5499bbee5d4cfb4b3b.jpg)
+- ![](https://roytang.net/media/cache/fe/5e/fe5ef8386e93c66b54bc904a399be475.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
