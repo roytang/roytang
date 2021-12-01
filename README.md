@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Time millionaires: meet the people pursuing the pleasure of leisure](https://roytang.net/2021/12/time-millionaires-meet-the-people-pursuing-the-pleasure-of-leisure/)
 - [My philosophy for productive instant messaging](https://roytang.net/2021/11/d6e28b2791cb472886983200beaae65c/)
 - [How Facebook and Google fund global misinformation](https://roytang.net/2021/11/902aca5511ea19f374a771ed7065c574/)
 - [I Miss It All](https://roytang.net/2021/11/dac5ccfeacc874f4925140ef30e0f52a/)
 - [The Ten Rules of Golden Age Detective Fiction](https://roytang.net/2021/11/the-ten-rules-of-golden-age-detective-fiction/)
-- [Yesterday Once More — Real Life](https://roytang.net/2021/11/yesterday-once-more-real-life/)
 
 [View all links](https://roytang.net/links)
 
