@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 2, 2021, 1:50 a.m.](https://roytang.net/2021/12/fb592c3df5beb43afd534ed11e76280c/): So a friend got his booster shot around lunch time and said there weren&#x27;t a lot of people and it only took 20 mins. So I checked and saw I could still book a slot for 3PM at SM North and I was like why not, if it&#x27;s only 20 minutes? FAM I WAS THERE FOR 3.5 HOURS THERE WERE SO MANY PEOPLE. I forgot that today was the last day of the National Vaccination drive or whatever it&#x27;s called. Rewarded myself afterwards with some Pepper Lunch, first time back at a mall since March 2020!
 - [Dec. 2, 2021, 12:39 a.m.](https://roytang.net/2021/12/1466084601403613190/): Trying to view my spotify wrapped crashes the app. Sounds about right
 - [Dec. 1, 2021, 8:20 p.m.](https://roytang.net/2021/12/1466019368119291910/): Crimson Vow drafting! ep 8 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [22:27] Only got to play one draft today. Unfortunately the pattern of alternating good and bad days did not hold up and this draft was a bit meh. Probably my fault because of bad keeps though. Deck seemed pretty solid. YT: https://www.youtube.com/watch?v=Z1jT2qXZOCo (Click photos to view full-size)
 - [Dec. 1, 2021, 1:15 a.m.](https://roytang.net/2021/12/542943a3fe4f47fe8835e574496f3d63/): #sketchdaily catch up doodles (I am so behind D:) Nov 26: 2B 330/365 Nov 27: Cat with a hat 331/365 Nov 28: Grinch 332/365
 - [Nov. 30, 2021, 9:01 p.m.](https://roytang.net/2021/11/1465667381175349249/): Our internet came back just in time for me to be able to grind #MagicArena constructed to Mythic on the very last day lol. Now I can focus on limited! (Click photos to view full-size)
-- [Nov. 30, 2021, 11:08 a.m.](https://roytang.net/2021/11/1465517962941452288/): @chancaluys @BattleEmperor @TeeW77594247 @talk2GLOBE @enjoyGLOBE @IskoMoreno @iampinglacson @lenirobredo Hello po. Wala pa rin bo kayo internet sa tandang sora and may nasabi bang useful sa inyo si @talk2GLOBE
 
 [View all notes](https://roytang.net/notes)
 
