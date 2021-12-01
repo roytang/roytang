@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 1, 2021, 8:20 p.m.](https://roytang.net/2021/12/1466019368119291910/): Crimson Vow drafting! ep 8 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson
 - [Dec. 1, 2021, 1:15 a.m.](https://roytang.net/2021/12/542943a3fe4f47fe8835e574496f3d63/): #sketchdaily catch up doodles (I am so behind D:) Nov 26: 2B 330/365 Nov 27: Cat with a hat 331/365 Nov 28: Grinch 332/365
 - [Nov. 30, 2021, 9:01 p.m.](https://roytang.net/2021/11/1465667381175349249/): Our internet came back just in time for me to be able to grind #MagicArena constructed to Mythic on the very last day lol. Now I can focus on limited! (Click photos to view full-size)
 - [Nov. 30, 2021, 11:08 a.m.](https://roytang.net/2021/11/1465517962941452288/): @chancaluys @BattleEmperor @TeeW77594247 @talk2GLOBE @enjoyGLOBE @IskoMoreno @iampinglacson @lenirobredo Hello po. Wala pa rin bo kayo internet sa tandang sora and may nasabi bang useful sa inyo si @talk2GLOBE
 - [Nov. 30, 2021, 7:46 a.m.](https://roytang.net/2021/11/1465467309753913357/): Nothing like a @talk2GLOBE outage first thing in the morning [18:02] Aftet such a long time senpai finally noticed us! (Click photos to view full-size) [19:00] Looks like internet service was finally restored. Was down since around 3am, so rougly 16hrs downtime.
-- [Nov. 29, 2021, 6:39 p.m.](https://roytang.net/2021/11/1465269118542753794/): Crimson Vow drafting! ep 7 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgcrimson #twitch [23:06] Did three drafts today, all of them were pretty bad T_T I was unable to escape the curse of alternating good and bad days! YT: https://www.youtube.com/watch?v=MjagSX6OEpo (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
