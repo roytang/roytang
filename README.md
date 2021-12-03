@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 3, 2021, 12:42 p.m.](https://roytang.net/2021/12/1466628895369801730/): Crimson Vow drafting! ep 9 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgcrimson #twitch
 - [Dec. 2, 2021, 10:11 p.m.](https://roytang.net/2021/12/1466409802871967746/): Cleaned out my sling bag today, look at all this pandemic junk. Also somehow I had two bottles of water in there (Click photos to view full-size)
 - [Dec. 2, 2021, 12:26 p.m.](https://roytang.net/2021/12/1466262461204807682/): @DanSlott if they&#x27;re on the &quot;Home&quot; view of the Twitter timeline (instead of Latest Tweets), likes from follows can appear in the timeline
 - [Dec. 2, 2021, 2:03 a.m.](https://roytang.net/2021/12/583117f34d16e020cfe376aa71f78c4a/): So a friend got his booster shot around lunch time and said there weren&#x27;t a lot of people and it only took 20 mins. So I checked and saw I could still book a slot for 3PM at SM North and I was like why not, if it&#x27;s only 20 minutes? FAM I WAS THERE FOR 3.5 HOURS THERE WERE SO MANY PEOPLE. I forgot that today was the last day of the National Vaccination drive or whatever it&#x27;s called. Rewarded myself afterwards with some Pepper Lunch, first time back at a mall since March 2020!
 - [Dec. 2, 2021, 12:39 a.m.](https://roytang.net/2021/12/1466084601403613190/): Trying to view my spotify wrapped crashes the app. Sounds about right
-- [Dec. 1, 2021, 8:20 p.m.](https://roytang.net/2021/12/1466019368119291910/): Crimson Vow drafting! ep 8 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [22:27] Only got to play one draft today. Unfortunately the pattern of alternating good and bad days did not hold up and this draft was a bit meh. Probably my fault because of bad keeps though. Deck seemed pretty solid. YT: https://www.youtube.com/watch?v=Z1jT2qXZOCo (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
