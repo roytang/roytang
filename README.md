@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 6, 2021, 6:58 p.m.](https://roytang.net/2021/12/1467810740065157122/): Crimson Vow quick drafts! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson
 - [Dec. 6, 2021, 10:17 a.m.](https://roytang.net/2021/12/1467679548678443013/): @zaaaldehyde They&#x27;re still required in hospitals AFAIK
 - [Dec. 5, 2021, 3:58 p.m.](https://roytang.net/2021/12/1467402927086002178/): (While browsing some movies for the grandkids to watch) Ma: Pang-anim na sine na pala nyan ano? Me: ??? Ma: Yung Big Hero. Number 6 na pala, yung una lang naalala ko. #mama
 - [Dec. 5, 2021, 3:23 a.m.](https://roytang.net/2021/12/1467213095458144257/): Have thrown away some gems at yet another #ArenaOpen on #MagicArena. All that draft practice did NOT pay off. Both decks felt meh. Watch the VODs for examples of how not to draft #MtgCrimson apparently YT: https://www.youtube.com/watch?v=T-iREGcd8Xc YT: https://www.youtube.com/watch?v=wCXxiohpaxc (Click photos to view full-size)
 - [Dec. 4, 2021, 8:47 p.m.](https://roytang.net/2021/12/4de7dedc9fa630427c52c58afbcdaa3f/): #sketchdaily catchup doodles: Nov 29: Lamp 333/365 Nov 30: Spiders 334/365 Dec 01: Lego capitalism 335/365 Dec 02: Pirate treasure map 336/365 These tiny drawings require less detail, but they&#x27;re kinda tough on my hands. Also, hopefully I can get through this backlog before the end of the year!
-- [Dec. 4, 2021, 7:48 a.m.](https://roytang.net/2021/12/1466917412305924099/): I feel attacked Quoted Inadarkwood&#x27;s tweet: The neurodivergent urge to simply wait for the single scheduled event of the day to start and do nothing else in the meantime
 
 [View all notes](https://roytang.net/notes)
 
