@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 7, 2021, 2:36 p.m.](https://roytang.net/2021/12/1468107156881051652/): Look how much I learned on Duolingo in 2021! How did you do? #Duolingo365 (Click photos to view full-size)
 - [Dec. 7, 2021, 7:53 a.m.](https://roytang.net/2021/12/aa75c87d2b982d3101529f68249f0afb/): #sketchdaily catchup Dec 03: Drawn from life 337/365 Drawing from real-life is so hard. The top of the head here is way too blocky. This took me way too much time and my hand got so tired. Also, I am still way behind.
 - [Dec. 6, 2021, 10:55 p.m.](https://roytang.net/2021/12/1467870306727788544/): One was given to Monica, in his life. One was given to Erica, by his side. One was given to Sandra, in the sun. One was given to Mary, all night long. But they were all of them deceived. Deep in the fires of Mount Doom, the Dark Lord Lou Bega forged a master mambo, Mambo No. 5
 - [Dec. 6, 2021, 6:58 p.m.](https://roytang.net/2021/12/1467810740065157122/): Crimson Vow quick drafts! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgcrimson [23:07] So I managed a couple of quick drafts. Decks seemed nice, but neither got to 7. Oh well. This was my last stream for crimson vow limited, I finally get to open my packs! YT: https://www.youtube.com/watch?v=YldZBQT9g9E (Click photos to view full-size)
 - [Dec. 6, 2021, 10:17 a.m.](https://roytang.net/2021/12/1467679548678443013/): @zaaaldehyde They&#x27;re still required in hospitals AFAIK
-- [Dec. 5, 2021, 3:58 p.m.](https://roytang.net/2021/12/1467402927086002178/): (While browsing some movies for the grandkids to watch) Ma: Pang-anim na sine na pala nyan ano? Me: ??? Ma: Yung Big Hero. Number 6 na pala, yung una lang naalala ko. #mama
 
 [View all notes](https://roytang.net/notes)
 
