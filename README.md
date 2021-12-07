@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Adventures with Globe Customer Service](https://roytang.net/2021/12/globe-cs/)
 - [Weeknotes 2021-12-05 Booster Packed!](https://roytang.net/2021/12/weeknotes-12-05/)
 - [Weeknotes 2021-11-28](https://roytang.net/2021/11/weeknotes-11-28/)
 - [The Great Ace Attorney Chronicles](https://roytang.net/2021/11/great-ace-attorney/)
 - [Weeknotes 2021-11-21](https://roytang.net/2021/11/weeknotes-11-21/)
-- [A Couple Of Word Games](https://roytang.net/2021/11/couple-word-games/)
 
 [View all posts](https://roytang.net/blog)
 
