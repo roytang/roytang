@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 8, 2021, 10:19 p.m.](https://roytang.net/2021/12/spotify-wrapped/): My music tastes haven&#x27;t really changed, but posting my #SpotifyWrapped stuff for the record.
 - [Dec. 8, 2021, 9 p.m.](https://roytang.net/2021/12/d145e32b0a6ce45be7eee82ab18e35e2/): #sketchdaily catchup doodles Dec 06 Daydreaming 340/365 Dec 07 Errands 341/365 Almost caught up!
 - [Dec. 7, 2021, 10:47 p.m.](https://roytang.net/2021/12/d8b1e3a56c5de43f7dfbb856353d72c9/): #sketchdaily catchup Dec 04: Jon Snow 338/365 Dec 05: Crossword 339/365
 - [Dec. 7, 2021, 2:36 p.m.](https://roytang.net/2021/12/1468107156881051652/): Look how much I learned on Duolingo in 2021! How did you do? #Duolingo365 (Click photos to view full-size)
 - [Dec. 7, 2021, 7:53 a.m.](https://roytang.net/2021/12/aa75c87d2b982d3101529f68249f0afb/): #sketchdaily catchup Dec 03: Drawn from life 337/365 Drawing from real-life is so hard. The top of the head here is way too blocky. This took me way too much time and my hand got so tired. Also, I am still way behind.
-- [Dec. 6, 2021, 10:55 p.m.](https://roytang.net/2021/12/1467870306727788544/): One was given to Monica, in his life. One was given to Erica, by his side. One was given to Sandra, in the sun. One was given to Mary, all night long. But they were all of them deceived. Deep in the fires of Mount Doom, the Dark Lord Lou Bega forged a master mambo, Mambo No. 5
 
 [View all notes](https://roytang.net/notes)
 
