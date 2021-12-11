@@ -27,19 +27,19 @@ Latest shared links:
 Latest notes:
 
 - [Dec. 12, 2021, 12:21 a.m.](https://roytang.net/2021/12/ae0e2da2f1c22972fd66ceaea204b11d/): #sketchdaily Dec 10 Avengers sketch I did during a call 344/365
-- [Dec. 12, 2021, 12:19 a.m.](https://roytang.net/2021/12/9db23bde44384258c28d1ea584eed118/): #sketchdaily Dec 09 Avengers sketch I did during a call 344/365
 - [Dec. 9, 2021, 9:39 p.m.](https://roytang.net/2021/12/652eece9ed859b0ed86b62af6410a0db/): #sketchdaily catchup doodles Dec 08 Emerald Archer 342/365 Dec 09 Four-Leaf Clover 343/365 Digital today because I needed green. I&#x27;m caught up!
 - [Dec. 8, 2021, 10:19 p.m.](https://roytang.net/2021/12/spotify-wrapped/): My music tastes haven&#x27;t really changed, but posting my #SpotifyWrapped stuff for the record.
 - [Dec. 8, 2021, 9 p.m.](https://roytang.net/2021/12/d145e32b0a6ce45be7eee82ab18e35e2/): #sketchdaily catchup doodles Dec 06 Daydreaming 340/365 Dec 07 Errands 341/365 Almost caught up!
+- [Dec. 7, 2021, 10:47 p.m.](https://roytang.net/2021/12/d8b1e3a56c5de43f7dfbb856353d72c9/): #sketchdaily catchup Dec 04: Jon Snow 338/365 Dec 05: Crossword 339/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
+- ![](https://roytang.net/media/cache/b6/de/b6de36cc617b0960dafa2711b87a1be0.jpg)
+- ![](https://roytang.net/media/cache/e7/bc/e7bcdf817169317d43e156de95b107d7.jpg)
 - ![](https://roytang.net/media/cache/56/ad/56ad935611eb7963ea1573061c00c51e.jpg)
-- ![](https://roytang.net/media/cache/ef/ca/efcad4b3093de1f9537fd689740d4944.jpg)
-- ![](https://roytang.net/media/cache/63/0e/630ebf6866bafafda6ba1895c6421df4.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
