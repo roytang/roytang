@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 12, 2021, 3:59 p.m.](https://roytang.net/2021/12/1469940015341867008/): I like Colmenares (@TeamNeri2022) as a candidate and will probably vote for him, but: a) When asked if a candidate&#x27;s channel will need at least 100,000 subscribers to get verified, the spokesman answered, &quot;No.&quot; - https://news.abs-cbn.com/news/12/11/21/comelec-to-verify-youtube-accounts-of-halalan2022-bets (Click photos to view full-size) [15:59] b) Google has already said they won&#x27;t allow political ads in the PH during the campaign period, so they wouldn&#x27;t be able to run political ads on Youtube anyway (I went ahead and subbed to the YT account anyway) [16:00] Citation for Google not running political ads: https://edition.cnn.com/2021/12/01/tech/google-political-ad-ban-philippines/index.html
 - [Dec. 12, 2021, 12:34 p.m.](https://roytang.net/2021/12/1469888386752458756/): @paulcatiang Were you trying to book with a qc account? Afaik if you use the &quot;book without an account&quot; option it doesnt need to check your history (but you must bring your vax card to the appointment)
 - [Dec. 12, 2021, 8:07 a.m.](https://roytang.net/2021/12/2c719acc6b88173b3abe47cc18a632c0/): Finished the current Doctor Who: Flux series yesterday. It was a bit meh and loosely plotted, but I kinda enjoyed it. Chibnall definitely won&#x27;t be missed though. The season seemed to mostly revolve around trying to dig out of the Timeless Child background set up in the previous season while at the same time squeezing out a last chance to use classic Who villains: Sontarans, Daleks, Weeping Angels etc. Also: So many companions! Anyway, apparently Jodie is getting a few more specials next year with Chibnall before they turn the reins back to RTD. I wish Jodie had gotten a
 - [Dec. 12, 2021, 12:21 a.m.](https://roytang.net/2021/12/ae0e2da2f1c22972fd66ceaea204b11d/): #sketchdaily Dec 10 Avengers sketch I did during a call 344/365
 - [Dec. 9, 2021, 9:39 p.m.](https://roytang.net/2021/12/652eece9ed859b0ed86b62af6410a0db/): #sketchdaily catchup doodles Dec 08 Emerald Archer 342/365 Dec 09 Four-Leaf Clover 343/365 Digital today because I needed green. I&#x27;m caught up!
-- [Dec. 8, 2021, 10:19 p.m.](https://roytang.net/2021/12/spotify-wrapped/): My music tastes haven&#x27;t really changed, but posting my #SpotifyWrapped stuff for the record.
 
 [View all notes](https://roytang.net/notes)
 
