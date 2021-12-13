@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Dec. 14, 2021, 1:31 a.m.](https://roytang.net/2021/12/5b4754f6f1981b469e51a2fb5c3f36dc/): Straightforward superhero film, not particularly exceptional or clever or funny or anything, it&#x27;s fine but it&#x27;s just sorta there. Surprisingly short runtime, around 1:40. Plot proceeds briskly with very little cruft. They decided to lean into the &quot;odd couple&quot; trope which isn&#x27;t really a thing in the comics. Pleasantly surprised that Shriek is played by Naomie Harris (Moneypenny from the Daniel Craig Bond films). There is a post-credits scene.
+- [Dec. 14, 2021, 1:44 a.m.](https://roytang.net/2021/12/ab397bed2e32ed73dc0a2bfb8ad2f979/): Straightforward superhero film, not particularly exceptional or clever or funny or anything, it&#x27;s just there. Surprisingly short runtime, around 1:40. Plot proceeds briskly with very little cruft. They decided to lean into the &quot;odd couple&quot; trope which isn&#x27;t really a thing in the comics. Pleasantly surprised that Shriek is played by Naomie Harris (Moneypenny from the Daniel Craig Bond films). There is a post-credits scene.
 - [Dec. 13, 2021, 11:03 p.m.](https://roytang.net/2021/12/1470409034948030464/): So does Instagram not let you review your ads before they go live? (Click photos to view full-size)
 - [Dec. 12, 2021, 4:40 p.m.](https://roytang.net/2021/12/reddit-recap/): First you had Spotify Wrapped, then there was even a Duolingo Year in Review, now there is Reddit Recap!
 - [Dec. 12, 2021, 4:36 p.m.](https://roytang.net/2021/12/1469949369294016517/): Still one of my favorite movies! Quoted RexChapman&#x27;s tweet: 29-years ago today “A Few Good Men” premiered in theaters (1992) … Your browser does not support the video tag.
