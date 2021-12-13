@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
-- [Dec. 14, 2021, 1:44 a.m.](https://roytang.net/2021/12/ab397bed2e32ed73dc0a2bfb8ad2f979/): Straightforward superhero film, not particularly exceptional or clever or funny or anything, it&#x27;s just there. Surprisingly short runtime, around 1:40. Plot proceeds briskly with very little cruft. They decided to lean into the &quot;odd couple&quot; trope which isn&#x27;t really a thing in the comics. Pleasantly surprised that Shriek is played by Naomie Harris (Moneypenny from the Daniel Craig Bond films). There is a post-credits scene.
 - [Dec. 13, 2021, 11:03 p.m.](https://roytang.net/2021/12/1470409034948030464/): So does Instagram not let you review your ads before they go live? (Click photos to view full-size)
 - [Dec. 12, 2021, 4:40 p.m.](https://roytang.net/2021/12/reddit-recap/): First you had Spotify Wrapped, then there was even a Duolingo Year in Review, now there is Reddit Recap!
 - [Dec. 12, 2021, 4:36 p.m.](https://roytang.net/2021/12/1469949369294016517/): Still one of my favorite movies! Quoted RexChapman&#x27;s tweet: 29-years ago today “A Few Good Men” premiered in theaters (1992) … Your browser does not support the video tag.
 - [Dec. 12, 2021, 3:59 p.m.](https://roytang.net/2021/12/1469940015341867008/): I like Colmenares (@TeamNeri2022) as a candidate and will probably vote for him, but: a) When asked if a candidate&#x27;s channel will need at least 100,000 subscribers to get verified, the spokesman answered, &quot;No.&quot; - https://news.abs-cbn.com/news/12/11/21/comelec-to-verify-youtube-accounts-of-halalan2022-bets (Click photos to view full-size) [15:59] b) Google has already said they won&#x27;t allow political ads in the PH during the campaign period, so they wouldn&#x27;t be able to run political ads on Youtube anyway (I went ahead and subbed to the YT account anyway) [16:00] Citation for Google not running political ads: https://edition.cnn.com/2021/12/01/tech/google-political-ad-ban-philippines/index.html
+- [Dec. 12, 2021, 12:34 p.m.](https://roytang.net/2021/12/1469888386752458756/): @paulcatiang Were you trying to book with a qc account? Afaik if you use the &quot;book without an account&quot; option it doesnt need to check your history (but you must bring your vax card to the appointment)
 
 [View all notes](https://roytang.net/notes)
 
