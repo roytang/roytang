@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 15, 2021, 3:04 p.m.](https://roytang.net/2021/12/1471013172479889410/): Everything has to have a year in review nowadays lol. I guess my tendency is to just play one big game a year on the #NintendoSwitch, though next year might be BOTW2 and SMTV. #NintendoSwitch2021 #gaming Quoted NintendoAmerica&#x27;s tweet: As 2021 winds down, it’s time to look back at your year with Nintendo Switch! Hit the link below for your most played games, which months you were the most active, and more! See your personalized #NintendoSwitch2021 Year in Review here: http://ninten.do/6012Zy5mp (Click photos to view full-size)
 - [Dec. 15, 2021, 5:44 a.m.](https://roytang.net/2021/12/6a6736de7e1db5688bb8a6bc15b9e023/): Pretty good film, great performances all around. a bit like a slice of life for for minor lords in medieval France TW: Rape, misogyny, blood and gore, etc Surprisingly based on a true story!
 - [Dec. 14, 2021, 2:05 a.m.](https://roytang.net/2021/12/56dd95663d98892bbe89d56ab0b96887/): Straightforward superhero film, not particularly exceptional or clever or funny or anything, it&#x27;s just there. Surprisingly short runtime, around 1:40. Plot proceeds briskly with very little cruft. They leaned into the &quot;odd couple&quot; trope which isn&#x27;t a thing in the comics. Pleasantly surprised that Shriek is played by Naomie Harris (Moneypenny!). There is a post-credits scene.
 - [Dec. 13, 2021, 11:03 p.m.](https://roytang.net/2021/12/1470409034948030464/): So does Instagram not let you review your ads before they go live? (Click photos to view full-size)
 - [Dec. 12, 2021, 4:40 p.m.](https://roytang.net/2021/12/reddit-recap/): First you had Spotify Wrapped, then there was even a Duolingo Year in Review, now there is Reddit Recap!
-- [Dec. 12, 2021, 4:36 p.m.](https://roytang.net/2021/12/1469949369294016517/): Still one of my favorite movies! Quoted RexChapman&#x27;s tweet: 29-years ago today “A Few Good Men” premiered in theaters (1992) … Your browser does not support the video tag.
 
 [View all notes](https://roytang.net/notes)
 
