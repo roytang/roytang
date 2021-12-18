@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 18, 2021, 5:28 p.m.](https://roytang.net/2021/12/1472136614885269506/): I&#x27;m rank 200 on this list so... :shrug: Quoted proteinkiss&#x27;s tweet: The 2022 version of the Japanese luck calendar came out… the closer your birthday is to the first rank, the luckier you are for next year I’m 291 (oof) and I just want to know y’all’s ranking (Click photos to view full-size)
 - [Dec. 18, 2021, 12:43 p.m.](https://roytang.net/2021/12/1472064872783384578/): The thing I don&#x27;t understand about the whole BDO hacking thing: the stolen amounts were transferred to a Unionbank account owned by a &quot;Mark Nagoyo&quot;, which is presumably not a real person. But banks are supposed to check client IDs etc, how did that account get past KYC?
 - [Dec. 16, 2021, 6:56 a.m.](https://roytang.net/2021/12/1471252869881819138/): @rovietoosin Rich!
 - [Dec. 15, 2021, 3:04 p.m.](https://roytang.net/2021/12/1471013172479889410/): Everything has to have a year in review nowadays lol. I guess my tendency is to just play one big game a year on the #NintendoSwitch, though next year might be BOTW2 and SMTV. #NintendoSwitch2021 #gaming Quoted NintendoAmerica&#x27;s tweet: As 2021 winds down, it’s time to look back at your year with Nintendo Switch! Hit the link below for your most played games, which months you were the most active, and more! See your personalized #NintendoSwitch2021 Year in Review here: http://ninten.do/6012Zy5mp (Click photos to view full-size)
 - [Dec. 15, 2021, 5:44 a.m.](https://roytang.net/2021/12/6a6736de7e1db5688bb8a6bc15b9e023/): Pretty good film, great performances all around. a bit like a slice of life for for minor lords in medieval France TW: Rape, misogyny, blood and gore, etc Surprisingly based on a true story!
-- [Dec. 14, 2021, 2:05 a.m.](https://roytang.net/2021/12/56dd95663d98892bbe89d56ab0b96887/): Straightforward superhero film, not particularly exceptional or clever or funny or anything, it&#x27;s just there. Surprisingly short runtime, around 1:40. Plot proceeds briskly with very little cruft. They leaned into the &quot;odd couple&quot; trope which isn&#x27;t a thing in the comics. Pleasantly surprised that Shriek is played by Naomie Harris (Moneypenny!). There is a post-credits scene.
 
 [View all notes](https://roytang.net/notes)
 
