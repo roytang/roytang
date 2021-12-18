@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Third Web](https://roytang.net/2021/12/the-third-web/)
 - [The Web3 Fraud](https://roytang.net/2021/12/the-web3-fraud/)
 - [52 things I learned in 2021](https://roytang.net/2021/12/52-things-i-learned-in-2021/)
 - [EVERYTHING EVERYWHERE ALL AT ONCE Official Trailer (2022)](https://roytang.net/2021/12/54b78234e92ac03873a8f9ae1f07e8d4/)
 - [Defensive CSS -    Ahmad Shadeed](https://roytang.net/2021/12/be8a552ab42cd847dad32c1bc9a7aef0/)
-- [app.wombo.art](https://roytang.net/2021/12/f2d11ee5f7c5fb79e86cc5f3ba0b3ef5/)
 
 [View all links](https://roytang.net/links)
 
