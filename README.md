@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2021-12-19 Twas The Week Before Christmas](https://roytang.net/2021/12/weeknotes-12-19/)
 - [Late Game Review: Tales of Symphonia](https://roytang.net/2021/12/symphonia/)
 - [Weeknotes 2021-12-12](https://roytang.net/2021/12/weeknotes-12-12/)
 - [Adventures with Globe Customer Service](https://roytang.net/2021/12/globe-cs/)
 - [Weeknotes 2021-12-05 Booster Packed!](https://roytang.net/2021/12/weeknotes-12-05/)
-- [Weeknotes 2021-11-28](https://roytang.net/2021/11/weeknotes-11-28/)
 
 [View all posts](https://roytang.net/blog)
 
