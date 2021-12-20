@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 20, 2021, 4:19 p.m.](https://roytang.net/2021/12/1472844199091642369/): Thread about NFTs and property Quoted beka_valentine&#x27;s tweet: NFTs are a massive scam but they are also a beautiful anthropological device that demonstrates the fact that private property is, and has always been, a social construct
 - [Dec. 19, 2021, 9:24 p.m.](https://roytang.net/2021/12/c65caaf1deb0e34faaddb3451ac0cdd8/): I have a bit of face blindness when it comes to Pacino and De Niro, I always need a second to figure out which is which when they&#x27;re together. Great perfromances here and it&#x27;s a pretty good crime film, with a lot of big names (very young Natalie Portman!)
 - [Dec. 18, 2021, 11:57 p.m.](https://roytang.net/2021/12/aef913509e16a8bc785278d63c772b5d/): #sketchdaily catchup doodles Dec 11 Bee Movie 345/365 Dec 12 Wheel of Time 346/365 Dec 13 Sketching Tree 347/365 Dec 14 Rumble and Frenzy 348/365 I am so so behind again!
 - [Dec. 18, 2021, 5:28 p.m.](https://roytang.net/2021/12/1472136614885269506/): I&#x27;m rank 200 on this list so... :shrug: Quoted proteinkiss&#x27;s tweet: The 2022 version of the Japanese luck calendar came out… the closer your birthday is to the first rank, the luckier you are for next year I’m 291 (oof) and I just want to know y’all’s ranking (Click photos to view full-size)
 - [Dec. 18, 2021, 12:43 p.m.](https://roytang.net/2021/12/1472064872783384578/): The thing I don&#x27;t understand about the whole BDO hacking thing: the stolen amounts were transferred to a Unionbank account owned by a &quot;Mark Nagoyo&quot;, which is presumably not a real person. But banks are supposed to check client IDs etc, how did that account get past KYC?
-- [Dec. 16, 2021, 6:56 a.m.](https://roytang.net/2021/12/1471252869881819138/): @rovietoosin Rich!
 
 [View all notes](https://roytang.net/notes)
 
