@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 24, 2021, 5:54 p.m.](https://roytang.net/2021/12/1474317542785110017/): Early pre-christmas Masters today in @EternalCardGame! Also, I think my first Masters in expedition. Now I can relax until end of the year. Or maybe consider going for double Masters with Throne? (Click photos to view full-size)
 - [Dec. 22, 2021, 7:24 p.m.](https://roytang.net/2021/12/d1e22f678f001285ceb12fcfae5a2a34/): #sketchdaily catchup doodles Dec 15 Captain Caveman 349/365 Dec 16 Tardis 350/365 Dec 17 Toad Wizard 351/365 Dec 18 Collared Bear 352/365 Still so far behind, I need to get a move on lol.
 - [Dec. 22, 2021, 4:41 p.m.](https://roytang.net/2021/12/f7fa3ebe0008d6e5612eb9bb26eb88d8/): Nothing can stop me now except for the constraints of this physical realm.
 - [Dec. 20, 2021, 10:16 p.m.](https://roytang.net/2021/12/1472933987718815750/): It took me SIX ATTEMPTS to get my first #MagicArena Decathlon token in the MID+VOW sealed event. Not sure I want to bother with the Alchemy one (Click photos to view full-size) [2021-12-21 13:43] I tried the Alchemy event anyway and got there in one run! So much for being better at Limited than Constructed lol. I ran Monoblack blood. One more token to qualify for the finals! I guess this is the #MagicArena decathlon thread now. (Click photos to view full-size) [2021-12-23 17:21] #MagicArena decathlon event 3: VOW traditional draft, got there in two tries. I&#x27;m qualified for the
 - [Dec. 20, 2021, 4:19 p.m.](https://roytang.net/2021/12/1472844199091642369/): Thread about NFTs and property Quoted beka_valentine&#x27;s tweet: NFTs are a massive scam but they are also a beautiful anthropological device that demonstrates the fact that private property is, and has always been, a social construct
-- [Dec. 19, 2021, 9:24 p.m.](https://roytang.net/2021/12/c65caaf1deb0e34faaddb3451ac0cdd8/): I have a bit of face blindness when it comes to Pacino and De Niro, I always need a second to figure out which is which when they&#x27;re together. Great perfromances here and it&#x27;s a pretty good crime film, with a lot of big names (very young Natalie Portman!)
 
 [View all notes](https://roytang.net/notes)
 
