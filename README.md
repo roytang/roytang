@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Recent TV: Hawkeye, Wheel of Time, Lower Decks](https://roytang.net/2021/12/hawkeye-wot-lower-decks/)
 - [Sapiens by Yuval Noah Harari](https://roytang.net/2021/12/sapiens/)
 - [Weeknotes 2021-12-19 Twas The Week Before Christmas](https://roytang.net/2021/12/weeknotes-12-19/)
 - [Late Game Review: Tales of Symphonia](https://roytang.net/2021/12/symphonia/)
 - [Weeknotes 2021-12-12](https://roytang.net/2021/12/weeknotes-12-12/)
-- [Adventures with Globe Customer Service](https://roytang.net/2021/12/globe-cs/)
 
 [View all posts](https://roytang.net/blog)
 
