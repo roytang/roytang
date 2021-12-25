@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 26, 2021, 1:44 a.m.](https://roytang.net/2021/12/977d7f97340da5496490c258d4d105c8/): #sketchdaily catchup doodles: Dec 19 Santa Claus 353/365 Dec 20 Christmas tree 354/365 Dec 21 Fireplace 355/365 Dec 22 Going sledding 356/365 Merry Christmas and Happy Holidays to everyone!
 - [Dec. 24, 2021, 10:36 p.m.](https://roytang.net/2021/12/1474388413281607683/): #nochebuena 2021 (Click photos to view full-size)
 - [Dec. 24, 2021, 9:06 p.m.](https://roytang.net/2021/12/hpsyr4j/): Sure, why not. Merry Christmas!
 - [Dec. 24, 2021, 5:54 p.m.](https://roytang.net/2021/12/1474317542785110017/): Early pre-christmas Masters today in @EternalCardGame! Also, I think my first Masters in expedition. Now I can relax until end of the year. Or maybe consider going for double Masters with Throne? (Click photos to view full-size)
 - [Dec. 22, 2021, 7:24 p.m.](https://roytang.net/2021/12/d1e22f678f001285ceb12fcfae5a2a34/): #sketchdaily catchup doodles Dec 15 Captain Caveman 349/365 Dec 16 Tardis 350/365 Dec 17 Toad Wizard 351/365 Dec 18 Collared Bear 352/365 Still so far behind, I need to get a move on lol.
-- [Dec. 22, 2021, 4:41 p.m.](https://roytang.net/2021/12/f7fa3ebe0008d6e5612eb9bb26eb88d8/): Nothing can stop me now except for the constraints of this physical realm.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/b4/54/b454b4e8a06e55d0b4610026821e5b26.jpg)
 - ![](https://roytang.net/media/cache/48/d1/48d1aa48a28358d5ba439cac37265d95.jpg)
 - ![](https://roytang.net/media/cache/a4/2d/a42dd475f009ff138da158b6861657be.jpg)
+- ![](https://roytang.net/media/cache/da/10/da109aa219a550608ec9a9c14bfd429a.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
