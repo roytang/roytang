@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Be Prepared for Failure and Handle it Gracefully - CSS-Tricks](https://roytang.net/2021/12/e96d33dad65613712f7de14f77b9ad38/)
 - [A Log4J Vulnerability Has Set the Internet &#x27;On Fire&#x27; | WIRED](https://roytang.net/2021/12/49c19dca28b59fb5904aa23bfddfff85/)
 - [The Third Web](https://roytang.net/2021/12/the-third-web/)
 - [The Web3 Fraud](https://roytang.net/2021/12/the-web3-fraud/)
 - [52 things I learned in 2021](https://roytang.net/2021/12/52-things-i-learned-in-2021/)
-- [EVERYTHING EVERYWHERE ALL AT ONCE Official Trailer (2022)](https://roytang.net/2021/12/54b78234e92ac03873a8f9ae1f07e8d4/)
 
 [View all links](https://roytang.net/links)
 
