@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 26, 2021, 8:30 p.m.](https://roytang.net/2021/12/04d9f570dd6f922faa469df8d74c0ebc/): Survey: What was your favorite movie of 2021?
 - [Dec. 26, 2021, 1:44 a.m.](https://roytang.net/2021/12/977d7f97340da5496490c258d4d105c8/): #sketchdaily catchup doodles: Dec 19 Santa Claus 353/365 Dec 20 Christmas tree 354/365 Dec 21 Fireplace 355/365 Dec 22 Going sledding 356/365 Merry Christmas and Happy Holidays to everyone!
 - [Dec. 24, 2021, 10:36 p.m.](https://roytang.net/2021/12/1474388413281607683/): #nochebuena 2021 (Click photos to view full-size)
 - [Dec. 24, 2021, 9:06 p.m.](https://roytang.net/2021/12/hpsyr4j/): Sure, why not. Merry Christmas!
 - [Dec. 24, 2021, 5:54 p.m.](https://roytang.net/2021/12/1474317542785110017/): Early pre-christmas Masters today in @EternalCardGame! Also, I think my first Masters in expedition. Now I can relax until end of the year. Or maybe consider going for double Masters with Throne? (Click photos to view full-size)
-- [Dec. 22, 2021, 7:24 p.m.](https://roytang.net/2021/12/d1e22f678f001285ceb12fcfae5a2a34/): #sketchdaily catchup doodles Dec 15 Captain Caveman 349/365 Dec 16 Tardis 350/365 Dec 17 Toad Wizard 351/365 Dec 18 Collared Bear 352/365 Still so far behind, I need to get a move on lol.
 
 [View all notes](https://roytang.net/notes)
 
