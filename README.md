@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Escaping the Trap of Efficiency: The Counterintuitive Antidote to the Time-Anxiety That Haunts and Hampers Our Search for Meaning](https://roytang.net/2021/12/escaping-the-trap-of-efficiency-the-counterintuitive-antidote-to-the-time-anxiety-that-haunts-and-ha/)
 - [Paste Magazine: What to Watch If You Like the MCU](https://roytang.net/2021/12/86fedb4b6a46749b6095715f0cb3a4fb/)
 - [Be Prepared for Failure and Handle it Gracefully - CSS-Tricks](https://roytang.net/2021/12/e96d33dad65613712f7de14f77b9ad38/)
 - [A Log4J Vulnerability Has Set the Internet &#x27;On Fire&#x27; | WIRED](https://roytang.net/2021/12/49c19dca28b59fb5904aa23bfddfff85/)
 - [The Third Web](https://roytang.net/2021/12/the-third-web/)
-- [The Web3 Fraud](https://roytang.net/2021/12/the-web3-fraud/)
 
 [View all links](https://roytang.net/links)
 
