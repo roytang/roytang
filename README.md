@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Game Review: Blasphemous](https://roytang.net/2021/12/blasphemous/)
 - [Weeknotes 2021-12-26 Season 2 Finale](https://roytang.net/2021/12/weeknotes-12-26/)
 - [Recent TV: Hawkeye, Wheel of Time, Lower Decks](https://roytang.net/2021/12/hawkeye-wot-lower-decks/)
 - [Sapiens by Yuval Noah Harari](https://roytang.net/2021/12/sapiens/)
 - [Weeknotes 2021-12-19 Twas The Week Before Christmas](https://roytang.net/2021/12/weeknotes-12-19/)
-- [Late Game Review: Tales of Symphonia](https://roytang.net/2021/12/symphonia/)
 
 [View all posts](https://roytang.net/blog)
 
