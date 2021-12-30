@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 30, 2021, 9:49 p.m.](https://roytang.net/2021/12/343b2f5557b5714ef9aae5a550f07d68/): #sketchdaily catchup! Digital ones today (via Procreate) Dec 27 Wine and Chess 361/365 Dec 28 Volcano 362/365 Dec 29 Tree Branch 363/365 Dec 30 Popping Off 364/365 Managed to catch up! One more tomorrow to complete the year!
 - [Dec. 29, 2021, 6:28 p.m.](https://roytang.net/2021/12/1476138083816980485/): Managed to hit Mythic on #MagicArena before the New Year rolls in! (Click photos to view full-size)
 - [Dec. 29, 2021, 1:43 a.m.](https://roytang.net/2021/12/9f32bc371e6cf43b5ec03e765ee6ddde/): #sketchdaily catchup doodles Dec 23 Reindeer 357/365 Dec 24 Mug 358/365 Dec 25 Opening Presents 359/365 Dec 26 Dudley 360/365 Why do I feel like this backlog&#x27;s lasting to the end of the year?
 - [Dec. 29, 2021, 12:47 a.m.](https://roytang.net/2021/12/1475870985391849479/): I heard there was free vintage cube on #mtgo so I figured I&#x27;d dust off the old account and give it a shot. I had no idea what I was doing! It&#x27;s a miracle I was able to eke out even one win, and that was only because the opponent timed out just as he was about to win game 3. (Click photos to view full-size)
 - [Dec. 27, 2021, 12:37 p.m.](https://roytang.net/2021/12/1475324826428399618/): Guard to guy in queue at bank: &quot;Sir, pakiayos ung face mask nyo&quot; Guy: Normal na tayo brad (I groan internally) Guy: Si Duterte nga hindi nagmamask (I facepalm in my head) (Thankfully, he still fixed his mask afterwards)
-- [Dec. 27, 2021, 1 a.m.](https://roytang.net/2021/12/82b6c9fc2e334e6f86afda915c9dd1f3/): Watched The Green Knight (2021). Wasn&#x27;t sure what to expect. Description suggested it would be some kind of action movie. It was most certainly not. The movie is captivating, unsettling, ambiguous, and even kind of trippy. Some great shots and visuals. Also it is surprisingly a Christmas movie. And there is a short post-credits scene!
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/e8/2a/e82ab82a80925e74db739aecfca8a194.jpg)
-- ![](https://roytang.net/media/cache/6e/3a/6e3ab840b6e4d5c98634d5b14534e66a.jpg)
-- ![](https://roytang.net/media/cache/f2/e2/f2e2b206553514829a3b30b8ad17e1c9.jpg)
+- ![](https://roytang.net/media/cache/3f/70/3f70a9f9a3b71a37d78b7aa1c107fcb2.jpg)
+- ![](https://roytang.net/media/cache/ce/72/ce72a7f10c48db1eaab91f1b2a1b4976.jpg)
+- ![](https://roytang.net/media/cache/1d/17/1d175c3ec8328851104bbdf007cbd788.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
