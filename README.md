@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2021 Year in Review](https://roytang.net/2022/01/2021-year-in-review/)
 - [Iris and the Giant](https://roytang.net/2021/12/iris-and-the-giant/)
 - [Game Review: Blasphemous](https://roytang.net/2021/12/blasphemous/)
 - [Weeknotes 2021-12-26 Season 2 Finale](https://roytang.net/2021/12/weeknotes-12-26/)
 - [Recent TV: Hawkeye, Wheel of Time, Lower Decks](https://roytang.net/2021/12/hawkeye-wot-lower-decks/)
-- [Sapiens by Yuval Noah Harari](https://roytang.net/2021/12/sapiens/)
 
 [View all posts](https://roytang.net/blog)
 
