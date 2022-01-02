@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 2, 2022, 9:09 p.m.](https://roytang.net/2022/01/b5892488fcd049c4c1dae9580f62301e/): #sketchdaily Jan 02 Teapot 2/365 Left my tablet downstairs so it&#x27;s paper today
 - [Jan. 1, 2022, 10:04 p.m.](https://roytang.net/2022/01/ca0cadc5d9ba79d5fde2d5916918acd9/): Out on a jog 1/365 #sketchdaily A new cycle!
 - [Dec. 31, 2021, 10:39 p.m.](https://roytang.net/2021/12/1476925903674707970/): #medianoche 2021 Happy new year! (Click photos to view full-size)
 - [Dec. 31, 2021, 9:19 p.m.](https://roytang.net/2021/12/600746257dd2560b7dfb9e3e6abacb57/): #sketchdaily Dec 31 &quot;Make it so&quot; 365/365 Terrible Picard, terrible handwriting, etc etc. But we did it fam, we completed the #sketchdaily run for the year! Happy new year everyone!
 - [Dec. 30, 2021, 9:49 p.m.](https://roytang.net/2021/12/343b2f5557b5714ef9aae5a550f07d68/): #sketchdaily catchup! Digital ones today (via Procreate) Dec 27 Wine and Chess 361/365 Dec 28 Volcano 362/365 Dec 29 Tree Branch 363/365 Dec 30 Popping Off 364/365 Managed to catch up! One more tomorrow to complete the year!
-- [Dec. 29, 2021, 6:28 p.m.](https://roytang.net/2021/12/1476138083816980485/): Managed to hit Mythic on #MagicArena before the New Year rolls in! (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/af/cf/afcffcee7cdfb636ba4d0d26683f3430.jpg)
-- ![](https://roytang.net/media/cache/f1/97/f197d428cece8347028795a1a6efebc5.jpg)
-- ![](https://roytang.net/media/cache/a6/09/a60909d0f376bad470dd56a0878db1d4.jpg)
+- ![](https://roytang.net/media/cache/30/15/301543765105ad32a352d16fcfe8a7d6.jpg)
+- ![](https://roytang.net/media/cache/13/1d/131d8c4560e73a11dc839db26b3c4067.jpg)
+- ![](https://roytang.net/media/cache/52/e2/52e27e8c6c56645cc8e6a18fb1764d6f.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
