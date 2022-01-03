@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [My Favourite Asks of 2021](https://roytang.net/2022/01/my-favourite-asks-of-2021/)
 - [You don&#x27;t need another challenge – Modern Mrs Darcy](https://roytang.net/2021/12/you-dont-need-another-challenge-modern-mrs-darcy/)
 - [The Thrilla In Manila And The End Of Boxing – Snakes and Ladders](https://roytang.net/2021/12/the-thrilla-in-manila-and-the-end-of-boxing-snakes-and-ladders/)
 - [Escaping the Trap of Efficiency: The Counterintuitive Antidote to the Time-Anxiety That Haunts and Hampers Our Search for Meaning](https://roytang.net/2021/12/escaping-the-trap-of-efficiency-the-counterintuitive-antidote-to-the-time-anxiety-that-haunts-and-ha/)
 - [Paste Magazine: What to Watch If You Like the MCU](https://roytang.net/2021/12/86fedb4b6a46749b6095715f0cb3a4fb/)
-- [Be Prepared for Failure and Handle it Gracefully - CSS-Tricks](https://roytang.net/2021/12/e96d33dad65613712f7de14f77b9ad38/)
 
 [View all links](https://roytang.net/links)
 
