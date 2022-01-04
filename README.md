@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 4, 2022, 12:31 p.m.](https://roytang.net/2022/01/1478222626271072256/): @mikafabs what does it mean now?
 - [Jan. 4, 2022, 1:46 a.m.](https://roytang.net/2022/01/1478060212946800643/): Seeing all these people online trying to debate with a Marcos apologist / fake news peddler as if she has any interest in your FACTS and EVIDENCE be like Quoted starsdell&#x27;s tweet: A good thing to remember going into a new year... (Click photos to view full-size)
 - [Jan. 3, 2022, 10:29 p.m.](https://roytang.net/2022/01/042d4ca49ae14d9c4ed29b6629258884/): #sketchdaily Jan 3 Dramatic birds 3/365
 - [Jan. 2, 2022, 9:09 p.m.](https://roytang.net/2022/01/b5892488fcd049c4c1dae9580f62301e/): #sketchdaily Jan 02 Teapot 2/365 Left my tablet downstairs so it&#x27;s paper today
 - [Jan. 1, 2022, 10:04 p.m.](https://roytang.net/2022/01/ca0cadc5d9ba79d5fde2d5916918acd9/): Out on a jog 1/365 #sketchdaily A new cycle!
-- [Dec. 31, 2021, 10:39 p.m.](https://roytang.net/2021/12/1476925903674707970/): #medianoche 2021 Happy new year! (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
