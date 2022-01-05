@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [New Year&#x27;s Checklist 2022](https://roytang.net/2022/01/new-years-checklist/)
 - [Weeknotes 2022-01-02 Season 3](https://roytang.net/2022/01/weeknotes-01-02/)
 - [2021 Year in Review](https://roytang.net/2022/01/2021-year-in-review/)
 - [Iris and the Giant](https://roytang.net/2021/12/iris-and-the-giant/)
 - [Game Review: Blasphemous](https://roytang.net/2021/12/blasphemous/)
-- [Weeknotes 2021-12-26 Season 2 Finale](https://roytang.net/2021/12/weeknotes-12-26/)
 
 [View all posts](https://roytang.net/blog)
 
