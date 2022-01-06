@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 7, 2022, 1:19 a.m.](https://roytang.net/2022/01/5546ef13eb53619e7ef6cfbbeee5fb21/): #sketchdaily Jan 6 Aloy (Horizon Zero Dawn) 6/365
 - [Jan. 6, 2022, 4:13 p.m.](https://roytang.net/2022/01/1479003210858004481/): Wordle 201 3/6 ⬜⬜🟨⬜🟨 🟨🟩🟩⬜⬜ 🟩🟩🟩🟩🟩
 - [Jan. 5, 2022, 10:44 p.m.](https://roytang.net/2022/01/b41eea2f8cc545011eb1109d5634d9a1/): #sketchdaily Jan 5 Frasier Cranes 5/365
 - [Jan. 4, 2022, 9:35 p.m.](https://roytang.net/2022/01/67fe173058e9a4a9d4f845e0f7a87c1f/): #sketchdaily Jan 4 Sorbetero (Ice cream man) 4/365
 - [Jan. 4, 2022, 5:37 p.m.](https://roytang.net/2022/01/1478299501517766660/): #Kakampink stuff from this afternnon&#x27;s walk. Maybe 12 houses had Leni tarps. There were also 2 pro-Magnanakaw tarps, but I was able to resist the urge to vandalize them (Click photos to view full-size)
-- [Jan. 4, 2022, 12:31 p.m.](https://roytang.net/2022/01/1478222626271072256/): @mikafabs what does it mean now?
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/d5/f5/d5f5acb9903c4ec3a75a9d09ead8e43a.jpg)
 - ![](https://roytang.net/media/cache/fb/ca/fbcac37b5126c9cfc42d1528ec2de5a4.jpg)
 - ![](https://roytang.net/media/cache/0c/ae/0caed2e4e82fd20003a9e5fcd63be0d0.jpg)
+- ![](https://roytang.net/media/cache/b2/0b/b20ba619da7f9be34f147df366f017b8.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
