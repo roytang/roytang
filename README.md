@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 6, 2022, 4:13 p.m.](https://roytang.net/2022/01/1479003210858004481/): Wordle 201 3/6 ⬜⬜🟨⬜🟨 🟨🟩🟩⬜⬜ 🟩🟩🟩🟩🟩
 - [Jan. 5, 2022, 10:44 p.m.](https://roytang.net/2022/01/b41eea2f8cc545011eb1109d5634d9a1/): #sketchdaily Jan 5 Frasier Cranes 5/365
 - [Jan. 4, 2022, 9:35 p.m.](https://roytang.net/2022/01/67fe173058e9a4a9d4f845e0f7a87c1f/): #sketchdaily Jan 4 Sorbetero (Ice cream man) 4/365
 - [Jan. 4, 2022, 5:37 p.m.](https://roytang.net/2022/01/1478299501517766660/): #Kakampink stuff from this afternnon&#x27;s walk. Maybe 12 houses had Leni tarps. There were also 2 pro-Magnanakaw tarps, but I was able to resist the urge to vandalize them (Click photos to view full-size)
 - [Jan. 4, 2022, 12:31 p.m.](https://roytang.net/2022/01/1478222626271072256/): @mikafabs what does it mean now?
-- [Jan. 4, 2022, 1:46 a.m.](https://roytang.net/2022/01/1478060212946800643/): Seeing all these people online trying to debate with a Marcos apologist / fake news peddler as if she has any interest in your FACTS and EVIDENCE be like Quoted starsdell&#x27;s tweet: A good thing to remember going into a new year... (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
