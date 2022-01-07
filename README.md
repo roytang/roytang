@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 8, 2022, 1:09 a.m.](https://roytang.net/2022/01/d7fe4b3f3acf90b4adf163b5c61fb6f7/): #sketchdaily Jan 7 Birdie 7/365 #streetfighterv
 - [Jan. 7, 2022, 8:51 p.m.](https://roytang.net/2022/01/9f334e2bc092614079ecd191f947c4ff/): From the description, I expected some kind of John Wick-style revenge action film; that was nowhere near correct. The film defies expectations at almost every turn, going in directions I never expected. It feels like to explain the film would be to ruin it, so I won&#x27;t. It is pretty good, and we get a serious Cage performance in this one.
 - [Jan. 7, 2022, 8:38 p.m.](https://roytang.net/2022/01/23af5dc063224b0fbafec7f8097adddb/): I binged the first season of this last week because I saw a good review of it. It&#x27;s a comedy, but not a laugh-out-loud funny one, more wit than laugh track, though Steve Martin does put in some physical comedy at some point. It was ok, reasonably clever, but also a bit predictable. True crime fans might enjoy it more. Not sure if I&#x27;d watch the next season.
 - [Jan. 7, 2022, 1:19 a.m.](https://roytang.net/2022/01/5546ef13eb53619e7ef6cfbbeee5fb21/): #sketchdaily Jan 6 Aloy (Horizon Zero Dawn) 6/365
 - [Jan. 6, 2022, 4:13 p.m.](https://roytang.net/2022/01/1479003210858004481/): Wordle 201 3/6 ⬜⬜🟨⬜🟨 🟨🟩🟩⬜⬜ 🟩🟩🟩🟩🟩
-- [Jan. 5, 2022, 10:44 p.m.](https://roytang.net/2022/01/b41eea2f8cc545011eb1109d5634d9a1/): #sketchdaily Jan 5 Frasier Cranes 5/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/fb/ca/fbcac37b5126c9cfc42d1528ec2de5a4.jpg)
 - ![](https://roytang.net/media/cache/0c/ae/0caed2e4e82fd20003a9e5fcd63be0d0.jpg)
 - ![](https://roytang.net/media/cache/b2/0b/b20ba619da7f9be34f147df366f017b8.jpg)
+- ![](https://roytang.net/media/cache/30/f0/30f0c731128cbfe3b7d1efbc03460dda.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
