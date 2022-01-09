@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 9, 2022, 5:30 p.m.](https://roytang.net/2022/01/1480109803477348352/): Streaming the Arena Decathlon finals! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch
 - [Jan. 9, 2022, 3:59 a.m.](https://roytang.net/2022/01/c92b723b2cc8996add941018855ce365/): #sketchdaily Jan 8 Banana Hammock 8/365 For some reason this photo came out terribly and I don&#x27;t have the energy to retry it
 - [Jan. 8, 2022, 12:42 p.m.](https://roytang.net/2022/01/1a45f1af76682a39ffec7ce8e032d200/): Recently signed up for an account on a hospital&#x27;s web site to get test results for someone else and the site has the option to specify that you are creating an account on behalf of someone else because they are &quot;technologically challenged&quot;. I like that they understand that a lot of patients (esp. elderly ones) might not be tech-savvy, although I&#x27;m not sure what changes in the backend depending on this choice.
 - [Jan. 8, 2022, 1:09 a.m.](https://roytang.net/2022/01/d7fe4b3f3acf90b4adf163b5c61fb6f7/): #sketchdaily Jan 7 Birdie 7/365 #streetfighterv
 - [Jan. 7, 2022, 8:51 p.m.](https://roytang.net/2022/01/9f334e2bc092614079ecd191f947c4ff/): From the description, I expected some kind of John Wick-style revenge action film; that was nowhere near correct. The film defies expectations at almost every turn, going in directions I never expected. It feels like to explain the film would be to ruin it, so I won&#x27;t. It is pretty good, and we get a serious Cage performance in this one.
-- [Jan. 7, 2022, 8:38 p.m.](https://roytang.net/2022/01/23af5dc063224b0fbafec7f8097adddb/): I binged the first season of this last week because I saw a good review of it. It&#x27;s a comedy, but not a laugh-out-loud funny one, more wit than laugh track, though Steve Martin does put in some physical comedy at some point. It was ok, reasonably clever, but also a bit predictable. True crime fans might enjoy it more. Not sure if I&#x27;d watch the next season.
 
 [View all notes](https://roytang.net/notes)
 
