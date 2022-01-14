@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Expanse](https://roytang.net/2022/01/expanse/)
 - [Eternals (2021) Spoiler-free Review](https://roytang.net/2022/01/eternals/)
 - [Weeknotes 2022-01-09](https://roytang.net/2022/01/weeknotes-01-09/)
 - [The Mysterious Affair at Styles by Agatha Christie](https://roytang.net/2022/01/mysterious-affair-styles/)
 - [New Year&#x27;s Checklist 2022](https://roytang.net/2022/01/new-years-checklist/)
-- [Weeknotes 2022-01-02 Season 3](https://roytang.net/2022/01/weeknotes-01-02/)
 
 [View all posts](https://roytang.net/blog)
 
