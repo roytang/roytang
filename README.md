@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The startupification of tech](https://roytang.net/2022/01/the-startupification-of-tech/)
 - [Let&#x27;s Settle This](https://roytang.net/2022/01/lets-settle-this/)
 - [Rest and hustling](https://roytang.net/2022/01/rest-and-hustling/)
 - [Moxie Marlinspike &gt;&gt; Blog &gt;&gt; My first impressions of web3](https://roytang.net/2022/01/5d848894f505b56281e8b5e6c89562d2/)
 - [Everyone should blog](https://roytang.net/2022/01/everyone-should-blog/)
-- [My Favourite Asks of 2021](https://roytang.net/2022/01/my-favourite-asks-of-2021/)
 
 [View all links](https://roytang.net/links)
 
