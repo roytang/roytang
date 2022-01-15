@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 15, 2022, 8:31 p.m.](https://roytang.net/2022/01/cb50cb4e548fa9021eabdb6d502a7dfc/): #sketchdaily Jan 14 Rocket and Groot 14/365 Falling behind again. I had started on something in Procreate last night but I didn&#x27;t like how it was turning out so I just did a quick doodle today.
 - [Jan. 14, 2022, 12:53 a.m.](https://roytang.net/2022/01/2ffc2893357aca5b3cbf7d27510ade9c/): Watched this so I could widen my horizons with a musical. Surprised to learn it was based on a real-life musical and on a real person. The songs were pretty good. Andrew Garfield gave a great performance.
 - [Jan. 14, 2022, 12:46 a.m.](https://roytang.net/2022/01/03dd5e3ed2afc21f1fdb7ab7edfe8d89/): #sketchdaily Jan 13 Bombers 13/365 Was initially going to draw a village being bombed but that would have been an atrocity
 - [Jan. 12, 2022, 8:35 p.m.](https://roytang.net/2022/01/a1d72851ee70b99b3cb92741e5f8de81/): #sketchdaily Jan 12 Frantic Search 12/365
 - [Jan. 11, 2022, 11:31 p.m.](https://roytang.net/2022/01/46f5aaa4af5306f66dd2fee35e157bc0/): #sketchdaily Jan 11 Dry Bones 11/365
-- [Jan. 11, 2022, 11:18 p.m.](https://roytang.net/2022/01/7716cd7e971f869c82795cb6fcbc54e5/): Finally watched this despite not knowing anything about League of Legends, mostly because everyone kept raving about how great it was. First off, the animation and aesthetic are fantastic and top-notch. Story is ok, a typical tragic class conflict where there are few real heroes. Music is great; I like the opening song by Imagine Dragons. Will probably watch the next season.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/d5/b7/d5b7407233afb4ef292bed7ec95f1ec2.jpg)
 - ![](https://roytang.net/media/cache/14/7d/147d82545bffa6e436ede003ac7b4791.jpg)
 - ![](https://roytang.net/media/cache/e0/a2/e0a20bfdc0e64a65ed817de9caee068b.jpg)
+- ![](https://roytang.net/media/cache/d0/56/d056c685a0d857c27cc3b586face06a4.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
