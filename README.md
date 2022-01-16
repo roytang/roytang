@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Happy 10th Birthday, Bridgy!](https://roytang.net/2022/01/happy-10th-birthday-bridgy/)
 - [YouTube: One-Minute Time Machine](https://roytang.net/2022/01/306f13ee0854ad7fda54682187e032dc/)
 - [The startupification of tech](https://roytang.net/2022/01/the-startupification-of-tech/)
 - [Let&#x27;s Settle This](https://roytang.net/2022/01/lets-settle-this/)
 - [Rest and hustling](https://roytang.net/2022/01/rest-and-hustling/)
-- [Moxie Marlinspike &gt;&gt; Blog &gt;&gt; My first impressions of web3](https://roytang.net/2022/01/5d848894f505b56281e8b5e6c89562d2/)
 
 [View all links](https://roytang.net/links)
 
