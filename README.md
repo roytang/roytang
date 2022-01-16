@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [THE 25 BEST FILMS OF 2021: A Video Countdown](https://roytang.net/2022/01/b86ff8fe2fd7ea5b203c697495b10d6b/)
 - [Happy 10th Birthday, Bridgy!](https://roytang.net/2022/01/happy-10th-birthday-bridgy/)
 - [YouTube: One-Minute Time Machine](https://roytang.net/2022/01/306f13ee0854ad7fda54682187e032dc/)
 - [The startupification of tech](https://roytang.net/2022/01/the-startupification-of-tech/)
 - [Let&#x27;s Settle This](https://roytang.net/2022/01/lets-settle-this/)
-- [Rest and hustling](https://roytang.net/2022/01/rest-and-hustling/)
 
 [View all links](https://roytang.net/links)
 
