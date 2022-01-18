@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 18, 2022, 2:09 p.m.](https://roytang.net/2022/01/1483320689126182912/): I know the basic premise behind Moon Knight, but I haven&#x27;t read a lot of comics about him and I have no idea who Ethan Hawke is playing here. Still looking forward to this! #mcu #trailers https://www.youtube.com/watch?v=x7Krla_UxRg
 - [Jan. 16, 2022, 1:40 p.m.](https://roytang.net/2022/01/1482588649607024647/): Just another confirmation that I am indeed young at heart. This test is from the University of Cambridge Psychometrics Centre. You can take it here: https://applymagicsauce.com/demo (Click photos to view full-size)
 - [Jan. 15, 2022, 8:31 p.m.](https://roytang.net/2022/01/cb50cb4e548fa9021eabdb6d502a7dfc/): #sketchdaily Jan 14 Rocket and Groot 14/365 Falling behind again. I had started on something in Procreate last night but I didn&#x27;t like how it was turning out so I just did a quick doodle today.
 - [Jan. 15, 2022, 11:01 a.m.](https://roytang.net/2022/01/1482186176153141249/): @MaoiArroyo Printing hasn&#x27;t started yet (https://www.philstar.com/headlines/2022/01/15/2154006/comelec-targets-january-17-start-printing-ballots) In your scenario, those would be stray votes
 - [Jan. 14, 2022, 12:53 a.m.](https://roytang.net/2022/01/2ffc2893357aca5b3cbf7d27510ade9c/): Watched this so I could widen my horizons with a musical. Surprised to learn it was based on a real-life musical and on a real person. The songs were pretty good. Andrew Garfield gave a great performance.
-- [Jan. 14, 2022, 12:46 a.m.](https://roytang.net/2022/01/03dd5e3ed2afc21f1fdb7ab7edfe8d89/): #sketchdaily Jan 13 Bombers 13/365 Was initially going to draw a village being bombed but that would have been an atrocity
 
 [View all notes](https://roytang.net/notes)
 
