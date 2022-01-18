@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Wordle and Things Like It](https://roytang.net/2022/01/wordle-things/)
 - [Weeknotes 2022-01-16](https://roytang.net/2022/01/weeknotes-01-16/)
 - [The Expanse](https://roytang.net/2022/01/expanse/)
 - [Eternals (2021) Spoiler-free Review](https://roytang.net/2022/01/eternals/)
 - [Weeknotes 2022-01-09](https://roytang.net/2022/01/weeknotes-01-09/)
-- [The Mysterious Affair at Styles by Agatha Christie](https://roytang.net/2022/01/mysterious-affair-styles/)
 
 [View all posts](https://roytang.net/blog)
 
