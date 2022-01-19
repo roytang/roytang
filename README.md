@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Don&#x27;t Look Up (2021)](https://roytang.net/2022/01/dont-look-up/)
 - [Wordle and Things Like It](https://roytang.net/2022/01/wordle-things/)
 - [Weeknotes 2022-01-16](https://roytang.net/2022/01/weeknotes-01-16/)
 - [The Expanse](https://roytang.net/2022/01/expanse/)
 - [Eternals (2021) Spoiler-free Review](https://roytang.net/2022/01/eternals/)
-- [Weeknotes 2022-01-09](https://roytang.net/2022/01/weeknotes-01-09/)
 
 [View all posts](https://roytang.net/blog)
 
