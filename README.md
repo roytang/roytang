@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 20, 2022, 10:01 p.m.](https://roytang.net/2022/01/99e0084da6aa41c4ca373e9c405f4d69/): #sketchdaily Jan 20 Pikachu 20/365
 - [Jan. 20, 2022, 12:45 p.m.](https://roytang.net/2022/01/1484024280090562560/): Ok PH locals: you guys know that Isko Moreno TV ad (if any of you even still watch TV) where the jingle ends with something like &quot;Ganyan talaga si Scott!&quot; or Skat. Or something, definitely not &quot;Isko&quot;. Who the heck is Scott?!?
 - [Jan. 19, 2022, 9:27 p.m.](https://roytang.net/2022/01/5a791a736ae2d935c511a979e6c2bdc6/): #sketchdaily Jan 19 Secondhand Smoke 19/365
 - [Jan. 19, 2022, 2:45 p.m.](https://roytang.net/2022/01/1483692076558860290/): Today, I stood before the Danish parliament on a public hearing on social media &amp; democracy As a researcher of online hate, I could have spent hours. But I had 10 minutes, so I had to be focused The title was &quot;The Myths About Social Media&quot; Here is what I said👇 🧵(1/12)
 - [Jan. 18, 2022, 7:55 p.m.](https://roytang.net/2022/01/4ef02b672ba6b420c58881aaeb4ed4dd/): #sketchdaily catchup day! Jan 15 Controller 15/365 Jan 16 Jyn Erso 16/365 Jan 17 Jewelry 17/365 Jan 18 Rachel Summers 18/365 Someone gave me a new sketchbook, pencil and eraser a while back, I thought I&#x27;d give them a go. Haven&#x27;t used pencil in a while, I find myself thinking I can just undo (too used to digital) instead of going for the eraser. I need a sharpener. The Jyn Erso one is a second attempt at one I did in 2016, though I&#x27;m not sure this one is better.
-- [Jan. 18, 2022, 2:09 p.m.](https://roytang.net/2022/01/1483320689126182912/): I know the basic premise behind Moon Knight, but I haven&#x27;t read a lot of comics about him and I have no idea who Ethan Hawke is playing here. Still looking forward to this! #mcu #trailers https://www.youtube.com/watch?v=x7Krla_UxRg
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/d0/56/d056c685a0d857c27cc3b586face06a4.jpg)
 - ![](https://roytang.net/media/cache/1f/af/1faf0970f87f6dc26b93997fbb4e4b21.jpg)
 - ![](https://roytang.net/media/cache/6f/c1/6fc16f3169ff383ef3f2c35893d46195.jpg)
+- ![](https://roytang.net/media/cache/1c/63/1c635c7059199e0fb90a77b914e081f1.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
