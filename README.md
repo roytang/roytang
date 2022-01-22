@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 22, 2022, 6:09 p.m.](https://roytang.net/2022/01/1484830672045088769/): Hey, early mythic this month in #MagicArena, first of the year! (Click photos to view full-size)
 - [Jan. 20, 2022, 10:01 p.m.](https://roytang.net/2022/01/99e0084da6aa41c4ca373e9c405f4d69/): #sketchdaily Jan 20 Pikachu 20/365
 - [Jan. 20, 2022, 12:45 p.m.](https://roytang.net/2022/01/1484024280090562560/): Ok PH locals: you guys know that Isko Moreno TV ad (if any of you even still watch TV) where the jingle ends with something like &quot;Ganyan talaga si Scott!&quot; or Skat. Or something, definitely not &quot;Isko&quot;. Who the heck is Scott?!? [22:26] Ok apparently scott was his childhood nickname (?), as portrayed in the Yorme film
 - [Jan. 19, 2022, 9:27 p.m.](https://roytang.net/2022/01/5a791a736ae2d935c511a979e6c2bdc6/): #sketchdaily Jan 19 Secondhand Smoke 19/365
 - [Jan. 19, 2022, 2:45 p.m.](https://roytang.net/2022/01/1483692076558860290/): Today, I stood before the Danish parliament on a public hearing on social media &amp; democracy As a researcher of online hate, I could have spent hours. But I had 10 minutes, so I had to be focused The title was &quot;The Myths About Social Media&quot; Here is what I said👇 🧵(1/12)
-- [Jan. 18, 2022, 7:55 p.m.](https://roytang.net/2022/01/4ef02b672ba6b420c58881aaeb4ed4dd/): #sketchdaily catchup day! Jan 15 Controller 15/365 Jan 16 Jyn Erso 16/365 Jan 17 Jewelry 17/365 Jan 18 Rachel Summers 18/365 Someone gave me a new sketchbook, pencil and eraser a while back, I thought I&#x27;d give them a go. Haven&#x27;t used pencil in a while, I find myself thinking I can just undo (too used to digital) instead of going for the eraser. I need a sharpener. The Jyn Erso one is a second attempt at one I did in 2016, though I&#x27;m not sure this one is better.
 
 [View all notes](https://roytang.net/notes)
 
