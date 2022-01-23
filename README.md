@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 24, 2022, 12:36 a.m.](https://roytang.net/2022/01/383c2c156e8aae0b5e7d96c606c33971/): #sketchdaily Jan 21 Sol Badguy 21/365 I am behind a few days, typical for the weekend
 - [Jan. 22, 2022, 6:09 p.m.](https://roytang.net/2022/01/1484830672045088769/): Hey, early mythic this month in #MagicArena, first of the year! (Click photos to view full-size)
 - [Jan. 20, 2022, 10:01 p.m.](https://roytang.net/2022/01/99e0084da6aa41c4ca373e9c405f4d69/): #sketchdaily Jan 20 Pikachu 20/365
 - [Jan. 20, 2022, 12:45 p.m.](https://roytang.net/2022/01/1484024280090562560/): Ok PH locals: you guys know that Isko Moreno TV ad (if any of you even still watch TV) where the jingle ends with something like &quot;Ganyan talaga si Scott!&quot; or Skat. Or something, definitely not &quot;Isko&quot;. Who the heck is Scott?!? [22:26] Ok apparently scott was his childhood nickname (?), as portrayed in the Yorme film
 - [Jan. 19, 2022, 9:27 p.m.](https://roytang.net/2022/01/5a791a736ae2d935c511a979e6c2bdc6/): #sketchdaily Jan 19 Secondhand Smoke 19/365
-- [Jan. 19, 2022, 2:45 p.m.](https://roytang.net/2022/01/1483692076558860290/): Today, I stood before the Danish parliament on a public hearing on social media &amp; democracy As a researcher of online hate, I could have spent hours. But I had 10 minutes, so I had to be focused The title was &quot;The Myths About Social Media&quot; Here is what I said👇 🧵(1/12)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/1f/af/1faf0970f87f6dc26b93997fbb4e4b21.jpg)
-- ![](https://roytang.net/media/cache/6f/c1/6fc16f3169ff383ef3f2c35893d46195.jpg)
-- ![](https://roytang.net/media/cache/1c/63/1c635c7059199e0fb90a77b914e081f1.jpg)
+- ![](https://roytang.net/media/cache/0b/fd/0bfdd3d1d52f9f35883817ee73851c8f.jpg)
+- ![](https://roytang.net/media/cache/46/47/4647fc2d78b45c8a36e56b77ff9d0f67.jpg)
+- ![](https://roytang.net/media/cache/24/02/2402b1572d36061c8355ec0ab0619422.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
