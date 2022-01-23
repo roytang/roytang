@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The 22 most anticipated indie games coming in 2022 - Polygon](https://roytang.net/2022/01/667c90073c52ad5fff23bbf4642f2e7a/)
 - [Wiki History Game](https://roytang.net/2022/01/519cca2c68240b71ea980b9e568d58de/)
 - [Microsoft Brings a Cannon to a Knife Fight](https://roytang.net/2022/01/microsoft-brings-a-cannon-to-a-knife-fight/)
 - [‘I read all 27,000 Marvel comics and had a great time. Here’s what I learnt’](https://roytang.net/2022/01/i-read-all-27000-marvel-comics-and-had-a-great-time-heres-what-i-learnt/)
 - [CSS Speedrun | Test your CSS Skills](https://roytang.net/2022/01/95cdc5155613e98613dc06832f5f1895/)
-- [Your attention didn’t collapse. It was stolen | Psychology | The Guardian](https://roytang.net/2022/01/25b1ddb2fa782c0f16aa6b1cf69d3ce6/)
 
 [View all links](https://roytang.net/links)
 
