@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-01-23](https://roytang.net/2022/01/weeknotes-01-23/)
 - [Captain Toad: Treasure Tracker](https://roytang.net/2022/01/captain-toad/)
 - [Don&#x27;t Look Up (2021)](https://roytang.net/2022/01/dont-look-up/)
 - [Wordle and Things Like It](https://roytang.net/2022/01/wordle-things/)
 - [Weeknotes 2022-01-16](https://roytang.net/2022/01/weeknotes-01-16/)
-- [The Expanse](https://roytang.net/2022/01/expanse/)
 
 [View all posts](https://roytang.net/blog)
 
