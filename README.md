@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 25, 2022, 12:11 a.m.](https://roytang.net/2022/01/63f337dbfd006bbe7d6281dee568f5c5/): #sketchdaily Jan 22 Public Pooh 22/365 Still behind! 🇨🇳
 - [Jan. 24, 2022, 12:36 a.m.](https://roytang.net/2022/01/383c2c156e8aae0b5e7d96c606c33971/): #sketchdaily Jan 21 Sol Badguy 21/365 I am behind a few days, typical for the weekend
 - [Jan. 22, 2022, 6:09 p.m.](https://roytang.net/2022/01/1484830672045088769/): Hey, early mythic this month in #MagicArena, first of the year! (Click photos to view full-size)
 - [Jan. 20, 2022, 10:01 p.m.](https://roytang.net/2022/01/99e0084da6aa41c4ca373e9c405f4d69/): #sketchdaily Jan 20 Pikachu 20/365
 - [Jan. 20, 2022, 12:45 p.m.](https://roytang.net/2022/01/1484024280090562560/): Ok PH locals: you guys know that Isko Moreno TV ad (if any of you even still watch TV) where the jingle ends with something like &quot;Ganyan talaga si Scott!&quot; or Skat. Or something, definitely not &quot;Isko&quot;. Who the heck is Scott?!? [22:26] Ok apparently scott was his childhood nickname (?), as portrayed in the Yorme film
-- [Jan. 19, 2022, 9:27 p.m.](https://roytang.net/2022/01/5a791a736ae2d935c511a979e6c2bdc6/): #sketchdaily Jan 19 Secondhand Smoke 19/365
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/0b/fd/0bfdd3d1d52f9f35883817ee73851c8f.jpg)
 - ![](https://roytang.net/media/cache/46/47/4647fc2d78b45c8a36e56b77ff9d0f67.jpg)
 - ![](https://roytang.net/media/cache/24/02/2402b1572d36061c8355ec0ab0619422.jpg)
+- ![](https://roytang.net/media/cache/8e/20/8e20c601f16a1fe62517e7011d646b96.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
