@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Jan. 26, 2022, 7:57 p.m.](https://roytang.net/2022/01/7b397b377d3cc20fd7fb3b9751c9d64c/): #sketchdaily Jan 23 &quot;Dance-Off Bro!&quot; 23/365 Jan 24 Trash Panda 24/365 Jan 25 Running Late 25/365 Jan 26 Hawks 26/365 Some quick doodles today to catchup. The small pad I&#x27;ve been using for the past year or so is about to run out.
+- [Jan. 26, 2022, 7:57 p.m.](https://roytang.net/2022/01/7b397b377d3cc20fd7fb3b9751c9d64c/): #sketchdaily Jan 23 &quot;Dance-Off Bro!&quot; 23/365 Jan 24 Trash Panda 24/365 Jan 25 Running Late 25/365 Jan 26 Hawks 26/365 Some quick doodles today to catchup. The small pad I&#x27;ve been using for the past year or so is about to run out. [20:01] The Hawks photo turned out so blurry. (Click photos to view full-size)
 - [Jan. 25, 2022, 12:11 a.m.](https://roytang.net/2022/01/63f337dbfd006bbe7d6281dee568f5c5/): #sketchdaily Jan 22 Public Pooh 22/365 Still behind! 🇨🇳
 - [Jan. 24, 2022, 12:36 a.m.](https://roytang.net/2022/01/383c2c156e8aae0b5e7d96c606c33971/): #sketchdaily Jan 21 Sol Badguy 21/365 I am behind a few days, typical for the weekend
 - [Jan. 22, 2022, 6:09 p.m.](https://roytang.net/2022/01/1484830672045088769/): Hey, early mythic this month in #MagicArena, first of the year! (Click photos to view full-size)
@@ -39,7 +39,7 @@ Latest sketches:
 
 - ![](https://roytang.net/media/cache/24/02/2402b1572d36061c8355ec0ab0619422.jpg)
 - ![](https://roytang.net/media/cache/8e/20/8e20c601f16a1fe62517e7011d646b96.jpg)
-- ![](https://roytang.net/media/cache/6c/d5/6cd5b41f73d41026b3f65beeac28a6af.jpg)
+- ![](https://roytang.net/media/cache/eb/6d/eb6d42690e16874c36049dccfd32b06d.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
