@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Communication: Nuance](https://roytang.net/2022/02/nuance/)
 - [Blogging More](https://roytang.net/2022/01/blogging-more/)
 - [Weeknotes 2022-01-30](https://roytang.net/2022/01/weeknotes-01-30/)
 - [Leviathan Wakes by James S.A. Corey](https://roytang.net/2022/01/leviathan-wakes/)
 - [Weeknotes 2022-01-23](https://roytang.net/2022/01/weeknotes-01-23/)
-- [Captain Toad: Treasure Tracker](https://roytang.net/2022/01/captain-toad/)
 
 [View all posts](https://roytang.net/blog)
 
