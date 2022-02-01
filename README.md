@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Communication: Just In Time](https://roytang.net/2022/02/jit-comms/)
 - [Final #Sketchdaily (for now)](https://roytang.net/2022/02/final-sketchdaily/)
 - [Communication: Nuance](https://roytang.net/2022/02/nuance/)
 - [Blogging More](https://roytang.net/2022/01/blogging-more/)
 - [Weeknotes 2022-01-30](https://roytang.net/2022/01/weeknotes-01-30/)
-- [Leviathan Wakes by James S.A. Corey](https://roytang.net/2022/01/leviathan-wakes/)
 
 [View all posts](https://roytang.net/blog)
 
