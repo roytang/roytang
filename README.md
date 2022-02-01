@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Final #Sketchdaily (for now)](https://roytang.net/2022/02/final-sketchdaily/)
 - [Communication: Nuance](https://roytang.net/2022/02/nuance/)
 - [Blogging More](https://roytang.net/2022/01/blogging-more/)
 - [Weeknotes 2022-01-30](https://roytang.net/2022/01/weeknotes-01-30/)
 - [Leviathan Wakes by James S.A. Corey](https://roytang.net/2022/01/leviathan-wakes/)
-- [Weeknotes 2022-01-23](https://roytang.net/2022/01/weeknotes-01-23/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -37,9 +37,9 @@ Latest notes:
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/8e/20/8e20c601f16a1fe62517e7011d646b96.jpg)
 - ![](https://roytang.net/media/cache/eb/6d/eb6d42690e16874c36049dccfd32b06d.jpg)
 - ![](https://roytang.net/media/cache/6c/d5/6cd5b41f73d41026b3f65beeac28a6af.jpg)
+- ![](https://roytang.net/media/cache/e5/da/e5da975ee2fed5a25dba802aa7d5ad1c.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
