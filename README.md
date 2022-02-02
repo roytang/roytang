@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Complicated Futility of WordPress](https://roytang.net/2022/02/the-complicated-futility-of-wordpress/)
 - [How to be useless | Psyche Guides](https://roytang.net/2022/01/eccdde971f931c95ab3de31162142172/)
 - [The Only Hat You’ll Ever Need](https://roytang.net/2022/01/33da10ceb8b1861593ec98599b0f2a1e/)
 - [Make Free Stuff](https://roytang.net/2022/01/make-free-stuff/)
 - [Why I Play Games (And So Should You)](https://roytang.net/2022/01/why-i-play-games-and-so-should-you/)
-- [The 22 most anticipated indie games coming in 2022 - Polygon](https://roytang.net/2022/01/667c90073c52ad5fff23bbf4642f2e7a/)
 
 [View all links](https://roytang.net/links)
 
