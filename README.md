@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 5, 2022, 6:56 p.m.](https://roytang.net/2022/02/1489915785828990981/): This law seems like the whatever the opposite of &quot;well-considered&quot; is. Quoted daddyversa&#x27;s tweet: SIM CARD REGISTRATION LAW: 10 Things That You Should Know A Thread
 - [Feb. 3, 2022, 1:26 a.m.](https://roytang.net/2022/02/1488926843864375299/): Ethan Hawke is my life coach Your browser does not support the video tag.
 - [Jan. 30, 2022, 1:02 p.m.](https://roytang.net/2022/01/1487652400735215618/): Managed to hit almost-last-minute Expedition master rank in @EternalCardGame. Good start to the year, but kinda getting tired of the constructed grind, might focus on Sealed League next month maybe? (Click photos to view full-size)
 - [Jan. 27, 2022, 11:43 p.m.](https://roytang.net/2022/01/41c432d22aa27c46d86db01531c4dc92/): #sketchdaily Jan 27 Twister 27/365
 - [Jan. 26, 2022, 8:42 p.m.](https://roytang.net/2022/01/playstation-wrapup-2021/): This was probably the worst of the wrap-ups from the past year. arrived late page didn&#x27;t even work for me at first, had to try again after a week or so design is terrible, lot of wasted space includes global stats, when this is My Wrapup! Have a separate page for that! I was however amused that my second most played game was the Tales of Arise demo, which I didn&#x27;t even play for more than an hour lol Related: My Switch Year in Review
-- [Jan. 26, 2022, 7:57 p.m.](https://roytang.net/2022/01/7b397b377d3cc20fd7fb3b9751c9d64c/): #sketchdaily Jan 23 &quot;Dance-Off Bro!&quot; 23/365 Jan 24 Trash Panda 24/365 Jan 25 Running Late 25/365 Jan 26 Hawks 26/365 (Click photos to view full-size) Some quick doodles today to catchup. The small pad I&#x27;ve been using for the past year or so is about to run out. [20:01] The Hawks photo turned out so blurry. (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
