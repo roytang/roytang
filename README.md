@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 6, 2022, 12:36 a.m.](https://roytang.net/2022/02/1490001475904622592/): @Noahpinion Hey, have you ever done any articles about the Philippines?
 - [Feb. 5, 2022, 7:15 p.m.](https://roytang.net/2022/02/1489920716271095811/): @daddyversa is the current version awaiting the president&#x27;s signature? There is no mention of any requirement for social media providers in this document (no. 2 in your thread above) [19:24] @daddyversa There seems to be an updated version (including the social media amendment) linked from this tweet: Quoted object404&#x27;s tweet: ALERT: Lawmakers in the #Philippines want to send #Filipino netizens to a minimum of 6 years in jail for creating #SocialMedia accounts under an alias under the final version of the #SIMCardRegistration Act. https://www.scribd.com/document/556732483/PH-Subscriber-Identity-Module-SIM-Card-Registration-Act-Final #FreedomOfSpeech #Privacy #Anonymity #Security
 - [Feb. 5, 2022, 6:56 p.m.](https://roytang.net/2022/02/1489915785828990981/): This law seems like the whatever the opposite of &quot;well-considered&quot; is. Quoted daddyversa&#x27;s tweet: SIM CARD REGISTRATION LAW: 10 Things That You Should Know A Thread
 - [Feb. 3, 2022, 1:26 a.m.](https://roytang.net/2022/02/1488926843864375299/): Ethan Hawke is my life coach Your browser does not support the video tag.
 - [Jan. 30, 2022, 1:02 p.m.](https://roytang.net/2022/01/1487652400735215618/): Managed to hit almost-last-minute Expedition master rank in @EternalCardGame. Good start to the year, but kinda getting tired of the constructed grind, might focus on Sealed League next month maybe? (Click photos to view full-size)
-- [Jan. 27, 2022, 11:43 p.m.](https://roytang.net/2022/01/41c432d22aa27c46d86db01531c4dc92/): #sketchdaily Jan 27 Twister 27/365
 
 [View all notes](https://roytang.net/notes)
 
