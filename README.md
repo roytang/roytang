@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The battle for Ring Zero](https://roytang.net/2022/02/53bffc4436680de15607f689fb2af44b/)
+- [deskto.ps](https://roytang.net/2022/02/6e9b205ee41a243ea871b6c7af109f11/)
+- [Aerolith](https://roytang.net/2022/02/d6348801753d1805ddb4af0f13784b4e/)
 - [On the Insanity of Being a Scrabble Enthusiast ‹ Literary  Hub](https://roytang.net/2022/02/d6c24a14d70c1543c77055a752493b9d/)
 - [Narrative Device](https://roytang.net/2022/02/6ff23c05f7de4e89cceddbade283c857/)
-- [The Complicated Futility of WordPress](https://roytang.net/2022/02/the-complicated-futility-of-wordpress/)
-- [How to be useless | Psyche Guides](https://roytang.net/2022/01/eccdde971f931c95ab3de31162142172/)
-- [The Only Hat You’ll Ever Need](https://roytang.net/2022/01/33da10ceb8b1861593ec98599b0f2a1e/)
 
 [View all links](https://roytang.net/links)
 
