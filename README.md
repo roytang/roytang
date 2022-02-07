@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Spider-Man: No Way Home](https://roytang.net/2022/02/spider-man-no-way-home/)
 - [Weeknotes 2022-02-06](https://roytang.net/2022/02/weeknotes-02-06/)
 - [Even More Wordles](https://roytang.net/2022/02/more-wordles/)
 - [Communication: Just In Time](https://roytang.net/2022/02/jit-comms/)
 - [Final #Sketchdaily (for now)](https://roytang.net/2022/02/final-sketchdaily/)
-- [Communication: Nuance](https://roytang.net/2022/02/nuance/)
 
 [View all posts](https://roytang.net/blog)
 
