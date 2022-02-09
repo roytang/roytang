@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Before I go: When it comes to complaining about web browsers](https://roytang.net/2022/02/before-i-go-when-it-comes-to-complaining-about-web-browsers/)
 - [Great communication for software teams](https://roytang.net/2022/02/great-communication-for-software-teams/)
 - [The battle for Ring Zero](https://roytang.net/2022/02/53bffc4436680de15607f689fb2af44b/)
 - [deskto.ps](https://roytang.net/2022/02/6e9b205ee41a243ea871b6c7af109f11/)
 - [Aerolith](https://roytang.net/2022/02/d6348801753d1805ddb4af0f13784b4e/)
-- [On the Insanity of Being a Scrabble Enthusiast ‹ Literary  Hub](https://roytang.net/2022/02/d6c24a14d70c1543c77055a752493b9d/)
 
 [View all links](https://roytang.net/links)
 
