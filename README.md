@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Feb. 11, 2022, 3:01 p.m.](https://roytang.net/2022/02/1492031006601322504/): Streaming some Neon Dynasty limited! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo
+- [Feb. 11, 2022, 3:01 p.m.](https://roytang.net/2022/02/1492031006601322504/): Streaming some Neon Dynasty limited! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo [20:12] Did a sealed and two drafts; none of them went well. Will need to learn this format quickly! YT: https://www.youtube.com/watch?v=X8cs2wM7M7I (Click photos to view full-size)
 - [Feb. 11, 2022, 12:50 a.m.](https://roytang.net/2022/02/1491816923234926592/): @SeresaTagAraw bakit di mo sinama yung hashtags lol
 - [Feb. 8, 2022, 7:04 a.m.](https://roytang.net/2022/02/1490823883141701635/): Campaign season officially begins today. Looking forward to being even more exasperated with local politics as I get inundated with election things. /s
 - [Feb. 7, 2022, 12:02 a.m.](https://roytang.net/2022/02/1490355191140339715/): Alan Cooper on the power struggle in modern tech companies Quoted MrAlanCooper&#x27;s tweet: Creating good user interactions with technology is not a design problem. It’s a power struggle. 1
