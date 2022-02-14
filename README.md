@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Ghostbusters Afterlife (2021)](https://roytang.net/2022/02/ghostbusters-afterlife/)
 - [Weeknotes 2022-02-13](https://roytang.net/2022/02/weeknotes-02-13/)
 - [Instant Messaging Apps](https://roytang.net/2022/02/im-apps/)
 - [Recent TV: Boba Fett, The Witcher, Murderville](https://roytang.net/2022/02/tv-bobafett-witcher2-murderville/)
 - [URLs](https://roytang.net/2022/02/urls/)
-- [Spider-Man: No Way Home](https://roytang.net/2022/02/spider-man-no-way-home/)
 
 [View all posts](https://roytang.net/blog)
 
