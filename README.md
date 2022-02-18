@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Palm Springs (2020)](https://roytang.net/2022/02/palm-springs/)
 - [Meditations by Marcus Aurelius (intro by Gregory Hays)](https://roytang.net/2022/02/meditations/)
 - [Ghostbusters Afterlife (2021)](https://roytang.net/2022/02/ghostbusters-afterlife/)
 - [Weeknotes 2022-02-13](https://roytang.net/2022/02/weeknotes-02-13/)
 - [Instant Messaging Apps](https://roytang.net/2022/02/im-apps/)
-- [Recent TV: Boba Fett, The Witcher, Murderville](https://roytang.net/2022/02/tv-bobafett-witcher2-murderville/)
 
 [View all posts](https://roytang.net/blog)
 
