@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [This Place Was Home - by ND Stevenson](https://roytang.net/2022/02/668e6bcd045b355fa5b596421c3f74df/)
+- [Dan Wang: 2021 letter](https://roytang.net/2022/02/52c3d37234b55dd9c3518dbfbbfba2cf/)
 - [Against an Increasingly User-Hostile Web](https://roytang.net/2022/02/against-an-increasingly-user-hostile-web/)
 - [A Recipe to Your Own Home-Coded Personal Website](https://roytang.net/2022/02/a-recipe-to-your-own-home-coded-personal-website/)
 - [Lena @ Things Of Interest](https://roytang.net/2022/02/7ed0777d44863e8b7c8959f4cf5092f3/)
-- [Today, the distant future](https://roytang.net/2022/02/today-the-distant-future/)
-- [Before I go: When it comes to complaining about web browsers](https://roytang.net/2022/02/before-i-go-when-it-comes-to-complaining-about-web-browsers/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [Feb. 19, 2022, 5:25 a.m.](https://roytang.net/2022/02/1494785134578454528/): New #MagicArena stats email dropped! Sadly it looks like they have really discontinued the most drafted commons/uncommons bit from the old versions. I played so much VOW @_@ 789 games and 177 boosters is a record! (Click photos to view full-size) [05:25] Looks like around 100k gold per season is typical, which makes those events that cost 25k gold entry seem so much more ridiculous. This is the first of these where my favorite format isn&#x27;t traditional constructed. I really should compile my draft stats sometime. #mtgarenastats
 - [Feb. 18, 2022, 10:11 p.m.](https://roytang.net/2022/02/1494675861823492102/): Streaming some Neon Dynasty limited! ep5 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo [2022-02-19 01:22] Couple of drafts today. Had lots of removal but ended up gem negative for the day =/ YT: https://www.youtube.com/watch?v=7Ta3D30uLFA (Click photos to view full-size)
 - [Feb. 16, 2022, 6:26 p.m.](https://roytang.net/2022/02/1493894475424350208/): Streaming some Neon Dynasty limited! ep4 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo [21:21] Did two drafts, one was via the Midweek Magic Phantom bot draft, and another via the usual Premiere Draft. 7-x remains elusive, but I had some bad plays during this run, so definitely my bad. YT: https://www.youtube.com/watch?v=N5e1NzrnwZM (Click photos to view full-size)
 - [Feb. 16, 2022, 1:26 p.m.](https://roytang.net/2022/02/1493818986571526146/): Oh sweet, #Nintendo put up a site where you can generate your #3DS and #WiiU #gaming stats. Lol at YouTube being my 3rd most-played on WiiU; I blame my niece! There is a lot more data I wish I could export from my 3DS though! #My3DSWiiUMemories (Click photos to view full-size)
 - [Feb. 14, 2022, 6:49 p.m.](https://roytang.net/2022/02/1493175547983192064/): Streaming some Neon Dynasty limited! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo [2022-02-15 00:32] Couple of UW drafts tonight, but performance was the same as the last session. The 7-x remains elusive. YT: https://www.youtube.com/watch?v=PhdwyrJV0VI (Click photos to view full-size)
-- [Feb. 12, 2022, 7:08 p.m.](https://roytang.net/2022/02/1492455575069900805/): Streaming some Neon Dynasty limited! ep2 https://www.twitch.tv/twitchyroy [23:48] #mtg #magicarena #twitch #mtgneo Did two drafts today. They were better than yesterday, but we still didn&#x27;t get to 7. =/ YT: https://www.youtube.com/watch?v=JFJ92xM2ufI (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
