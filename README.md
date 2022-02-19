@@ -18,9 +18,9 @@ Latest shared links:
 
 - [That broken tech/content culture cycle](https://roytang.net/2022/02/73d0a9fb1deb5cfb86b5c2bf51e2471e/)
 - [Web3 Is A Mid-Life Crisis - by Ryan Broderick - Garbage Day](https://roytang.net/2022/02/df4b6c3bb3da337d11d1eeb097f87426/)
-- [Web3 Is A Mid-Life Crisis - by Ryan Broderick - Garbage Day](https://roytang.net/2022/02/2365146dd2d517c2bf14ebafcb737976/)
 - [This Place Was Home - by ND Stevenson](https://roytang.net/2022/02/668e6bcd045b355fa5b596421c3f74df/)
 - [Dan Wang: 2021 letter](https://roytang.net/2022/02/52c3d37234b55dd9c3518dbfbbfba2cf/)
+- [Against an Increasingly User-Hostile Web](https://roytang.net/2022/02/against-an-increasingly-user-hostile-web/)
 
 [View all links](https://roytang.net/links)
 
