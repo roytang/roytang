@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Web3 Is A Mid-Life Crisis - by Ryan Broderick - Garbage Day](https://roytang.net/2022/02/df4b6c3bb3da337d11d1eeb097f87426/)
 - [This Place Was Home - by ND Stevenson](https://roytang.net/2022/02/668e6bcd045b355fa5b596421c3f74df/)
 - [Dan Wang: 2021 letter](https://roytang.net/2022/02/52c3d37234b55dd9c3518dbfbbfba2cf/)
 - [Against an Increasingly User-Hostile Web](https://roytang.net/2022/02/against-an-increasingly-user-hostile-web/)
 - [A Recipe to Your Own Home-Coded Personal Website](https://roytang.net/2022/02/a-recipe-to-your-own-home-coded-personal-website/)
-- [Lena @ Things Of Interest](https://roytang.net/2022/02/7ed0777d44863e8b7c8959f4cf5092f3/)
 
 [View all links](https://roytang.net/links)
 
