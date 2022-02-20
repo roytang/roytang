@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 21, 2022, 1:45 a.m.](https://roytang.net/2022/02/1495454609808060416/): @roswellwrites https://sweardle.com/ https://edjefferson.com/letterle/ https://saltong.carldegs.com/ (filipino; with 3 variants) http://obscurdle.com/ https://taximanli.github.io/kotobade-asobou/ (Japanese) https://kuan.vercel.app/ (bisaya, a filipino dialect) [01:49] @roswellwrites https://chaaklau.github.io/zidou/ (cantonese) https://cheeaun.github.io/chengyu-wordle/ (chengyu)
 - [Feb. 20, 2022, 11:22 p.m.](https://roytang.net/2022/02/1495418556783157248/): Late night Neon Dynasty limited! ep6 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo
 - [Feb. 19, 2022, 7:10 a.m.](https://roytang.net/2022/02/hxidirm/): How good are these decks for actual ranked play? (Not very familiar with the Expedition meta)
 - [Feb. 19, 2022, 5:25 a.m.](https://roytang.net/2022/02/1494785134578454528/): New #MagicArena stats email dropped! Sadly it looks like they have really discontinued the most drafted commons/uncommons bit from the old versions. I played so much VOW @_@ 789 games and 177 boosters is a record! (Click photos to view full-size) [05:25] Looks like around 100k gold per season is typical, which makes those events that cost 25k gold entry seem so much more ridiculous. This is the first of these where my favorite format isn&#x27;t traditional constructed. I really should compile my draft stats sometime. #mtgarenastats
 - [Feb. 18, 2022, 10:11 p.m.](https://roytang.net/2022/02/1494675861823492102/): Streaming some Neon Dynasty limited! ep5 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo [2022-02-19 01:22] Couple of drafts today. Had lots of removal but ended up gem negative for the day =/ YT: https://www.youtube.com/watch?v=7Ta3D30uLFA (Click photos to view full-size)
-- [Feb. 16, 2022, 6:26 p.m.](https://roytang.net/2022/02/1493894475424350208/): Streaming some Neon Dynasty limited! ep4 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo [21:21] Did two drafts, one was via the Midweek Magic Phantom bot draft, and another via the usual Premiere Draft. 7-x remains elusive, but I had some bad plays during this run, so definitely my bad. YT: https://www.youtube.com/watch?v=N5e1NzrnwZM (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
