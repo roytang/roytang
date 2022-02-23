@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [EDSA and Historical Revisionism](https://roytang.net/2022/02/edsa36/)
 - [Peacemaker](https://roytang.net/2022/02/peacemaker/)
 - [Weeknotes 2022-02-20](https://roytang.net/2022/02/weeknotes-02-20/)
 - [On Surveys](https://roytang.net/2022/02/on-surveys/)
 - [Palm Springs (2020)](https://roytang.net/2022/02/palm-springs/)
-- [Meditations by Marcus Aurelius (intro by Gregory Hays)](https://roytang.net/2022/02/meditations/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 23, 2022, 3:31 p.m.](https://roytang.net/2022/02/1496387148299264004/): @jaymelynilao frontend ba ang work mo now?
 - [Feb. 22, 2022, 7:03 p.m.](https://roytang.net/2022/02/1496078214946566155/): Third night in a row Neon Dynasty limited! ep8 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgneo #twitch [22:49] Tonight was a good night! Finally got to 7. Second draft wasn&#x27;t too shabby either. YT: https://www.youtube.com/watch?v=Cd4uS5kIE0o (Click photos to view full-size)
 - [Feb. 21, 2022, 7:07 p.m.](https://roytang.net/2022/02/1495716824041893888/): Normal night Neon Dynasty limited! ep7 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo [2022-02-22 00:30] Finally managed to get 7 wins... over two drafts lol. One of the runs was pretty good, the other was terrible (lost to mana issues, etc) YT: https://www.youtube.com/watch?v=QoVSaUrYtCA (Click photos to view full-size)
 - [Feb. 21, 2022, 4:30 a.m.](https://roytang.net/2022/02/1495496046373646336/): Relive the iconic career of The @undertaker following his WWE Hall of Fame induction announcement. #WWEHOF Your browser does not support the video tag.
 - [Feb. 21, 2022, 1:45 a.m.](https://roytang.net/2022/02/1495454609808060416/): @roswellwrites https://sweardle.com/ https://edjefferson.com/letterle/ https://saltong.carldegs.com/ (filipino; with 3 variants) http://obscurdle.com/ https://taximanli.github.io/kotobade-asobou/ (Japanese) https://kuan.vercel.app/ (bisaya, a filipino dialect) [01:49] @roswellwrites https://chaaklau.github.io/zidou/ (cantonese) https://cheeaun.github.io/chengyu-wordle/ (chengyu)
-- [Feb. 20, 2022, 11:22 p.m.](https://roytang.net/2022/02/1495418556783157248/): Late night Neon Dynasty limited! ep6 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo [2022-02-21 02:04] Well, this was a terrible idea. Did two drafts, one of them the worst of the run so far, and the 7-x remains elusive. YT: https://www.youtube.com/watch?v=6fgJRiDMjUk (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
