@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 24, 2022, 7:04 p.m.](https://roytang.net/2022/02/1496803090741215234/): Neon Dynasty limited! ep9 https://www.twitch.tv/twitchyroy
 - [Feb. 23, 2022, 3:53 p.m.](https://roytang.net/2022/02/1496392814455709698/): @Gingerhazing both of you need to clear your browser&#x27;s cache
 - [Feb. 23, 2022, 3:31 p.m.](https://roytang.net/2022/02/1496387148299264004/): @jaymelynilao frontend ba ang work mo now?
 - [Feb. 22, 2022, 7:03 p.m.](https://roytang.net/2022/02/1496078214946566155/): Third night in a row Neon Dynasty limited! ep8 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgneo #twitch [22:49] Tonight was a good night! Finally got to 7. Second draft wasn&#x27;t too shabby either. YT: https://www.youtube.com/watch?v=Cd4uS5kIE0o (Click photos to view full-size)
 - [Feb. 21, 2022, 7:07 p.m.](https://roytang.net/2022/02/1495716824041893888/): Normal night Neon Dynasty limited! ep7 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo [2022-02-22 00:30] Finally managed to get 7 wins... over two drafts lol. One of the runs was pretty good, the other was terrible (lost to mana issues, etc) YT: https://www.youtube.com/watch?v=QoVSaUrYtCA (Click photos to view full-size)
-- [Feb. 21, 2022, 4:30 a.m.](https://roytang.net/2022/02/1495496046373646336/): Relive the iconic career of The @undertaker following his WWE Hall of Fame induction announcement. #WWEHOF Your browser does not support the video tag.
 
 [View all notes](https://roytang.net/notes)
 
