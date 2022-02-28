@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Strange Horizons - Tomorrow Is Waiting By Holli Mintzer](https://roytang.net/2022/02/0c907985fc73bef69dde9d3cc0d10585/)
 - [Everything all the time and everywhere - by Ryan Broderick](https://roytang.net/2022/02/eec57e3e17379a85b5e30170c3e20247/)
 - [How Websites Die ⁑ Wesley’s Notebook](https://roytang.net/2022/02/96900b240f8b24abf53c44ed13947c16/)
 - [Misidentifying talent](https://roytang.net/2022/02/68feb1237ca74fba28f42e7eb812c1aa/)
 - [Pow! Zap! Comics on the internet? On the big screen! Biff!!](https://roytang.net/2022/02/4a8da0672ae6293ece4e8068d24792f0/)
-- [That broken tech/content culture cycle](https://roytang.net/2022/02/73d0a9fb1deb5cfb86b5c2bf51e2471e/)
 
 [View all links](https://roytang.net/links)
 
