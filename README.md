@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 2, 2022, 5:08 p.m.](https://roytang.net/2022/03/1498948460971802634/): Neon Dynasty limited! ep12 - Quick Drafts https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo
 - [March 1, 2022, 11:33 a.m.](https://roytang.net/2022/03/t3y7h9/): Posted on r/StreetFighter: SFV: Any way to export my fighter profile data? There&#x27;s a whole bunch of stats there in the fighter profile I&#x27;d like to be able to export to my PC (any parseable format is fine), likes win rates, per character usage rates, etc. Anyone know if there&#x27;s any way to extract or export that data? I have both PS4 and Steam accounts, so if possible I&#x27;d like to be able to export data for both profiles.
 - [Feb. 27, 2022, 3:57 p.m.](https://roytang.net/2022/02/1497843283480879118/): Threw some gems away on the #mtgneo #MagicArena open this weekend. My sealed deck felt good, and I had the choice of 2 or 4 colors, but the odds were not in my favor. I was bummed so I did a quick draft afterwards which went much better! YT: https://www.youtube.com/watch?v=chW2WWph4i8 (Click photos to view full-size) [16:01] Doing poorly at an Arena Open is roughly the same level of feel bad as doing poorly at a GP, except at least I didn&#x27;t have to travel and spend a bunch of money (only gems) just to get trounced!
 - [Feb. 25, 2022, 6:21 p.m.](https://roytang.net/2022/02/1497154885002924037/): Neon Dynasty limited! ep10 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgneo [23:24] This was a good night; both drafts were profitable! Next: Arena Open this weekend! YT: https://www.youtube.com/watch?v=D2Ms8W9Xy0c (Click photos to view full-size)
 - [Feb. 25, 2022, 5:07 p.m.](https://roytang.net/2022/02/1497136051298570244/): Managed to hit Masters a few days early in @EternalCardGame , now I&#x27;m ready for next month&#x27;s open! (Click photos to view full-size)
-- [Feb. 24, 2022, 7:04 p.m.](https://roytang.net/2022/02/1496803090741215234/): Neon Dynasty limited! ep9 https://www.twitch.tv/twitchyroy [2022-02-25 15:02] #mtg #magicarena #mtgneo #twitch Managed two drafts last night, but they were bleah. One more day of practice remains, hopefully we get another good day. YT: https://www.youtube.com/watch?v=I1toimLBgw8 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
