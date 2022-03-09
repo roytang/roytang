@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [TIL: Autofocus inputs are an accessibility problem | by Gavyn McKenzie | Medium](https://roytang.net/2022/03/b6a10da46de8ca5c99aca4ef2c6e288b/)
 - [The Unbearable Lightness of Web Pages](https://roytang.net/2022/03/60ecf07635fcd4712dfae5f96761f351/)
 - [Strange Horizons - Tomorrow Is Waiting By Holli Mintzer](https://roytang.net/2022/02/0c907985fc73bef69dde9d3cc0d10585/)
 - [Everything all the time and everywhere - by Ryan Broderick](https://roytang.net/2022/02/eec57e3e17379a85b5e30170c3e20247/)
 - [How Websites Die ⁑ Wesley’s Notebook](https://roytang.net/2022/02/96900b240f8b24abf53c44ed13947c16/)
-- [Misidentifying talent](https://roytang.net/2022/02/68feb1237ca74fba28f42e7eb812c1aa/)
 
 [View all links](https://roytang.net/links)
 
