@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 12, 2022, 5:03 p.m.](https://roytang.net/2022/03/1502570914319196165/): Dear @Viber can you please show me any other ads other than these annoying UniThieves ones?
 - [March 11, 2022, 2:14 a.m.](https://roytang.net/2022/03/1501984781352898582/): Decided to do one final (unstreamed) #MTGNEO quick draft before they rotate out. Unfortunately this deck didn&#x27;t do too well, finishing 3-3 (mana screw much?), and that&#x27;s the end of my Neon Dynasty run on #MagicArena. Time to get ready for New Capenna! (Click photos to view full-size)
 - [March 10, 2022, 8:06 p.m.](https://roytang.net/2022/03/1501892239617785859/): I think it&#x27;s pretty obvious why Russia is marking their stuff with Zs. #streetfighterv (Zangief beat me even though I was sorta wearing Ukranian colors) (Click photos to view full-size)
 - [March 4, 2022, 11:46 p.m.](https://roytang.net/2022/03/1499773409605021696/): @SeresaTagAraw Akala ko ba DDS family kayo lol
 - [March 4, 2022, 11:37 p.m.](https://roytang.net/2022/03/hzbsdvk/): It&#x27;s even more annoying given that a good part of the world is still in a pandemic, and many would have been unable or unwilling to go out to theaters to watch in the first few days, and after that people just casually drop spoilers wherever. I was only able to watch No Way Home a couple of weeks ago because there was an Omicron surge in my country at the time it came out and I had no way to watch it safely. To say that I was disappointed with how much the internet spoiled to me is putting
-- [March 4, 2022, 4:29 p.m.](https://roytang.net/2022/03/08a99408e883fc81ddbd4c0d84fbbf6f/): Watched Free Guy (2021) today on a whim. This film is way better than I expected it to be, given the premise. A fun romp, with decent performances by Ryan Reynolds and Jodie comer (who I had previously only seen in The Last Duel). A fun popcorn flick!
 
 [View all notes](https://roytang.net/notes)
 
