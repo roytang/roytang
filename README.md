@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-03-13](https://roytang.net/2022/03/weeknotes-03-13/)
 - [The Batman (2022)](https://roytang.net/2022/03/the-batman/)
 - [Weeknotes 2022-03-06](https://roytang.net/2022/03/weeknotes-03-06/)
 - [Books: The Lathe of Heaven by Ursula K. Le Guin](https://roytang.net/2022/03/lathe-of-heaven-/)
 - [Weeknotes 2022-02-27 The Ravages of War](https://roytang.net/2022/02/weeknotes-02-27/)
-- [EDSA and Historical Revisionism](https://roytang.net/2022/02/edsa36/)
 
 [View all posts](https://roytang.net/blog)
 
