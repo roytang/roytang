@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Don’t ask forgiveness, radiate intent | by Elizabeth Ayer](https://roytang.net/2022/03/4d90b0f616061ae320982907d0b82c75/)
 - [TIL: Autofocus inputs are an accessibility problem | by Gavyn McKenzie | Medium](https://roytang.net/2022/03/b6a10da46de8ca5c99aca4ef2c6e288b/)
 - [The Unbearable Lightness of Web Pages](https://roytang.net/2022/03/60ecf07635fcd4712dfae5f96761f351/)
 - [Strange Horizons - Tomorrow Is Waiting By Holli Mintzer](https://roytang.net/2022/02/0c907985fc73bef69dde9d3cc0d10585/)
 - [Everything all the time and everywhere - by Ryan Broderick](https://roytang.net/2022/02/eec57e3e17379a85b5e30170c3e20247/)
-- [How Websites Die ⁑ Wesley’s Notebook](https://roytang.net/2022/02/96900b240f8b24abf53c44ed13947c16/)
 
 [View all links](https://roytang.net/links)
 
