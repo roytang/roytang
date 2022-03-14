@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Books: The Last Continent by Terry Pratchett (Discworld #22)](https://roytang.net/2022/03/last-continent/)
 - [My Neon Dynasty Limited Recap](https://roytang.net/2022/03/mtgneo-limited-recap/)
 - [Weeknotes 2022-03-13](https://roytang.net/2022/03/weeknotes-03-13/)
 - [The Batman (2022)](https://roytang.net/2022/03/the-batman/)
 - [Weeknotes 2022-03-06](https://roytang.net/2022/03/weeknotes-03-06/)
-- [Books: The Lathe of Heaven by Ursula K. Le Guin](https://roytang.net/2022/03/lathe-of-heaven-/)
 
 [View all posts](https://roytang.net/blog)
 
