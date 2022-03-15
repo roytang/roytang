@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 16, 2022, 12:47 a.m.](https://roytang.net/2022/03/1503774956840112128/): Modern Seinfeld: the Uber driver Your browser does not support the video tag.
 - [March 13, 2022, 2:28 a.m.](https://roytang.net/2022/03/1502713188105654274/): Surprisingly, I am #3 worldwide in Blood Rage lol #gaming (Click photos to view full-size)
 - [March 12, 2022, 7 p.m.](https://roytang.net/2022/03/1502600499073515523/): READ: Over 2,000 Philippine Science High School scholars, alumni and faculty come out in support of Vice President Leni Robredo’s presidential bid | via @XaveGregorio (Click photos to view full-size)
 - [March 12, 2022, 5:03 p.m.](https://roytang.net/2022/03/1502570914319196165/): Dear @Viber can you please show me any other ads other than these annoying UniThieves ones?
 - [March 11, 2022, 2:14 a.m.](https://roytang.net/2022/03/1501984781352898582/): Decided to do one final (unstreamed) #MTGNEO quick draft before they rotate out. Unfortunately this deck didn&#x27;t do too well, finishing 3-3 (mana screw much?), and that&#x27;s the end of my Neon Dynasty run on #MagicArena. Time to get ready for New Capenna! (Click photos to view full-size)
-- [March 10, 2022, 8:06 p.m.](https://roytang.net/2022/03/1501892239617785859/): I think it&#x27;s pretty obvious why Russia is marking their stuff with Zs. #streetfighterv (Zangief beat me even though I was sorta wearing Ukranian colors) (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
