@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 17, 2022, 12:58 a.m.](https://roytang.net/2022/03/1504140148824768513/): Thread about names Quoted Hung_TT_Nguyen&#x27;s tweet: Vietnamese and other peoples of Southeast Asia have naming conventions very much different from those in the Anglosphere. For us, writing our names overseas is a big headache. Let me first explain Vietnamese names, then I&#x27;ll touch on names in other cultures.
 - [March 16, 2022, 12:47 a.m.](https://roytang.net/2022/03/1503774956840112128/): Modern Seinfeld: the Uber driver Your browser does not support the video tag.
 - [March 13, 2022, 2:28 a.m.](https://roytang.net/2022/03/1502713188105654274/): Surprisingly, I am #3 worldwide in Blood Rage lol #gaming (Click photos to view full-size)
 - [March 12, 2022, 7 p.m.](https://roytang.net/2022/03/1502600499073515523/): READ: Over 2,000 Philippine Science High School scholars, alumni and faculty come out in support of Vice President Leni Robredo’s presidential bid | via @XaveGregorio (Click photos to view full-size)
 - [March 12, 2022, 5:03 p.m.](https://roytang.net/2022/03/1502570914319196165/): Dear @Viber can you please show me any other ads other than these annoying UniThieves ones?
-- [March 11, 2022, 2:14 a.m.](https://roytang.net/2022/03/1501984781352898582/): Decided to do one final (unstreamed) #MTGNEO quick draft before they rotate out. Unfortunately this deck didn&#x27;t do too well, finishing 3-3 (mana screw much?), and that&#x27;s the end of my Neon Dynasty run on #MagicArena. Time to get ready for New Capenna! (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
