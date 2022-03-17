@@ -9,8 +9,8 @@ Latest blog posts:
 - [Names](https://roytang.net/2022/03/names/)
 - [Context Collapse](https://roytang.net/2022/03/context-collapse/)
 - [Books: The Last Continent by Terry Pratchett (Discworld #22)](https://roytang.net/2022/03/last-continent/)
+- [My Crimson Vow Limited Recap](https://roytang.net/2022/03/mtgcrimson-limited-recap/)
 - [My Neon Dynasty Limited Recap](https://roytang.net/2022/03/mtgneo-limited-recap/)
-- [Weeknotes 2022-03-13](https://roytang.net/2022/03/weeknotes-03-13/)
 
 [View all posts](https://roytang.net/blog)
 
