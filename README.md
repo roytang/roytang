@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 17, 2022, 4 p.m.](https://roytang.net/2022/03/1abc0afd11dc2d935e4b5ee7c01019d4/): So it turns out if you request an export of your data from Amazon they give you this ridiculously long list of zips that need to be downloaded individually. 110 items! There are 33 items for Kindle settings alone!
 - [March 17, 2022, 12:58 a.m.](https://roytang.net/2022/03/1504140148824768513/): Thread about names Quoted Hung_TT_Nguyen&#x27;s tweet: Vietnamese and other peoples of Southeast Asia have naming conventions very much different from those in the Anglosphere. For us, writing our names overseas is a big headache. Let me first explain Vietnamese names, then I&#x27;ll touch on names in other cultures.
 - [March 16, 2022, 12:47 a.m.](https://roytang.net/2022/03/1503774956840112128/): Modern Seinfeld: the Uber driver Your browser does not support the video tag.
 - [March 13, 2022, 2:28 a.m.](https://roytang.net/2022/03/1502713188105654274/): Surprisingly, I am #3 worldwide in Blood Rage lol #gaming (Click photos to view full-size)
 - [March 12, 2022, 7 p.m.](https://roytang.net/2022/03/1502600499073515523/): READ: Over 2,000 Philippine Science High School scholars, alumni and faculty come out in support of Vice President Leni Robredo’s presidential bid | via @XaveGregorio (Click photos to view full-size)
-- [March 12, 2022, 5:03 p.m.](https://roytang.net/2022/03/1502570914319196165/): Dear @Viber can you please show me any other ads other than these annoying UniThieves ones?
 
 [View all notes](https://roytang.net/notes)
 
