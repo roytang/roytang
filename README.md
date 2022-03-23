@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 23, 2022, 7:45 p.m.](https://roytang.net/2022/03/1506598089993474049/): Streaming some https://itch.io/ bundle games! https://www.twitch.tv/twitchyroy #gaming
 - [March 23, 2022, 5:58 p.m.](https://roytang.net/2022/03/1506571054759636995/): Early Expedition Master for me this month in @EternalCardGame. Hopefully we do well in this weekend&#x27;s open! (Click photos to view full-size)
 - [March 22, 2022, 1:52 a.m.](https://roytang.net/2022/03/i1k2qwn/): I&#x27;ve been meaning to comment on the whole &quot;technology&quot; meme, I guess this thread is fine for it. IIRC the original &quot;technology&quot; response in the stream was to the problem of cards being repeated across sets with different printings, i.e. your collection has 8 copies of each temple or 12 copies of Duress or whatever. People are saying why can&#x27;t these just be cosmetics (card skins) or autodusted or whatever. It seems pretty likely that this problem exists because they inherited their data structures from MTGO which mirrors the reality of paper, where each of a card&#x27;s printings exists as
 - [March 21, 2022, 4:04 p.m.](https://roytang.net/2022/03/1505817616128036864/): Casual Eternal Expedition stream https://www.twitch.tv/twitchyroy @EternalCardGame [18:08] @EternalCardGame YT: https://www.youtube.com/watch?v=KyE5GQP8Axc
 - [March 18, 2022, 3:09 p.m.](https://roytang.net/2022/03/1504716556143538176/): This story of a guy accidentally discovering his wife is the world&#x27;s best Tetris player is absolutely one of my favourite things and I keep going back to it. https://archive.boston.com/news/globe/magazine/articles/2007/08/19/bizarro_world/ (Click photos to view full-size)
-- [March 17, 2022, 4 p.m.](https://roytang.net/2022/03/1abc0afd11dc2d935e4b5ee7c01019d4/): So it turns out if you request an export of your data from Amazon they give you this ridiculously long list of zips that need to be downloaded individually. 110 items! There are 33 items for Kindle settings alone!
 
 [View all notes](https://roytang.net/notes)
 
