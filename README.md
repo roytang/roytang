@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Watching March 2022](https://roytang.net/2022/03/watching-mar-2022/)
 - [Yooka-Laylee and the Impossible Lair](https://roytang.net/2022/03/impossible-lair/)
 - [Weeknotes 2022-03-20](https://roytang.net/2022/03/weeknotes-03-20/)
 - [Names](https://roytang.net/2022/03/names/)
 - [Context Collapse](https://roytang.net/2022/03/context-collapse/)
-- [Books: The Last Continent by Terry Pratchett (Discworld #22)](https://roytang.net/2022/03/last-continent/)
 
 [View all posts](https://roytang.net/blog)
 
