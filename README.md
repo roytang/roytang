@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 27, 2022, 7:15 p.m.](https://roytang.net/2022/03/1508040061954101249/): I did a bunch of runs at the #MagicArena Alchemy Metagame challenge this weekend, but the 7-win run remained elusive. Overall I ended up down 3500 gold but also up 35 packs, so that&#x27;s not too bad a rate, but still a sweep would have been nice. (Click photos to view full-size) [19:15] I ran two decks recommended by @urlichmtg , with slight tweaks. The RB deck was pretty sweet, but as the weekend went on, the grindy mirror match became more and more common so I switched to Runes. Quoted urlichmtg&#x27;s tweet: Two decks I&#x27;ll be using at the
 - [March 27, 2022, 5:28 p.m.](https://roytang.net/2022/03/santuario-leni-kiko/): For a few weeks now, the nearby Santuario which I regularly walk by has had a series of signs/banners/tarps promoting the candidacy of #LeniKiko2022 (Click through for more photos)
 - [March 25, 2022, 4:04 p.m.](https://roytang.net/2022/03/i21gqcd/): During the economy stream they mentioned that there are still plans for future historic anthologies, but no specific details have been announced yet
 - [March 24, 2022, 11:11 p.m.](https://roytang.net/2022/03/1507012190724796422/): Re: Dusting on #MagicArena Quoted roytang&#x27;s tweet: Just dumped a whole bunch of MTGO rares.mythics so that I could play constructed. Selling always makes me feel bad =/
 - [March 23, 2022, 7:45 p.m.](https://roytang.net/2022/03/1506598089993474049/): Streaming some https://itch.io/ bundle games! https://www.twitch.tv/twitchyroy #gaming [22:37] Today I played: Signs of the Sojourner https://echodog-games.itch.io/signs-o... Cosmic Express https://draknek.itch.io/cosmic-express Overland https://finji.itch.io/overland YT: https://www.youtube.com/watch?v=ngLS81o8iB4
-- [March 23, 2022, 5:58 p.m.](https://roytang.net/2022/03/1506571054759636995/): Early Expedition Master for me this month in @EternalCardGame. Hopefully we do well in this weekend&#x27;s open! (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
