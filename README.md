@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [March 27, 2022, 5:28 p.m.](https://roytang.net/2022/03/santuario-leni-kiko/): (Click through for more photos)
+- [March 27, 2022, 5:28 p.m.](https://roytang.net/2022/03/santuario-leni-kiko/): For a few weeks now, the nearby Santuario which I regularly walk by has had a series of signs/banners/tarps promoting the candidacy of #LeniKiko2022 (Click through for more photos)
 - [March 25, 2022, 4:04 p.m.](https://roytang.net/2022/03/i21gqcd/): During the economy stream they mentioned that there are still plans for future historic anthologies, but no specific details have been announced yet
 - [March 24, 2022, 11:11 p.m.](https://roytang.net/2022/03/1507012190724796422/): Re: Dusting on #MagicArena Quoted roytang&#x27;s tweet: Just dumped a whole bunch of MTGO rares.mythics so that I could play constructed. Selling always makes me feel bad =/
 - [March 23, 2022, 7:45 p.m.](https://roytang.net/2022/03/1506598089993474049/): Streaming some https://itch.io/ bundle games! https://www.twitch.tv/twitchyroy #gaming [22:37] Today I played: Signs of the Sojourner https://echodog-games.itch.io/signs-o... Cosmic Express https://draknek.itch.io/cosmic-express Overland https://finji.itch.io/overland YT: https://www.youtube.com/watch?v=ngLS81o8iB4
