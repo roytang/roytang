@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 30, 2022, 8:24 p.m.](https://roytang.net/2022/03/1509144566791905285/): Streaming some https://itch.io/ bundle games with a shirt on! https://www.twitch.tv/twitchyroy #twitch
 - [March 27, 2022, 7:42 p.m.](https://roytang.net/2022/03/1508046746789695497/): The other day I accidentally ordered the regular Jolly Hotdog meal instead of the normal &quot;cheesy&quot; one, and when I opened the box and found out, it looked so sad. Or maybe that was just me. (Click photos to view full-size)
 - [March 27, 2022, 7:15 p.m.](https://roytang.net/2022/03/1508040061954101249/): I did a bunch of runs at the #MagicArena Alchemy Metagame challenge this weekend, but the 7-win run remained elusive. Overall I ended up down 3500 gold but also up 35 packs, so that&#x27;s not too bad a rate, but still a sweep would have been nice. (Click photos to view full-size) [19:15] I ran two decks recommended by @urlichmtg , with slight tweaks. The RB deck was pretty sweet, but as the weekend went on, the grindy mirror match became more and more common so I switched to Runes. Quoted urlichmtg&#x27;s tweet: Two decks I&#x27;ll be using at the
 - [March 27, 2022, 5:28 p.m.](https://roytang.net/2022/03/santuario-leni-kiko/): For a few weeks now, the nearby Santuario which I regularly walk by has had a series of signs/banners/tarps promoting the candidacy of #LeniKiko2022 (Click through for more photos)
 - [March 25, 2022, 4:04 p.m.](https://roytang.net/2022/03/i21gqcd/): During the economy stream they mentioned that there are still plans for future historic anthologies, but no specific details have been announced yet
-- [March 24, 2022, 11:11 p.m.](https://roytang.net/2022/03/1507012190724796422/): Re: Dusting on #MagicArena Quoted roytang&#x27;s tweet: Just dumped a whole bunch of MTGO rares.mythics so that I could play constructed. Selling always makes me feel bad =/
 
 [View all notes](https://roytang.net/notes)
 
