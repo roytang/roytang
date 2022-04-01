@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Follow Friday #1](https://roytang.net/2022/04/follow-friday-1/)
 - [Weeknotes 2022-03-27](https://roytang.net/2022/03/weeknotes-03-27/)
 - [Watching March 2022](https://roytang.net/2022/03/watching-mar-2022/)
 - [Yooka-Laylee and the Impossible Lair](https://roytang.net/2022/03/impossible-lair/)
 - [Weeknotes 2022-03-20](https://roytang.net/2022/03/weeknotes-03-20/)
-- [Names](https://roytang.net/2022/03/names/)
 
 [View all posts](https://roytang.net/blog)
 
