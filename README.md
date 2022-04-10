@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-04-10](https://roytang.net/2022/04/weeknotes-04-10/)
 - [Ludum Dare 50: Untitled Shooty Game](https://roytang.net/2022/04/ludum-dare-50-shooty/)
 - [Weeknotes 2022-04-03](https://roytang.net/2022/04/weeknotes-04-03/)
 - [Follow Friday #1](https://roytang.net/2022/04/follow-friday-1/)
 - [Weeknotes 2022-03-27](https://roytang.net/2022/03/weeknotes-03-27/)
-- [Watching March 2022](https://roytang.net/2022/03/watching-mar-2022/)
 
 [View all posts](https://roytang.net/blog)
 
