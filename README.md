@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Using Windows after 15 years on Linux · duncanlock.net](https://roytang.net/2022/04/4fe24843e7529126b9f8624e4dfc04fd/)
 - [Contrachrome](https://roytang.net/2022/04/599e9d69d4189bd63fba226f7ba60aba/)
 - [Competitive Scrabble: I was going to quit playing. Then something utterly nuts happened.](https://roytang.net/2022/03/a24939cae382a5e9b8af1c129f7084ed/)
 - [Those HTML Attributes You Never Use — Smashing Magazine](https://roytang.net/2022/03/66c5dd4bf278ea0177cfb5cee8fc2d33/)
 - [🟥 &quot;Time spent on app&quot; is not a metric of success](https://roytang.net/2022/03/a583f9b8f3cced6d0d81f3c9e65bdaf0/)
-- [Wordle, 15 Million Tweets Later / Robert Lesser / Observable](https://roytang.net/2022/03/59196c8fa0361210259d27928dda2528/)
 
 [View all links](https://roytang.net/links)
 
