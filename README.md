@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Morning Routine and Work Day, Spring 2022 – WARREN ELLIS LTD](https://roytang.net/2022/04/cf190deea85e4d77aab077a6887e8fec/)
+- [home sweet homepage](https://roytang.net/2022/04/673e61d956998969d427dcf53fec6d5f/)
 - [does china have a culture of hypertext? | maya.land](https://roytang.net/2022/04/3ca21229201fead253ad1642eaf3e18e/)
 - [Researchers Identify ‘Master Problem’ Underlying All Cryptography](https://roytang.net/2022/04/8ceafa5ce12f7c42fc9e3f93db23fc38/)
 - [Using Windows after 15 years on Linux · duncanlock.net](https://roytang.net/2022/04/4fe24843e7529126b9f8624e4dfc04fd/)
-- [Contrachrome](https://roytang.net/2022/04/599e9d69d4189bd63fba226f7ba60aba/)
-- [Competitive Scrabble: I was going to quit playing. Then something utterly nuts happened.](https://roytang.net/2022/03/a24939cae382a5e9b8af1c129f7084ed/)
 
 [View all links](https://roytang.net/links)
 
