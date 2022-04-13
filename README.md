@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 13, 2022, 8:59 p.m.](https://roytang.net/2022/04/i4k5wbi/): Your sideboard guide has -2 lantern vs control but only one in the main.
 - [April 13, 2022, 3:21 p.m.](https://roytang.net/2022/04/1514141710569275395/): Me and my 80 year old Lola talking about the successful rallies of VP Leni, then my aunt who&#x27;s Marcos loyalist passed by and overheard our convo. Tita: Basta ako BBM ako Lola: Bahala ka kung sino gusto mo iboto! (in angry sarcastic voice) 1/2
 - [April 11, 2022, 2:19 a.m.](https://roytang.net/2022/04/i46yuud/): In paper packs, there is a chance of a second rare/mythic via a foil right? I guess that doesn&#x27;t happen in Arena? Been drafting on Arena a while but never thought about it. Does that means Arena drafting doesn&#x27;t accurately model paper drafting?
 - [April 6, 2022, 12:50 a.m.](https://roytang.net/2022/04/1511385846083387393/): @Westraid never read this, how different is it from the film?
 - [March 30, 2022, 8:24 p.m.](https://roytang.net/2022/03/1509144566791905285/): Streaming some https://itch.io/ bundle games with a shirt on! https://www.twitch.tv/twitchyroy #twitch [2022-03-31 00:06] The games I played today: Witch Way https://gleeson.itch.io/witchway Lenna&#x27;s Inception https://tccoxon.itch.io/lennas-inception No Delivery https://horror-n-oates.itch.io/no-delivery YT: https://www.youtube.com/watch?v=h7FVStKY_D8
-- [March 27, 2022, 7:42 p.m.](https://roytang.net/2022/03/1508046746789695497/): The other day I accidentally ordered the regular Jolly Hotdog meal instead of the normal &quot;cheesy&quot; one, and when I opened the box and found out, it looked so sad. Or maybe that was just me. (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
