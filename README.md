@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 13, 2022, 3:21 p.m.](https://roytang.net/2022/04/1514141710569275395/): Me and my 80 year old Lola talking about the successful rallies of VP Leni, then my aunt who&#x27;s Marcos loyalist passed by and overheard our convo. Tita: Basta ako BBM ako Lola: Bahala ka kung sino gusto mo iboto! (in angry sarcastic voice) 1/2
 - [April 11, 2022, 2:19 a.m.](https://roytang.net/2022/04/i46yuud/): In paper packs, there is a chance of a second rare/mythic via a foil right? I guess that doesn&#x27;t happen in Arena? Been drafting on Arena a while but never thought about it. Does that means Arena drafting doesn&#x27;t accurately model paper drafting?
 - [April 6, 2022, 12:50 a.m.](https://roytang.net/2022/04/1511385846083387393/): @Westraid never read this, how different is it from the film?
 - [March 30, 2022, 8:24 p.m.](https://roytang.net/2022/03/1509144566791905285/): Streaming some https://itch.io/ bundle games with a shirt on! https://www.twitch.tv/twitchyroy #twitch [2022-03-31 00:06] The games I played today: Witch Way https://gleeson.itch.io/witchway Lenna&#x27;s Inception https://tccoxon.itch.io/lennas-inception No Delivery https://horror-n-oates.itch.io/no-delivery YT: https://www.youtube.com/watch?v=h7FVStKY_D8
 - [March 27, 2022, 7:42 p.m.](https://roytang.net/2022/03/1508046746789695497/): The other day I accidentally ordered the regular Jolly Hotdog meal instead of the normal &quot;cheesy&quot; one, and when I opened the box and found out, it looked so sad. Or maybe that was just me. (Click photos to view full-size)
-- [March 27, 2022, 7:15 p.m.](https://roytang.net/2022/03/1508040061954101249/): I did a bunch of runs at the #MagicArena Alchemy Metagame challenge this weekend, but the 7-win run remained elusive. Overall I ended up down 3500 gold but also up 35 packs, so that&#x27;s not too bad a rate, but still a sweep would have been nice. (Click photos to view full-size) [19:15] I ran two decks recommended by @urlichmtg , with slight tweaks. The RB deck was pretty sweet, but as the weekend went on, the grindy mirror match became more and more common so I switched to Runes. Quoted urlichmtg&#x27;s tweet: Two decks I&#x27;ll be using at the
 
 [View all notes](https://roytang.net/notes)
 
