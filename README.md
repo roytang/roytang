@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 17, 2022, 2:12 p.m.](https://roytang.net/2022/04/1515573837013811203/): Lahat tayo magsisilbing Liwanag Sa Dilim ☀️ Maraming salamat sa ating mga Volunteer Film Workers, Artists, and supporters from different communities na naging kabahagi natin sa paglikha ng music video na ito! 🙏🏻 #LeniLiwanagSaDilim Your browser does not support the video tag.
 - [April 14, 2022, 11:14 a.m.](https://roytang.net/2022/04/i4nlx1b/): A card&#x27;s color identity is not the same as its color. [[Tazri, Beacon of Unity]] has a color identity of WUBRG because of the rule you mentioned, but it&#x27;s still only a white creature (can&#x27;t be bounced by [[Aether Gust]] etc). Color identity is really only relevant for commander/brawl purposes.
 - [April 13, 2022, 8:59 p.m.](https://roytang.net/2022/04/i4k5wbi/): Your sideboard guide has -2 lantern vs control but only one in the main.
 - [April 13, 2022, 3:21 p.m.](https://roytang.net/2022/04/1514141710569275395/): Me and my 80 year old Lola talking about the successful rallies of VP Leni, then my aunt who&#x27;s Marcos loyalist passed by and overheard our convo. Tita: Basta ako BBM ako Lola: Bahala ka kung sino gusto mo iboto! (in angry sarcastic voice) 1/2
 - [April 11, 2022, 2:19 a.m.](https://roytang.net/2022/04/i46yuud/): In paper packs, there is a chance of a second rare/mythic via a foil right? I guess that doesn&#x27;t happen in Arena? Been drafting on Arena a while but never thought about it. Does that means Arena drafting doesn&#x27;t accurately model paper drafting?
-- [April 6, 2022, 12:50 a.m.](https://roytang.net/2022/04/1511385846083387393/): @Westraid never read this, how different is it from the film?
 
 [View all notes](https://roytang.net/notes)
 
