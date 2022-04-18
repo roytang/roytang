@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Shame](https://roytang.net/2022/04/d41c75e4cb84bb7c7f43a4b75dd1e494/)
 - [On Web 3.0, capitalism and money – Manu](https://roytang.net/2022/04/25a4b86379d1a84e50a2e18431dc2908/)
 - [Waxy.org Turns 20 – Waxy.org](https://roytang.net/2022/04/51d516a501724350089692d70c0910e0/)
 - [Wtch This: Unravelling the Mystery Behind a Secret YouTube URL](https://roytang.net/2022/04/cbccac9de5b2b78b6dc89d88e7eaa2f2/)
 - [A Better Way to Divide the Pie  | Yale Insights](https://roytang.net/2022/04/215155f1ad6bc4ad36a85b8c445687b2/)
-- [Morning Routine and Work Day, Spring 2022 – WARREN ELLIS LTD](https://roytang.net/2022/04/cf190deea85e4d77aab077a6887e8fec/)
 
 [View all links](https://roytang.net/links)
 
