@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Apple App Store appears to be widely removing outdated apps - The Verge](https://roytang.net/2022/04/41655510fafa039226423a7cb2cfbf2f/)
 - [Broken Links, by Hari Kunzru](https://roytang.net/2022/04/6b6b29002ca90e209a3e275900337aa9/)
 - [A 1970s plan about how to reach Barnard’s Star (Interconnected)](https://roytang.net/2022/04/e68371471b4624053e0d2817b25d3a53/)
 - [The death of the newsfeed — Benedict Evans](https://roytang.net/2022/04/8f99472bd93647e7b6bb2754526bc86d/)
 - [Beneath Ceaseless Skies | To Embody a Wildfire Starting by Iona Datt Sharma](https://roytang.net/2022/04/aacbbadeab11f4c66b11c4218df615b2/)
-- [Shame](https://roytang.net/2022/04/d41c75e4cb84bb7c7f43a4b75dd1e494/)
 
 [View all links](https://roytang.net/links)
 
