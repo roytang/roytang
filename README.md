@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 24, 2022, 11:44 a.m.](https://roytang.net/2022/04/i5ykji4/): Normally, you should be able to counter Deadly Dispute if you want, so if you were able to resolve a counter spell but Deadly Dispute still resolved, it means there was an onboard effect or such that made his spell uncounterable. This usually indicated by like red aura around the card while it&#x27;s on the stack. If we had the screenshot, we could easily point it out. Don&#x27;t worry, people aren&#x27;t trying to be mean, it&#x27;s just difficult to answer your question without more information. At least you know better for next time. Try to get a screenshot or at
 - [April 23, 2022, 6:39 a.m.](https://roytang.net/2022/04/1517634277264961536/): Didn&#x27;t make day 2 in this weekend&#x27;s @EternalCardGame draft open, but the game is still ridiculously generous. I got 42 packs total from both runs, which is worth almost 95% of the event fee. #MagicArena would&#x27;ve given you back like 25% for being 2 wins short.
 - [April 21, 2022, 7:12 p.m.](https://roytang.net/2022/04/1517098877417291777/): @mlq3 @ceso the randy david article is backed up on https://web.archive.org/web/20070702200951/http://opinion.inquirer.net/inquireropinion/columns/view_article.php?article_id=60473
 - [April 19, 2022, 6:52 p.m.](https://roytang.net/2022/04/1516369252973834245/): From comics to live-action. #ThorLoveAndThunder (Click photos to view full-size)
 - [April 17, 2022, 7:05 p.m.](https://roytang.net/2022/04/1515647731209244679/): Nothing is a mistake. There’s no win and no fail. There’s only make. This quote has been attributed to John Cage, when it is, in fact, from a list of principles for a class taught by artist and educator Sister Corita Kent in 1967-1968. Her principles for creativity follow. (Click photos to view full-size)
-- [April 17, 2022, 2:12 p.m.](https://roytang.net/2022/04/1515573837013811203/): Lahat tayo magsisilbing Liwanag Sa Dilim ☀️ Maraming salamat sa ating mga Volunteer Film Workers, Artists, and supporters from different communities na naging kabahagi natin sa paglikha ng music video na ito! 🙏🏻 #LeniLiwanagSaDilim Your browser does not support the video tag.
 
 [View all notes](https://roytang.net/notes)
 
