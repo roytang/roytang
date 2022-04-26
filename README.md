@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Final Wordles](https://roytang.net/2022/04/final-wordles/)
 - [Weeknotes 2022-04-24](https://roytang.net/2022/04/weeknotes-04-24/)
 - [Metroid Dread](https://roytang.net/2022/04/metroid-dread/)
 - [Weeknotes 2022-04-17](https://roytang.net/2022/04/weeknotes-04-17/)
 - [Thoughts on Blogging, 2022 Edition](https://roytang.net/2022/04/thoughts-on-blogging-2022-edition/)
-- [Weeknotes 2022-04-10](https://roytang.net/2022/04/weeknotes-04-10/)
 
 [View all posts](https://roytang.net/blog)
 
