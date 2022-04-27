@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 27, 2022, 7:57 p.m.](https://roytang.net/2022/04/1519284554225577985/): One of the Wonder Twins turns into a bucket of water just so Aquaman can be splashed lol Justice League (2018) no. 65 #comicbooks (Click photos to view full-size)
 - [April 27, 2022, 7:25 p.m.](https://roytang.net/2022/04/1519276602827620352/): I dont browse the main timeline that often anymore, mostly because there’s threads like this talking about how Marcos supporters think and the sheer disregard for the common good always depresses me. That being said, that quote could be a good anti-Marcos slogan lol Quoted Javiercrombie&#x27;s tweet: The conversation ended disturbingly, with him saying, in a conyo accent, “Honestly, if you don’t care about the poor or businesses or human rights and shit, then Marcos won’t be that bad.” I walked away pondering what it was like to live a life not caring about anything.
 - [April 24, 2022, 11:44 a.m.](https://roytang.net/2022/04/i5ykji4/): Normally, you should be able to counter Deadly Dispute if you want, so if you were able to resolve a counter spell but Deadly Dispute still resolved, it means there was an onboard effect or such that made his spell uncounterable. This usually indicated by like red aura around the card while it&#x27;s on the stack. If we had the screenshot, we could easily point it out. Don&#x27;t worry, people aren&#x27;t trying to be mean, it&#x27;s just difficult to answer your question without more information. At least you know better for next time. Try to get a screenshot or at
 - [April 23, 2022, 6:39 a.m.](https://roytang.net/2022/04/1517634277264961536/): Didn&#x27;t make day 2 in this weekend&#x27;s @EternalCardGame draft open, but the game is still ridiculously generous. I got 42 packs total from both runs, which is worth almost 95% of the event fee. #MagicArena would&#x27;ve given you back like 25% for being 2 wins short.
 - [April 21, 2022, 7:12 p.m.](https://roytang.net/2022/04/1517098877417291777/): @mlq3 @ceso the randy david article is backed up on https://web.archive.org/web/20070702200951/http://opinion.inquirer.net/inquireropinion/columns/view_article.php?article_id=60473
-- [April 19, 2022, 6:52 p.m.](https://roytang.net/2022/04/1516369252973834245/): From comics to live-action. #ThorLoveAndThunder (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
