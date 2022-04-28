@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Cool Things People Do With Their Blogs | Brain Baking](https://roytang.net/2022/04/28219b5c7f07bc137f5b00ae1c5e520a/)
 - [Increasing the surface area of blogging](https://roytang.net/2022/04/a0c72351ac4ea82a2804d7f9d3222f4c/)
 - [Bottled water monopolist admits recycling is bullshit - Pluralistic](https://roytang.net/2022/04/06e03b43edd0a0fac33eb5febd0d158d/)
 - [Make Free Stuff | Max Böck](https://roytang.net/2022/04/8b266aa44750a361cc45d75c1b8e4747/)
 - [Apple App Store appears to be widely removing outdated apps - The Verge](https://roytang.net/2022/04/41655510fafa039226423a7cb2cfbf2f/)
-- [Broken Links, by Hari Kunzru](https://roytang.net/2022/04/6b6b29002ca90e209a3e275900337aa9/)
 
 [View all links](https://roytang.net/links)
 
