@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [A Web Renaissance - Anil Dash](https://roytang.net/2022/05/5f7a6efb1f89219c9382186964474756/)
+- [Blog Diet: A Starter List For Your RSS Reader (Updated Spring 2022) – WARREN ELLIS LTD](https://roytang.net/2022/05/84f546c41213e0840bb86f1f9efe4336/)
 - [The Technium: 103 Bits of Advice I Wish I Had Known](https://roytang.net/2022/05/eca4a37c25368e0e570364092d7a312e/)
 - [Cool Things People Do With Their Blogs | Brain Baking](https://roytang.net/2022/04/28219b5c7f07bc137f5b00ae1c5e520a/)
 - [Increasing the surface area of blogging](https://roytang.net/2022/04/a0c72351ac4ea82a2804d7f9d3222f4c/)
-- [Bottled water monopolist admits recycling is bullshit - Pluralistic](https://roytang.net/2022/04/06e03b43edd0a0fac33eb5febd0d158d/)
-- [Make Free Stuff | Max Böck](https://roytang.net/2022/04/8b266aa44750a361cc45d75c1b8e4747/)
 
 [View all links](https://roytang.net/links)
 
