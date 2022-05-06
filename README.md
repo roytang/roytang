@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 6, 2022, 7:32 p.m.](https://roytang.net/2022/05/1522539735159300097/): Drafting Streets of New Capenna! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgsnc #twitch
 - [May 4, 2022, 10:46 p.m.](https://roytang.net/2022/05/1521863837489659905/): Midweek Magic on #MagicArena is #MTGSNC draft! I went UW splash G again and got an easy 3-0 (Click photos to view full-size)
 - [May 4, 2022, 10:07 p.m.](https://roytang.net/2022/05/5cdd1736e08f59c115dc2e333b1b66bf/): Doctor Strange and the Multiverse of Madness: fun, trippy and very &quot;comic book&quot; movie better if you have seen Wandavision don&#x27;t bring kids, they might get scared Moon Knight: some beautiful shots of varied locations great performances plot was ok, episode 5 was weird but probably the best one ending a bit weak probably enjoy it more if you&#x27;re into the comics
 - [May 2, 2022, 4:52 p.m.](https://roytang.net/2022/05/1521049987743981568/): Drafting Streets of New Capenna! https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgsnc #twitch [22:14] Drafts are off to a good start! First draft only went 3-3, but 2nd draft got there! YT: https://www.youtube.com/watch?v=xjdKZbO0cU8 (Click photos to view full-size)
 - [April 29, 2022, 5:01 p.m.](https://roytang.net/2022/04/1519965030430687238/): Playing some Streets of New Capenna Sealed! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [20:51] Well, SNC limited season is off to a terrible start! I did two sealed runs, each one only went 1-3 =/ Got to learn this format quickly! (Three sealed pools shown because after two losses, I decided to YOLO the first pool and try 4 color) YT: https://www.youtube.com/watch?v=7hLqAswzobM (Click photos to view full-size)
-- [April 29, 2022, 12:45 p.m.](https://roytang.net/2022/04/1519900570538049536/): #MagicArena stats for #mtgneo have dropped! Apparently I haven&#x27;t hit mythic constructed in a while. I managed to open more packs this time around though. #mtgarenastats (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
