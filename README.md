@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-05-08](https://roytang.net/2022/05/weeknotes-05-08/)
 - [Elections 2022 Ballot](https://roytang.net/2022/05/elections-2022-ballot/)
 - [MCU Reviews: Doctor Strange and the Multiverse of Madness, Moon Knight](https://roytang.net/2022/05/strange2-moon-knight/)
 - [Weeknotes 2022-05-01](https://roytang.net/2022/05/weeknotes-05-01/)
 - [The Final Wordles](https://roytang.net/2022/04/final-wordles/)
-- [Weeknotes 2022-04-24](https://roytang.net/2022/04/weeknotes-04-24/)
 
 [View all posts](https://roytang.net/blog)
 
