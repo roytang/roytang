@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [howisFelix.today? · Felix Krause](https://roytang.net/2022/05/66d647287ff9272f51c685785a475ac1/)
+- [I’m not a goblin, I just play one in Google Docs (Interconnected)](https://roytang.net/2022/05/2b9235e82e5ad7275785e3d11b74cc9b/)
+- [Dirt: The Permadeath Drive - Dirt](https://roytang.net/2022/05/0cf8a69db081e5b193741a8e0119f245/)
+- [&quot;Being good at things isn&#x27;t the point of doing them.&quot;  — Honey Copy by Cole Schafer.](https://roytang.net/2022/05/2963a770493e191eead6f8fb641e1878/)
 - [A Web Renaissance - Anil Dash](https://roytang.net/2022/05/5f7a6efb1f89219c9382186964474756/)
-- [Blog Diet: A Starter List For Your RSS Reader (Updated Spring 2022) – WARREN ELLIS LTD](https://roytang.net/2022/05/84f546c41213e0840bb86f1f9efe4336/)
-- [The Technium: 103 Bits of Advice I Wish I Had Known](https://roytang.net/2022/05/eca4a37c25368e0e570364092d7a312e/)
-- [Cool Things People Do With Their Blogs | Brain Baking](https://roytang.net/2022/04/28219b5c7f07bc137f5b00ae1c5e520a/)
-- [Increasing the surface area of blogging](https://roytang.net/2022/04/a0c72351ac4ea82a2804d7f9d3222f4c/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
-- [May 6, 2022, 7:32 p.m.](https://roytang.net/2022/05/1522539735159300097/): Drafting Streets of New Capenna! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgsnc #twitch
+- [May 7, 2022, 1:23 p.m.](https://roytang.net/2022/05/1522809232411676677/): @mlq3 Am currently doing my list; I&#x27;ve found some red flags raised about D&#x27;Angelo (mismanagement of some cosplay funds?) and Cabonegro (predator accusations?). Have you seen these concerns and found them to have no merit?
+- [May 7, 2022, 5:25 a.m.](https://roytang.net/2022/05/1522689087315931137/): @ainsleysdad11 it&#x27;s unnecessary to message me directly, I can see replies to the bot
+- [May 6, 2022, 7:32 p.m.](https://roytang.net/2022/05/1522539735159300097/): Drafting Streets of New Capenna! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgsnc #twitch [23:41] Today&#x27;s drafts did not go as well as last time. First draft went a reasonable 5-3, but then I tried the RG archetype and went a miserable 0-3. We&#x27;ll try to do better next week! YT: https://www.youtube.com/watch?v=qlL8b6XRKH4 (Click photos to view full-size)
 - [May 4, 2022, 10:46 p.m.](https://roytang.net/2022/05/1521863837489659905/): Midweek Magic on #MagicArena is #MTGSNC draft! I went UW splash G again and got an easy 3-0 (Click photos to view full-size)
-- [May 4, 2022, 10:07 p.m.](https://roytang.net/2022/05/5cdd1736e08f59c115dc2e333b1b66bf/): Doctor Strange and the Multiverse of Madness: fun, trippy and very &quot;comic book&quot; movie better if you have seen Wandavision don&#x27;t bring kids, they might get scared Moon Knight: some beautiful shots of varied locations great performances plot was ok, episode 5 was weird but probably the best one ending a bit weak probably enjoy it more if you&#x27;re into the comics
-- [May 2, 2022, 4:52 p.m.](https://roytang.net/2022/05/1521049987743981568/): Drafting Streets of New Capenna! https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgsnc #twitch [22:14] Drafts are off to a good start! First draft only went 3-3, but 2nd draft got there! YT: https://www.youtube.com/watch?v=xjdKZbO0cU8 (Click photos to view full-size)
-- [April 29, 2022, 5:01 p.m.](https://roytang.net/2022/04/1519965030430687238/): Playing some Streets of New Capenna Sealed! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [20:51] Well, SNC limited season is off to a terrible start! I did two sealed runs, each one only went 1-3 =/ Got to learn this format quickly! (Three sealed pools shown because after two losses, I decided to YOLO the first pool and try 4 color) YT: https://www.youtube.com/watch?v=7hLqAswzobM (Click photos to view full-size)
+- [May 4, 2022, 10:07 p.m.](https://roytang.net/2022/05/1521854143673270273/): MCU Spoiler-free reviews Doctor Strange and the Multiverse of Madness: fun, trippy and very &quot;comic book&quot; movie better if you have seen Wandavision don&#x27;t bring kids, they might get scared [22:07] Moon Knight: some beautiful shots of varied locations great performances plot was ok, episode 5 was weird but probably the best one ending a bit weak probably enjoy it more if you&#x27;re into the comics https://roytang.net/2022/05/5cdd1736e08f59c115dc2e333b1b66bf/
 
 [View all notes](https://roytang.net/notes)
 
