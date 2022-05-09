@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 9, 2022, 11:49 a.m.](https://roytang.net/2022/05/1523510533072191488/): Today is the day of destiny. Starting a thread for when I go out later. #Halalan2022 (Mga madali mainip kaya late na boboto hoping na onti na ang pila 4 Leni) Stay strong Pilipinas! (Click photos to view full-size)
 - [May 7, 2022, 1:23 p.m.](https://roytang.net/2022/05/1522809232411676677/): @mlq3 Am currently doing my list; I&#x27;ve found some red flags raised about D&#x27;Angelo (mismanagement of some cosplay funds?) and Cabonegro (predator accusations?). Have you seen these concerns and found them to have no merit?
 - [May 7, 2022, 5:25 a.m.](https://roytang.net/2022/05/1522689087315931137/): @ainsleysdad11 it&#x27;s unnecessary to message me directly, I can see replies to the bot
 - [May 6, 2022, 7:32 p.m.](https://roytang.net/2022/05/1522539735159300097/): Drafting Streets of New Capenna! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgsnc #twitch [23:41] Today&#x27;s drafts did not go as well as last time. First draft went a reasonable 5-3, but then I tried the RG archetype and went a miserable 0-3. We&#x27;ll try to do better next week! YT: https://www.youtube.com/watch?v=qlL8b6XRKH4 (Click photos to view full-size)
 - [May 4, 2022, 10:46 p.m.](https://roytang.net/2022/05/1521863837489659905/): Midweek Magic on #MagicArena is #MTGSNC draft! I went UW splash G again and got an easy 3-0 (Click photos to view full-size)
-- [May 4, 2022, 10:07 p.m.](https://roytang.net/2022/05/1521854143673270273/): MCU Spoiler-free reviews Doctor Strange and the Multiverse of Madness: fun, trippy and very &quot;comic book&quot; movie better if you have seen Wandavision don&#x27;t bring kids, they might get scared [22:07] Moon Knight: some beautiful shots of varied locations great performances plot was ok, episode 5 was weird but probably the best one ending a bit weak probably enjoy it more if you&#x27;re into the comics https://roytang.net/2022/05/5cdd1736e08f59c115dc2e333b1b66bf/
 
 [View all notes](https://roytang.net/notes)
 
