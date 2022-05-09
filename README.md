@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 10, 2022, 2:46 a.m.](https://roytang.net/2022/05/1523736107577274368/): (Click photos to view full-size)
 - [May 10, 2022, 2:13 a.m.](https://roytang.net/2022/05/1523727779421769728/): Sigh.
 - [May 9, 2022, 11:49 a.m.](https://roytang.net/2022/05/1523510533072191488/): Today is the day of destiny. Starting a thread for when I go out later. #Halalan2022 (Mga madali mainip kaya late na boboto hoping na onti na ang pila 4 Leni) Stay strong Pilipinas! (Click photos to view full-size) [11:50] #Halalan2022 Pro-tip: If you have not yet gone to vote, you can search Twitter for your voting location (&quot;Sth Sth elementary school&quot;) to see if people have reported how long the queues are, vcm problems etc [15:25] Vote has been cast at Tandang Sora Elementary School. Around 20 mins once we found the room (Click photos to view full-size) [15:56]
 - [May 7, 2022, 1:23 p.m.](https://roytang.net/2022/05/1522809232411676677/): @mlq3 Am currently doing my list; I&#x27;ve found some red flags raised about D&#x27;Angelo (mismanagement of some cosplay funds?) and Cabonegro (predator accusations?). Have you seen these concerns and found them to have no merit?
 - [May 7, 2022, 5:25 a.m.](https://roytang.net/2022/05/1522689087315931137/): @ainsleysdad11 it&#x27;s unnecessary to message me directly, I can see replies to the bot
-- [May 6, 2022, 7:32 p.m.](https://roytang.net/2022/05/1522539735159300097/): Drafting Streets of New Capenna! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgsnc #twitch [23:41] Today&#x27;s drafts did not go as well as last time. First draft went a reasonable 5-3, but then I tried the RG archetype and went a miserable 0-3. We&#x27;ll try to do better next week! YT: https://www.youtube.com/watch?v=qlL8b6XRKH4 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
