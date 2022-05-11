@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 11, 2022, 7:16 p.m.](https://roytang.net/2022/05/1524347696881954816/): you’d think this song doesn’t hit UNTIL you actually experience what she’s been saying in this song https://twitter.com/taylorr_media/status/1524019252377837569
 - [May 11, 2022, 4:35 p.m.](https://roytang.net/2022/05/1524307108920967168/): Drafting Streets of New Capenna! ep5 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [18:49] Just one draft again today, my first shot at the GW archetype. Wasn&#x27;t super happy with the deck and had lots of grindy mirrors but at least I was able to get to 4 wins. YT: https://www.youtube.com/watch?v=iFMb6oSjZoA (Click photos to view full-size)
 - [May 10, 2022, 8:47 p.m.](https://roytang.net/2022/05/1524008116395724801/): I rarely do #selfies, but here&#x27;s a before and after. I promised to get my hair cut after the election. I&#x27;ve let it grow out for about a year, this was the longest it&#x27;s ever been. (Click photos to view full-size)
 - [May 10, 2022, 6:29 p.m.](https://roytang.net/2022/05/1523973571294474243/): Drafting Streets of New Capenna! ep4 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [22:44] Had a good draft tonight, despite Arena hanging during one of the later games. I was a bit iffy about UB, but it worked out! YT: https://www.youtube.com/watch?v=y8MERmpcftY (Click photos to view full-size)
 - [May 10, 2022, 10:53 a.m.](https://roytang.net/2022/05/1523858860812824576/): It&#x27;s okay to be out of sorts today.
-- [May 10, 2022, 2:46 a.m.](https://roytang.net/2022/05/1523736107577274368/): (Click photos to view full-size) [02:52] Lol my mood is all over the place. Sigh, such a waste. (Click photos to view full-size) [10:46] My coping mechanism is quotes apparently Quoted roytang&#x27;s tweet: &quot;Success is not final, failure is not fatal: it is the courage to continue that counts&quot; - W. Churchill [10:46] Quoted roytang&#x27;s tweet: Time flows like a river, and history repeats
 
 [View all notes](https://roytang.net/notes)
 
