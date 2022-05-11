@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How to Disable Ad ID Tracking on iOS and Android, and Why You Should Do It Now | EFF](https://roytang.net/2022/05/adcfd7abefdedac61c95e85eaff13e9f/)
 - [Can the Philippines sustain its growth? - by Noah Smith](https://roytang.net/2022/05/078195f7d75927abc117d998f21abe7b/)
 - [howisFelix.today? · Felix Krause](https://roytang.net/2022/05/66d647287ff9272f51c685785a475ac1/)
 - [I’m not a goblin, I just play one in Google Docs (Interconnected)](https://roytang.net/2022/05/2b9235e82e5ad7275785e3d11b74cc9b/)
 - [Dirt: The Permadeath Drive - Dirt](https://roytang.net/2022/05/0cf8a69db081e5b193741a8e0119f245/)
-- [&quot;Being good at things isn&#x27;t the point of doing them.&quot;  — Honey Copy by Cole Schafer.](https://roytang.net/2022/05/2963a770493e191eead6f8fb641e1878/)
 
 [View all links](https://roytang.net/links)
 
