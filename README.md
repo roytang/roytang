@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 12, 2022, 9:49 p.m.](https://roytang.net/2022/05/1524748593227190272/): Took me 5.5 months and 193hrs of gameplay to finally complete Tales of Vesperia @_@ #gaming (Click photos to view full-size)
 - [May 12, 2022, 7:30 a.m.](https://roytang.net/2022/05/1524532530942124032/): So basically, politely correcting false info just makes things worse. If so, how are we supposed to fight disinformation? Quoted emollick&#x27;s tweet: 🤦 Let’s say you see someone make a mistake &amp; post a false political story on this website. So you point it out to them, politely. What happens next? The partisan slant &amp; toxicity of the person you corrected’s future tweets goes up &amp; their quality drops! https://dl.acm.org/doi/10.1145/3411764.3445642 (Click photos to view full-size)
 - [May 11, 2022, 9:34 p.m.](https://roytang.net/2022/05/1524382403296333824/): Around 14 months after I first broke through to Silver rank in #StreetFighterV I managed to hit Super Silver for the first time! At this rate, it&#x27;ll be two years into SF6 before I hit Gold in SFV lol #gaming (Click photos to view full-size)
 - [May 11, 2022, 7:16 p.m.](https://roytang.net/2022/05/1524347696881954816/): you’d think this song doesn’t hit UNTIL you actually experience what she’s been saying in this song https://twitter.com/taylorr_media/status/1524019252377837569
 - [May 11, 2022, 4:35 p.m.](https://roytang.net/2022/05/1524307108920967168/): Drafting Streets of New Capenna! ep5 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [18:49] Just one draft again today, my first shot at the GW archetype. Wasn&#x27;t super happy with the deck and had lots of grindy mirrors but at least I was able to get to 4 wins. YT: https://www.youtube.com/watch?v=iFMb6oSjZoA (Click photos to view full-size)
-- [May 10, 2022, 8:47 p.m.](https://roytang.net/2022/05/1524008116395724801/): I rarely do #selfies, but here&#x27;s a before and after. I promised to get my hair cut after the election. I&#x27;ve let it grow out for about a year, this was the longest it&#x27;s ever been. (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
