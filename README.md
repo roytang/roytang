@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 14, 2022, 4:21 p.m.](https://roytang.net/2022/05/1525390754440523782/): Quick Drafting Streets of New Capenna! ep6 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc
 - [May 14, 2022, 5:53 a.m.](https://roytang.net/2022/05/1525232849439186944/): Tried an early morning off-stream #MTGSNC Quick Draft unsurprisingly with UW. Didn&#x27;t get there though. (Click photos to view full-size)
 - [May 12, 2022, 9:49 p.m.](https://roytang.net/2022/05/1524748593227190272/): Took me 5.5 months and 193hrs of gameplay to finally complete Tales of Vesperia @_@ #gaming (Click photos to view full-size)
 - [May 12, 2022, 7:30 a.m.](https://roytang.net/2022/05/1524532530942124032/): So basically, politely correcting false info just makes things worse. If so, how are we supposed to fight disinformation? Quoted emollick&#x27;s tweet: 🤦 Let’s say you see someone make a mistake &amp; post a false political story on this website. So you point it out to them, politely. What happens next? The partisan slant &amp; toxicity of the person you corrected’s future tweets goes up &amp; their quality drops! https://dl.acm.org/doi/10.1145/3411764.3445642 (Click photos to view full-size)
 - [May 11, 2022, 9:34 p.m.](https://roytang.net/2022/05/1524382403296333824/): Around 14 months after I first broke through to Silver rank in #StreetFighterV I managed to hit Super Silver for the first time! At this rate, it&#x27;ll be two years into SF6 before I hit Gold in SFV lol #gaming (Click photos to view full-size)
-- [May 11, 2022, 7:16 p.m.](https://roytang.net/2022/05/1524347696881954816/): you’d think this song doesn’t hit UNTIL you actually experience what she’s been saying in this song https://twitter.com/taylorr_media/status/1524019252377837569
 
 [View all notes](https://roytang.net/notes)
 
