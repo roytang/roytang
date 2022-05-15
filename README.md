@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 15, 2022, 6:01 p.m.](https://roytang.net/2022/05/1525778275066589184/): This is the kind of thing I want to see. Not just one show, but as many as possible, oversaturating the internet even. With different flavors, approaches and target audiences. Let the algorithms work in favor of truth for a change. (All of this requires time, money, effort) Quoted RegineCabato&#x27;s tweet: Yes, the attempt to dumb down the conversation re: NGO definition is a troll line. Proposal: A fun and snappy weekly YouTube show called TrollBusters compiling and debunking the scripts of the week, gathering screen caps and receipts, explaining the structures, fallacies, etc. https://twitter.com/imnotyomom/status/1525381997836632064
 - [May 15, 2022, 5:54 p.m.](https://roytang.net/2022/05/1525776642945081349/): Yes, the attempt to dumb down the conversation re: NGO definition is a troll line. Proposal: A fun and snappy weekly YouTube show called TrollBusters compiling and debunking the scripts of the week, gathering screen caps and receipts, explaining the structures, fallacies, etc. https://twitter.com/imnotyomom/status/1525381997836632064
 - [May 15, 2022, 2:17 p.m.](https://roytang.net/2022/05/1525721938340876288/): Did 2 sealed runs of the #MagicArena #MTGSNC Limited Open this weekend. Went bant both times, unfortunately, we did not make day 2. Runs ended at 5 and 6 wins respectively. So close! (Click photos to view full-size)
 - [May 14, 2022, 4:21 p.m.](https://roytang.net/2022/05/1525390754440523782/): Quick Drafting Streets of New Capenna! ep6 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [19:07] Second quick draft was much better than the first. Hopefully we have good pulls in the Arena Open as well! YT: https://www.youtube.com/watch?v=VWzVsP1yTV0 (Click photos to view full-size)
 - [May 14, 2022, 5:53 a.m.](https://roytang.net/2022/05/1525232849439186944/): Tried an early morning off-stream #MTGSNC Quick Draft unsurprisingly with UW. Didn&#x27;t get there though. (Click photos to view full-size)
-- [May 12, 2022, 9:49 p.m.](https://roytang.net/2022/05/1524748593227190272/): Took me 5.5 months and 193hrs of gameplay to finally complete Tales of Vesperia @_@ #gaming (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
