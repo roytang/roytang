@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 15, 2022, 2:17 p.m.](https://roytang.net/2022/05/1525721938340876288/): Did 2 sealed runs of the #MagicArena #MTGSNC Limited Open this weekend. Went bant both times, unfortunately, we did not make day 2. Runs ended at 5 and 6 wins respectively. So close! (Click photos to view full-size)
 - [May 14, 2022, 4:21 p.m.](https://roytang.net/2022/05/1525390754440523782/): Quick Drafting Streets of New Capenna! ep6 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [19:07] Second quick draft was much better than the first. Hopefully we have good pulls in the Arena Open as well! YT: https://www.youtube.com/watch?v=VWzVsP1yTV0 (Click photos to view full-size)
 - [May 14, 2022, 5:53 a.m.](https://roytang.net/2022/05/1525232849439186944/): Tried an early morning off-stream #MTGSNC Quick Draft unsurprisingly with UW. Didn&#x27;t get there though. (Click photos to view full-size)
 - [May 12, 2022, 9:49 p.m.](https://roytang.net/2022/05/1524748593227190272/): Took me 5.5 months and 193hrs of gameplay to finally complete Tales of Vesperia @_@ #gaming (Click photos to view full-size)
 - [May 12, 2022, 7:30 a.m.](https://roytang.net/2022/05/1524532530942124032/): So basically, politely correcting false info just makes things worse. If so, how are we supposed to fight disinformation? Quoted emollick&#x27;s tweet: 🤦 Let’s say you see someone make a mistake &amp; post a false political story on this website. So you point it out to them, politely. What happens next? The partisan slant &amp; toxicity of the person you corrected’s future tweets goes up &amp; their quality drops! https://dl.acm.org/doi/10.1145/3411764.3445642 (Click photos to view full-size)
-- [May 11, 2022, 9:34 p.m.](https://roytang.net/2022/05/1524382403296333824/): Around 14 months after I first broke through to Silver rank in #StreetFighterV I managed to hit Super Silver for the first time! At this rate, it&#x27;ll be two years into SF6 before I hit Gold in SFV lol #gaming (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
