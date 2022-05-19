@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 19, 2022, 5:46 p.m.](https://roytang.net/2022/05/1527224180743327744/): Quick Drafting Streets of New Capenna! ep9 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc
 - [May 18, 2022, 4:49 p.m.](https://roytang.net/2022/05/1526847442402131968/): Quick Drafting Streets of New Capenna! ep8 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgsnc #twitch [18:26] We went back to our UW shenanigans in today&#x27;s quick draft, but only got to 5 today. Better than yesterday at least. YT: https://www.youtube.com/watch?v=8ioK41JRk7A (Click photos to view full-size)
 - [May 16, 2022, 4:40 p.m.](https://roytang.net/2022/05/1526120403529261056/): Quick Drafting Streets of New Capenna! ep7 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [2022-05-17 01:18] Draft felt solid, unfortunately the outcome was a mediocre 4-3 YT: https://www.youtube.com/watch?v=6zQAFlATkbk (Click photos to view full-size)
 - [May 16, 2022, 10:17 a.m.](https://roytang.net/2022/05/1526023896595435520/): Monday morning activity: Cleaning up ye olde desk. I wish I had taken &quot;before&quot; pictures because this is a vast improvement! (Click photos to view full-size)
 - [May 15, 2022, 9:37 p.m.](https://roytang.net/2022/05/1525832723218083840/): If you have less tech-savvy older relatives who are victims of the regime&#x27;s disinformation machine: Acquire their YT/FB login/password (create an excuse, borrow their phone and reset the password or create a new account) Login to the YT/FB account on another device. [21:38] 3. Watch/like anti-fake news videos, mainstream media videos and block fake news pages/channels using their account. Repeat often. Occasionally bring up talking points to see if their views are changing.
-- [May 15, 2022, 6:01 p.m.](https://roytang.net/2022/05/1525778275066589184/): This is the kind of thing I want to see. Not just one show, but as many as possible, oversaturating the internet even. With different flavors, approaches and target audiences. Let the algorithms work in favor of truth for a change. (All of this requires time, money, effort) Quoted RegineCabato&#x27;s tweet: Yes, the attempt to dumb down the conversation re: NGO definition is a troll line. Proposal: A fun and snappy weekly YouTube show called TrollBusters compiling and debunking the scripts of the week, gathering screen caps and receipts, explaining the structures, fallacies, etc. https://twitter.com/imnotyomom/status/1525381997836632064
 
 [View all notes](https://roytang.net/notes)
 
