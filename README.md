@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-05-22](https://roytang.net/2022/05/weeknotes-05-22/)
 - [Tales of Vesperia: Definitive Edition](https://roytang.net/2022/05/tales-of-vesperia/)
 - [Weeknotes 2022-05-15](https://roytang.net/2022/05/weeknotes-05-15/)
 - [Post-Election Thoughts](https://roytang.net/2022/05/post-election-thoughts/)
 - [Weeknotes 2022-05-08](https://roytang.net/2022/05/weeknotes-05-08/)
-- [Elections 2022 Ballot](https://roytang.net/2022/05/elections-2022-ballot/)
 
 [View all posts](https://roytang.net/blog)
 
