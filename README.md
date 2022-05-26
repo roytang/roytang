@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 26, 2022, 7:15 p.m.](https://roytang.net/2022/05/1529783287018885120/): Quick Drafting Streets of New Capenna! ep11 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [22:24] This was the final Quick Draft stream for the season! I was hoping to get to 7 as a nice season finale, but we only got to 6. YT: https://www.youtube.com/watch?v=Uww2vYUbR4E (Click photos to view full-size)
 - [May 25, 2022, 2:44 p.m.](https://roytang.net/2022/05/1529352792057335808/): @jaymelynilao uwi na
 - [May 25, 2022, 12:35 p.m.](https://roytang.net/2022/05/ux9hkn/): Posted on r/Philippines: Around 800k votes was enough to get 2% in the party list elections. There are 859k members of r/Philippines. We should run a party-list in 2025. Reference: https://ph.rappler.com/elections/2022/races/party-list/results Actually, the threshold of votes needed should be quite a bit lower, since very few parties got 2%, so I believe they will proportionally parcel out slots to the lower ranked parties. If everyone on the sub voted for our party list (unlikely), we wouldn&#x27;t even have to campaign! Don&#x27;t ask me what our party-list agenda should be. But I believe marginalized sector naman ang r/PH redditors lol
 - [May 23, 2022, 6:32 p.m.](https://roytang.net/2022/05/1528685311114592256/): Quick Drafting Streets of New Capenna! ep10 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgsnc #twitch [21:49] Two poor drafts again today to remind to stop trying to make Rakdos work no matter what cool mythics we get! Went 3-3 and 2-3 respectively. YT: https://www.youtube.com/watch?v=C28DC93dqVY (Click photos to view full-size)
 - [May 22, 2022, 8:21 p.m.](https://roytang.net/2022/05/1528350414508134400/): Got back home in time today to throw away some gems on the #MagicArena play-in sealed qualifier. Honestly thought the second build could go the distance, but maybe I sacrificed too much power for consistency. Jund build went 0-2. UW went 2-2. #mtgsnc (Click photos to view full-size)
-- [May 19, 2022, 5:46 p.m.](https://roytang.net/2022/05/1527224180743327744/): Quick Drafting Streets of New Capenna! ep9 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [2022-05-20 00:20] Managed two QD&#x27;s today. Unfortunately, they both ended poorly at 2-3. On the bright side I managed to beat a Brokers Ascendancy with maindeck Broken Wings lol YT: https://www.youtube.com/watch?v=T6fYUKEiv4A (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
