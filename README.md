@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [May 27, 2022, 12:39 p.m.](https://roytang.net/2022/05/1530046129353543680/): Accidentally got 2nd booster today. Sinovac (may2021) -&gt; AstraZ (dec2021) -&gt; Pfizer (may2022). #covid19
+- [May 27, 2022, 12:39 p.m.](https://roytang.net/2022/05/1530046129353543680/): Accidentally got 2nd booster today. Sinovac (may2021) -&gt; AstraZ (dec2021) -&gt; Pfizer (may2022). #covid19 [12:49] Looking forward to whatever mutant power I develop if I ever manage to get Moderna and Jansenn doses as well.
 - [May 26, 2022, 7:15 p.m.](https://roytang.net/2022/05/1529783287018885120/): Quick Drafting Streets of New Capenna! ep11 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [22:24] This was the final Quick Draft stream for the season! I was hoping to get to 7 as a nice season finale, but we only got to 6. YT: https://www.youtube.com/watch?v=Uww2vYUbR4E (Click photos to view full-size)
 - [May 25, 2022, 2:44 p.m.](https://roytang.net/2022/05/1529352792057335808/): @jaymelynilao uwi na
 - [May 25, 2022, 12:35 p.m.](https://roytang.net/2022/05/ux9hkn/): Posted on r/Philippines: Around 800k votes was enough to get 2% in the party list elections. There are 859k members of r/Philippines. We should run a party-list in 2025. Reference: https://ph.rappler.com/elections/2022/races/party-list/results Actually, the threshold of votes needed should be quite a bit lower, since very few parties got 2%, so I believe they will proportionally parcel out slots to the lower ranked parties. If everyone on the sub voted for our party list (unlikely), we wouldn&#x27;t even have to campaign! Don&#x27;t ask me what our party-list agenda should be. But I believe marginalized sector naman ang r/PH redditors lol
