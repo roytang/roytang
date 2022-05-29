@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [ARAGORN vs Toxic Masculinity](https://roytang.net/2022/05/dd78429e8f4440aad8f2aa7741bda8c0/)
 - [The Marcos Restoration: 30 Years In The Making](https://roytang.net/2022/05/f6fb9e13f0a9e60ac7c9d2396cb22531/)
 - [missing concepts in link culture? | maya.land](https://roytang.net/2022/05/ec87cd8d68cb544216320c0e8fabc921/)
 - [Dictator’s son uses TikTok to lead in Philippine election and rewrite his family’s past](https://roytang.net/2022/05/951b1fb662d93e691697694d3731c4b6/)
 - [You&#x27;re not going to believe what I&#x27;m about to tell you (classroom-friendly version) - The Oatmeal](https://roytang.net/2022/05/19e71e05301cf2cbcb3f887cde15ec2d/)
-- [How to Disable Ad ID Tracking on iOS and Android, and Why You Should Do It Now | EFF](https://roytang.net/2022/05/adcfd7abefdedac61c95e85eaff13e9f/)
 
 [View all links](https://roytang.net/links)
 
