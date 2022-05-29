@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 29, 2022, 10:24 p.m.](https://roytang.net/2022/05/1530918105915879424/): Did 5 runs on the Standard Challenge on #MagicArena with the below Jund list. Didn&#x27;t get there but that&#x27;s a pretty good 72% win rate! | Record | Gold | Packs | |---|---|---| | 3-1 | +0 | +3 | | 2-1 | -500 | +1 | | 4-1 | +500 | +5 | | 0-1 | -1500 | | | 4-1 | +500 | +5 | (Click photos to view full-size)
 - [May 29, 2022, 11:13 a.m.](https://roytang.net/2022/05/1530749116178804737/): All-hands meeting sa BIR: BBM: Okay, kelangan natin dagdagan ang revenue. Meron ba kayong suggestions? Lahat nag taas kamay BBM: Yung hindi related sa estate tax ko Nagsibabaan lahat ng kamay Quoted DocHappy95&#x27;s tweet: Lol (Click photos to view full-size)
 - [May 28, 2022, 4:03 p.m.](https://roytang.net/2022/05/d4cd7ac33453e70650f489949fd39108/): Me: starts VS code VS Code: Would you like to restart to apply the latest update? I mean, WTH
 - [May 27, 2022, 12:39 p.m.](https://roytang.net/2022/05/1530046129353543680/): Accidentally got 2nd booster today. Sinovac (may2021) -&gt; AstraZ (dec2021) -&gt; Pfizer (may2022). #covid19 [12:49] Looking forward to whatever mutant power I develop if I ever manage to get Moderna and Jansenn doses as well.
 - [May 26, 2022, 7:15 p.m.](https://roytang.net/2022/05/1529783287018885120/): Quick Drafting Streets of New Capenna! ep11 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgsnc [22:24] This was the final Quick Draft stream for the season! I was hoping to get to 7 as a nice season finale, but we only got to 6. YT: https://www.youtube.com/watch?v=Uww2vYUbR4E (Click photos to view full-size)
-- [May 25, 2022, 2:44 p.m.](https://roytang.net/2022/05/1529352792057335808/): @jaymelynilao uwi na
 
 [View all notes](https://roytang.net/notes)
 
