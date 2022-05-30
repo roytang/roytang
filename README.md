@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [What happens to TLDs when their country stops existing? | astrid.tech](https://roytang.net/2022/05/303ca7b2d83d9cd9ac93b14d58f8c8c0/)
+- [For the upside](https://roytang.net/2022/05/a12d2800a2faed0900baa9b3f27bec54/)
 - [&quot;The attack is an advertisement&quot;  - by Caitlin Dewey](https://roytang.net/2022/05/6945abbc9a5984a842472f8a75337293/)
 - [What Are You Willing To Do? - by Rusty Foster](https://roytang.net/2022/05/7bddede0fb4b64ac773c5bdee7dd989b/)
 - [A Superwholock for every news cycle - by Ryan Broderick](https://roytang.net/2022/05/075d6b1adea6c2b8db644a1aa56c14db/)
-- [ARAGORN vs Toxic Masculinity](https://roytang.net/2022/05/dd78429e8f4440aad8f2aa7741bda8c0/)
-- [The Marcos Restoration: 30 Years In The Making](https://roytang.net/2022/05/f6fb9e13f0a9e60ac7c9d2396cb22531/)
 
 [View all links](https://roytang.net/links)
 
