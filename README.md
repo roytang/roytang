@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 8, 2022, 12:44 p.m.](https://roytang.net/2022/06/1534396020099977217/): @joyarmadamba In 30 years fanatics will remember this time as a golden age kasi may libreng sakay
 - [June 8, 2022, 11:30 a.m.](https://roytang.net/2022/06/1534377232415789056/): @bloodyvints what game is this?
 - [June 7, 2022, 6:42 p.m.](https://roytang.net/2022/06/1534123746977787904/): @paulcatiang ok ba food jan? may quiz night there on the 30th
 - [May 31, 2022, 10:29 p.m.](https://roytang.net/2022/05/v1rk0c/): Posted on r/Philippines: How did the MRT&#x27;s old stored value tickets work? Haven&#x27;t ridden the MRT regularly for a long while, I assume these were phased out since may Beep card na. Specifically, where did they store value? I remember parang thin magnetic (?) card lang sya na parang wala namang chip. And if writeable sya, wouldn&#x27;t that be insecure, i.e. people might figure out how to change the value of the card. If there&#x27;s some kind of centralized database, wouldn&#x27;t that introduce some kind of network delay for example when the ticket is processed as you leave the station?
 - [May 29, 2022, 10:24 p.m.](https://roytang.net/2022/05/1530918105915879424/): Did 5 runs on the Standard Challenge on #MagicArena with the below Jund list. Didn&#x27;t get there but that&#x27;s a pretty good 72% win rate! Record Gold Packs 3-1 +0 +3 2-1 -500 +1 4-1 +500 +5 0-1 -1500 4-1 +500 +5 (Click photos to view full-size) [2022-05-30 21:00] The event was still available, so I tried a Jund list from the recent Japan Championship and did poorly. Record Gold Packs 1-1 -1000 0-1 -1500 Sigh.
-- [May 29, 2022, 11:13 a.m.](https://roytang.net/2022/05/1530749116178804737/): All-hands meeting sa BIR: BBM: Okay, kelangan natin dagdagan ang revenue. Meron ba kayong suggestions? Lahat nag taas kamay BBM: Yung hindi related sa estate tax ko Nagsibabaan lahat ng kamay Quoted DocHappy95&#x27;s tweet: Lol (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
