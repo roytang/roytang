@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-06-12: A Psalm for the Wild-Built](https://roytang.net/2022/06/weeknotes-06-12/)
 - [Weeknotes 2022-06-05](https://roytang.net/2022/06/weeknotes-06-05/)
 - [Blogroll Updates](https://roytang.net/2022/06/blogroll-updates/)
 - [Eighteen](https://roytang.net/2022/05/eighteen/)
 - [Weeknotes 2022-05-29](https://roytang.net/2022/05/weeknotes-05-29/)
-- [Weeknotes 2022-05-22](https://roytang.net/2022/05/weeknotes-05-22/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -37,9 +37,9 @@ Latest notes:
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/55/b6/55b643dddb9496966c4c37fc2b21c5a6.jpg)
 - ![](https://roytang.net/media/cache/71/25/7125fc96d9db296bc5f16306d33cc459.jpg)
 - ![](https://roytang.net/media/cache/12/60/1260736fe21c5cfd96c1c0b6f467475e.jpg)
+- ![](https://roytang.net/media/cache/8b/b5/8bb546ee9b7c39665a6fa8d84b40f6c7.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
