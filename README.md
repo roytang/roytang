@@ -37,9 +37,9 @@ Latest notes:
 Latest sketches:
 
 
+- ![](https://roytang.net/media/cache/55/b6/55b643dddb9496966c4c37fc2b21c5a6.jpg)
 - ![](https://roytang.net/media/cache/71/25/7125fc96d9db296bc5f16306d33cc459.jpg)
 - ![](https://roytang.net/media/cache/12/60/1260736fe21c5cfd96c1c0b6f467475e.jpg)
-- ![](https://roytang.net/media/cache/8b/b5/8bb546ee9b7c39665a6fa8d84b40f6c7.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
