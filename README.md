@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [My Streets of New Capenna Limited Recap](https://roytang.net/2022/06/mtgsnc-limited-recap/)
 - [Weeknotes 2022-06-12: A Psalm for the Wild-Built](https://roytang.net/2022/06/weeknotes-06-12/)
 - [Weeknotes 2022-06-05](https://roytang.net/2022/06/weeknotes-06-05/)
 - [Blogroll Updates](https://roytang.net/2022/06/blogroll-updates/)
 - [Eighteen](https://roytang.net/2022/05/eighteen/)
-- [Weeknotes 2022-05-29](https://roytang.net/2022/05/weeknotes-05-29/)
 
 [View all posts](https://roytang.net/blog)
 
