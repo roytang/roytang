@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Budget Culture and the Dave Ramseyfication of Money](https://roytang.net/2022/06/c57423af4b287c858733ea5e8d5c387d/)
+- [Conservatism and Who the Law Protects](https://roytang.net/2022/06/fa54b709dc2336c7977a0b190b7f76d5/)
 - [Intro to the Web Revival #1: What is the Web Revival? | Melon&#x27;s Thoughts](https://roytang.net/2022/06/4731fb7f0a0bffa9398d97509fb2bc89/)
 - [What happens to TLDs when their country stops existing? | astrid.tech](https://roytang.net/2022/05/303ca7b2d83d9cd9ac93b14d58f8c8c0/)
 - [For the upside](https://roytang.net/2022/05/a12d2800a2faed0900baa9b3f27bec54/)
-- [&quot;The attack is an advertisement&quot;  - by Caitlin Dewey](https://roytang.net/2022/05/6945abbc9a5984a842472f8a75337293/)
-- [What Are You Willing To Do? - by Rusty Foster](https://roytang.net/2022/05/7bddede0fb4b64ac773c5bdee7dd989b/)
 
 [View all links](https://roytang.net/links)
 
