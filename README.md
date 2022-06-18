@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 18, 2022, 12:31 p.m.](https://roytang.net/2022/06/1538016639408451586/): Casual Bloodstained being stuck stream https://www.twitch.tv/twitchyroy
 - [June 16, 2022, 8:14 p.m.](https://roytang.net/2022/06/1537408267332091905/): I have once again won my annual game of chicken with $CREDITCARDCOMPANY$ (Click photos to view full-size)
 - [June 14, 2022, 11:12 p.m.](https://roytang.net/2022/06/1536728399405756417/): @jaymelynilao wag kasi magjog ng 11pm
 - [June 9, 2022, 2:27 p.m.](https://roytang.net/2022/06/20ef82693180ee676ca4e1723e9577c1/): These days I think I only point out / react to maybe 10% of the inane things people say. Ten years ago that would&#x27;ve been closer to 90% Is this character growth?!?
 - [June 8, 2022, 12:44 p.m.](https://roytang.net/2022/06/1534396020099977217/): @joyarmadamba In 30 years fanatics will remember this time as a golden age kasi may libreng sakay
-- [June 8, 2022, 11:30 a.m.](https://roytang.net/2022/06/1534377232415789056/): @bloodyvints what game is this?
 
 [View all notes](https://roytang.net/notes)
 
