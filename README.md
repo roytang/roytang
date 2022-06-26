@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
-- [Bloodstained: Ritual of the Night](https://roytang.net/2022/06/bloodstained/)
+- [Weeknotes 2022-06-26](https://roytang.net/2022/06/weeknotes-06-26/)
+- [Bloodstained: Ritual of the Night (Steam)](https://roytang.net/2022/06/bloodstained/)
 - [Lab Tests](https://roytang.net/2022/06/lab-tests/)
 - [Weeknotes 2022-06-19](https://roytang.net/2022/06/weeknotes-06-19/)
 - [My Streets of New Capenna Limited Recap](https://roytang.net/2022/06/mtgsnc-limited-recap/)
-- [Weeknotes 2022-06-12: A Psalm for the Wild-Built](https://roytang.net/2022/06/weeknotes-06-12/)
 
 [View all posts](https://roytang.net/blog)
 
