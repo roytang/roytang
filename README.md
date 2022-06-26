@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I’ve locked myself out of my digital life – Terence Eden’s Blog](https://roytang.net/2022/06/ab12af767c1d298ed74fe1c52f92f048/)
 - [Is Web3 culture similar to Amway culture? - by Noah Smith](https://roytang.net/2022/06/8fd322fe590ba8dc78ac8ede4f425ae3/)
 - [The Human Kaleidoscope and the Unwritten Story of the World](https://roytang.net/2022/06/acc5a36749c3ff24eedf337c35d956f2/)
 - [I Should Be Able to Mute America](https://roytang.net/2022/06/f4561d65f903adf12746f8c3b3814373/)
 - [10x (engineer, context) pairs | benkuhn.net](https://roytang.net/2022/06/15363d64f707efbc17b40b6fa5c4e6b6/)
-- [Twitter invented a Clippy for cyberbullying](https://roytang.net/2022/06/bc50927f55d29b41f8c98fcf38384b4e/)
 
 [View all links](https://roytang.net/links)
 
