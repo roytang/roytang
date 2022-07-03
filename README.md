@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Am I on the IndieWeb Yet? | Miriam Eric Suzanne](https://roytang.net/2022/07/9d50ba275db3f1906bb409294d188a89/)
+- [You, a Million Times · Matthias Ott – User Experience Designer](https://roytang.net/2022/07/e98a6e5cc36c71d0c1a0bb27026d3eb5/)
 - [Is Every Game of Slay the Spire Winnable? – Forgotten Arbiter&#x27;s Blog](https://roytang.net/2022/06/f97ab4270c900bcf6e22f204f34f4852/)
 - [I’ve locked myself out of my digital life – Terence Eden’s Blog](https://roytang.net/2022/06/ab12af767c1d298ed74fe1c52f92f048/)
 - [Is Web3 culture similar to Amway culture? - by Noah Smith](https://roytang.net/2022/06/8fd322fe590ba8dc78ac8ede4f425ae3/)
-- [The Human Kaleidoscope and the Unwritten Story of the World](https://roytang.net/2022/06/acc5a36749c3ff24eedf337c35d956f2/)
-- [I Should Be Able to Mute America](https://roytang.net/2022/06/f4561d65f903adf12746f8c3b3814373/)
 
 [View all links](https://roytang.net/links)
 
