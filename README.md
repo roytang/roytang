@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [An Abundance of Options](https://roytang.net/2022/07/abundance/)
 - [Weeknotes 2022-07-03](https://roytang.net/2022/07/weeknotes-07-03/)
 - [Triangle Strategy (Switch)](https://roytang.net/2022/07/triangle-strategy/)
 - [Weeknotes 2022-06-26](https://roytang.net/2022/06/weeknotes-06-26/)
 - [Bloodstained: Ritual of the Night (Steam)](https://roytang.net/2022/06/bloodstained/)
-- [Lab Tests](https://roytang.net/2022/06/lab-tests/)
 
 [View all posts](https://roytang.net/blog)
 
