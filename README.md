@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 12, 2022, 4:47 p.m.](https://roytang.net/2022/07/1546778220732841984/): Drafting some Baldur&#x27;s Gate! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtghbg
 - [July 8, 2022, 11:22 p.m.](https://roytang.net/2022/07/1545428086761463808/): Tempted to make a reddit alt named AlchemyLover just for r/MagicArena #magicarena #MTGArena #MTGAlchemy
 - [July 4, 2022, 8:53 p.m.](https://roytang.net/2022/07/1543941083138510848/): @MarnelEstrada Congrats!
 - [June 30, 2022, 10:30 p.m.](https://roytang.net/2022/06/popquiz-scenetest/): Quiz night! First face to face quiz night since the pandemic began! Rounds were: Two films one plot - films with the same plot Book to Film Adaptations Iconic Scenes / Scripts Cannes Spotlight Movie Posters - spot the poster edit Movie Soundtracks We were doing well, but we hit the failed ace in round 5. If we had gotten it we would have won the whole thing. Still managed to tie for 3rd and win the tiebreaker though! It was a fun session, we had some good pulls, and it was nice to have an in-person quiz night again.
 - [June 23, 2022, 1:57 p.m.](https://roytang.net/2022/06/1539850091648802817/): @LaTtEX he doesn&#x27;t make promises, only aspirations
-- [June 20, 2022, 1:36 p.m.](https://roytang.net/2022/06/1538757685192970240/): Receive promotional email from BDO Hunt for the unsubscribe link in tiny text at the bottom Click the &quot;here&quot;, assuming it&#x27;s a link It&#x27;s an image! :facepalm: (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
