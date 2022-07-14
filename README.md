@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 14, 2022, 5:04 p.m.](https://roytang.net/2022/07/1547507375741042688/): Drafting some Baldur&#x27;s Gate again! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtghbg
 - [July 14, 2022, 4:17 p.m.](https://roytang.net/2022/07/1547495557358178304/): Just remembered that Marvel has two separate and unrelated groups of characters called Eternals and Externals and now I&#x27;m mad
 - [July 13, 2022, 5:15 p.m.](https://roytang.net/2022/07/1547147705876500480/): Reminder that there is absolutely nothing stopping you from blogging this way still. Quoted emkey&#x27;s tweet: Does anyone remember blogging when it was really just you talking about your day and what interesting thing happened? Before sponsored posts and photo dumps. Before people cared about it being &quot;content&quot; and it was seriously just something you wanted to share.
 - [July 13, 2022, 11:29 a.m.](https://roytang.net/2022/07/1547060739105361920/): Easy 3-0 in the midweek magic #mtghbg phantom bot draft. First pick: Horn of Valhalla #mtg #magicarena (Click photos to view full-size)
 - [July 12, 2022, 11:54 p.m.](https://roytang.net/2022/07/1546885783092543489/): This felt a bit like sorcery Quoted DrGBuckingham&#x27;s tweet: Look closely. There are actually 16 circles in this image. And once you see them, the image appears changed forever. The wonderful coffer illusion, by Anthony Norcia (Click photos to view full-size)
-- [July 12, 2022, 4:47 p.m.](https://roytang.net/2022/07/1546778220732841984/): Drafting some Baldur&#x27;s Gate! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtghbg [21:03] First draft went a horrible 1-3, but second one got there! I really should have just stuck to my AFR instincts lol YT: https://www.youtube.com/watch?v=Y1UEalTMpU0 (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
