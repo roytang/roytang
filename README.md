@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [July 14, 2022, 5:04 p.m.](https://roytang.net/2022/07/1547507375741042688/): Drafting some Baldur&#x27;s Gate again! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtghbg
+- [July 14, 2022, 5:04 p.m.](https://roytang.net/2022/07/1547507375741042688/): Drafting some Baldur&#x27;s Gate again! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtghbg [22:21] The drafts today seemed good, but due to a mix of misplays and mana screw, I only got to 4-3 both times. YT: https://www.youtube.com/watch?v=l91aggscvbU (Click photos to view full-size)
 - [July 14, 2022, 4:17 p.m.](https://roytang.net/2022/07/1547495557358178304/): Just remembered that Marvel has two separate and unrelated groups of characters called Eternals and Externals and now I&#x27;m mad
 - [July 13, 2022, 5:15 p.m.](https://roytang.net/2022/07/1547147705876500480/): Reminder that there is absolutely nothing stopping you from blogging this way still. Quoted emkey&#x27;s tweet: Does anyone remember blogging when it was really just you talking about your day and what interesting thing happened? Before sponsored posts and photo dumps. Before people cared about it being &quot;content&quot; and it was seriously just something you wanted to share.
 - [July 13, 2022, 11:29 a.m.](https://roytang.net/2022/07/1547060739105361920/): Easy 3-0 in the midweek magic #mtghbg phantom bot draft. First pick: Horn of Valhalla #mtg #magicarena (Click photos to view full-size)
