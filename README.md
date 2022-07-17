@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-07-17](https://roytang.net/2022/07/weeknotes-07-17/)
 - [MCU Reviews: Thor: Love and Thunder, Ms Marvel](https://roytang.net/2022/07/love-thunder-marvel/)
 - [Weeknotes 2022-07-10](https://roytang.net/2022/07/weeknotes-07-10/)
 - [An Abundance of Options](https://roytang.net/2022/07/abundance/)
 - [Weeknotes 2022-07-03](https://roytang.net/2022/07/weeknotes-07-03/)
-- [Triangle Strategy (Switch)](https://roytang.net/2022/07/triangle-strategy/)
 
 [View all posts](https://roytang.net/blog)
 
