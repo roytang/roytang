@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [1x Engineer](https://roytang.net/2022/07/f052b4eeccdfe1d050a54c39d418ade9/)
 - [The week the open web won – Hi, I&#x27;m Heather Burns](https://roytang.net/2022/07/94fbe5fb694d2b52ee70fd57bb0780f1/)
 - [Give Up GitHub: The Time Has Come! - Conservancy Blog - Software Freedom Conservancy](https://roytang.net/2022/07/edfaceb1447ddbf21aebe3400155d877/)
 - [Am I on the IndieWeb Yet? | Miriam Eric Suzanne](https://roytang.net/2022/07/9d50ba275db3f1906bb409294d188a89/)
 - [You, a Million Times · Matthias Ott – User Experience Designer](https://roytang.net/2022/07/e98a6e5cc36c71d0c1a0bb27026d3eb5/)
-- [Is Every Game of Slay the Spire Winnable? – Forgotten Arbiter&#x27;s Blog](https://roytang.net/2022/06/f97ab4270c900bcf6e22f204f34f4852/)
 
 [View all links](https://roytang.net/links)
 
