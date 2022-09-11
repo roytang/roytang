@@ -6,40 +6,40 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
-- [Five Days in Naga](https://roytang.net/2022/07/five-days-in-naga/)
-- [Weeknotes 2022-07-17](https://roytang.net/2022/07/weeknotes-07-17/)
-- [MCU Reviews: Thor: Love and Thunder, Ms Marvel](https://roytang.net/2022/07/love-thunder-marvel/)
-- [Weeknotes 2022-07-10](https://roytang.net/2022/07/weeknotes-07-10/)
-- [An Abundance of Options](https://roytang.net/2022/07/abundance/)
+- [Movies: Nausicaä, Top Gun Maverick, Game Night](https://roytang.net/2022/09/nausica-maverick-gamenight/)
+- [Books: Maskerade by Terry Pratchett](https://roytang.net/2022/09/maskerade/)
+- [Weeknotes 2022-09-04](https://roytang.net/2022/09/weeknotes-09-04/)
+- [My Alchemy Horizons Baldur&#x27;s Gate Limited Recap](https://roytang.net/2022/09/mtghbg-limited-recap/)
+- [Initial Thoughts on AI-generated Art (and Code)](https://roytang.net/2022/09/ai-art-code/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
-- [no hello](https://roytang.net/2022/07/65349dc10b9ee1611af8f37bc4856fa3/)
-- [1x Engineer](https://roytang.net/2022/07/f052b4eeccdfe1d050a54c39d418ade9/)
-- [The week the open web won – Hi, I&#x27;m Heather Burns](https://roytang.net/2022/07/94fbe5fb694d2b52ee70fd57bb0780f1/)
-- [Give Up GitHub: The Time Has Come! - Conservancy Blog - Software Freedom Conservancy](https://roytang.net/2022/07/edfaceb1447ddbf21aebe3400155d877/)
-- [Am I on the IndieWeb Yet? | Miriam Eric Suzanne](https://roytang.net/2022/07/9d50ba275db3f1906bb409294d188a89/)
+- [Short stories: How much do you make? How do you sell one? How long does it take to write?](https://roytang.net/2022/09/567ed5f83a578be1d3e5d82373900d81/)
+- [Why Does a Librarian Own a Social Media Site That&#x27;s Been Around for Longer Than Facebook?](https://roytang.net/2022/09/3862ce2caa2800a13243e2c4098b085c/)
+- [After self-hosting my email for twenty-three years I have thrown in the towel. The oligopoly has won](https://roytang.net/2022/09/450b3c80826753905784f1baf4eeca3d/)
+- [The Big [Censored] Theory](https://roytang.net/2022/09/6eee37264777fafa45dfd61c075ec2ce/)
+- [Senior developers create more senior developers | Go Make Things](https://roytang.net/2022/09/408a1acda3b9be6331af3068e9dfd867/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
-- [July 20, 2022, 12:40 p.m.](https://roytang.net/2022/07/1549615094111186944/): @daretorant Try switching your timeline to latest tweets
-- [July 19, 2022, 4:49 p.m.](https://roytang.net/2022/07/1549315521795002368/): Drafting some more Baldur&#x27;s Gate! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtghbg [21:49] First draft went very well, finishing with the 7-2. Second draft was a much worse 3-3, but both drafts combined to make the day profitable. YT: https://www.youtube.com/watch?v=II8IaAMNwys (Click photos to view full-size)
-- [July 14, 2022, 5:04 p.m.](https://roytang.net/2022/07/1547507375741042688/): Drafting some Baldur&#x27;s Gate again! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtghbg [22:21] The drafts today seemed good, but due to a mix of misplays and mana screw, I only got to 4-3 both times. YT: https://www.youtube.com/watch?v=l91aggscvbU (Click photos to view full-size)
-- [July 14, 2022, 4:17 p.m.](https://roytang.net/2022/07/1547495557358178304/): Just remembered that Marvel has two separate and unrelated groups of characters called Eternals and Externals and now I&#x27;m mad
-- [July 13, 2022, 5:15 p.m.](https://roytang.net/2022/07/1547147705876500480/): Reminder that there is absolutely nothing stopping you from blogging this way still. Quoted emkey&#x27;s tweet: Does anyone remember blogging when it was really just you talking about your day and what interesting thing happened? Before sponsored posts and photo dumps. Before people cared about it being &quot;content&quot; and it was seriously just something you wanted to share.
+- [Sept. 11, 2022, 2:23 a.m.](https://roytang.net/2022/09/616a3e6a91df76eb443d70cdb0e16bc8/): Apologies to anyone who caught the toot/tweet spam a couple of hours back, I made a deployment mistake and some background jobs ran wild. I had to delete so many toots/tweets T_T
+- [Sept. 8, 2022, 5:10 p.m.](https://roytang.net/2022/09/1567802625034264576/): Streaming some more Dominaria United draft! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu [20:44] My luck finally ran out and I had two poor drafts today, an 0 and a 3. I suspect it&#x27;s because I didn&#x27;t have green this time. YT: https://www.youtube.com/watch?v=WE2zR9LGUFM (Click photos to view full-size)
+- [Sept. 8, 2022, 3 p.m.](https://roytang.net/2022/09/1567769922218131458/): @joyarmadamba what is this about
+- [Sept. 7, 2022, 10:52 p.m.](https://roytang.net/2022/09/1567526232023257089/): Midweek Magic on #MagicArena this week is free #MTGDMU phantom sealed, which means you can be crazy greedy and play all your rares. I even only have one spell that could trigger the Vesuvan Diplomacy lol. Managed to go 3-1 though (Click photos to view full-size)
+- [Sept. 7, 2022, 9:56 p.m.](https://roytang.net/2022/09/1567512091854049280/): Playing Words on Stream for some reason https://www.twitch.tv/twitchyroy
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/55/b6/55b643dddb9496966c4c37fc2b21c5a6.jpg)
-- ![](https://roytang.net/media/cache/71/25/7125fc96d9db296bc5f16306d33cc459.jpg)
+- ![](https://roytang.net/media/cache/8b/b5/8bb546ee9b7c39665a6fa8d84b40f6c7.jpg)
 - ![](https://roytang.net/media/cache/12/60/1260736fe21c5cfd96c1c0b6f467475e.jpg)
+- ![](https://roytang.net/media/cache/71/25/7125fc96d9db296bc5f16306d33cc459.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
