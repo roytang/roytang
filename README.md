@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 12, 2022, 5:42 p.m.](https://roytang.net/2022/09/1569260077688709120/): Drafting Dominaria United yet again https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu
 - [Sept. 11, 2022, 2:23 a.m.](https://roytang.net/2022/09/616a3e6a91df76eb443d70cdb0e16bc8/): Apologies to anyone who caught the toot/tweet spam a couple of hours back, I made a deployment mistake and some background jobs ran wild. I had to delete so many toots/tweets T_T
 - [Sept. 8, 2022, 5:10 p.m.](https://roytang.net/2022/09/1567802625034264576/): Streaming some more Dominaria United draft! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu [20:44] My luck finally ran out and I had two poor drafts today, an 0 and a 3. I suspect it&#x27;s because I didn&#x27;t have green this time. YT: https://www.youtube.com/watch?v=WE2zR9LGUFM (Click photos to view full-size)
 - [Sept. 8, 2022, 3 p.m.](https://roytang.net/2022/09/1567769922218131458/): @joyarmadamba what is this about
 - [Sept. 7, 2022, 10:52 p.m.](https://roytang.net/2022/09/1567526232023257089/): Midweek Magic on #MagicArena this week is free #MTGDMU phantom sealed, which means you can be crazy greedy and play all your rares. I even only have one spell that could trigger the Vesuvan Diplomacy lol. Managed to go 3-1 though (Click photos to view full-size)
-- [Sept. 7, 2022, 9:56 p.m.](https://roytang.net/2022/09/1567512091854049280/): Playing Words on Stream for some reason https://www.twitch.tv/twitchyroy
 
 [View all notes](https://roytang.net/notes)
 
