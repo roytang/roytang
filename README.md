@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Take Care of Your Blog](https://roytang.net/2022/09/10b3556f2885d58d59c53f2b4ab3b3da/)
 - [Short stories: How much do you make? How do you sell one? How long does it take to write?](https://roytang.net/2022/09/567ed5f83a578be1d3e5d82373900d81/)
 - [Why Does a Librarian Own a Social Media Site That&#x27;s Been Around for Longer Than Facebook?](https://roytang.net/2022/09/3862ce2caa2800a13243e2c4098b085c/)
 - [After self-hosting my email for twenty-three years I have thrown in the towel. The oligopoly has won](https://roytang.net/2022/09/450b3c80826753905784f1baf4eeca3d/)
 - [The Big [Censored] Theory](https://roytang.net/2022/09/6eee37264777fafa45dfd61c075ec2ce/)
-- [Senior developers create more senior developers | Go Make Things](https://roytang.net/2022/09/408a1acda3b9be6331af3068e9dfd867/)
 
 [View all links](https://roytang.net/links)
 
