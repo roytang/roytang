@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 15, 2022, 8:03 p.m.](https://roytang.net/2022/09/1570382684475592704/): Drafting Dominaria United 9/15 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu
 - [Sept. 15, 2022, 12:38 a.m.](https://roytang.net/2022/09/1570089497551056899/): &gt; &quot;Officials pointed to one Asian country, which they declined to name, where they said the Russian ambassador gave millions of dollars in cash to a presidential candidate.&quot; raises hand I would like to take a guess! Quoted TristanSnell&#x27;s tweet: BREAKING: Russia funneled over $300 million into political parties and candidates around the world — including the US — since 2014, according to a new US intelligence review. Brexit, Trump, Bolsonaro, Orban, Le Pen — there’s a reason for the rising tide of fascism: the Kremlin.
 - [Sept. 13, 2022, 7:11 p.m.](https://roytang.net/2022/09/1569644905089191939/): Drafting Dominaria United 9/13 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu [22:11] This was another bad draft day unfortunately. Got a mediocre 3 followed by a terrible 0 =/ YT: https://www.youtube.com/watch?v=MpXC1aJ_2yg (Click photos to view full-size)
 - [Sept. 12, 2022, 5:42 p.m.](https://roytang.net/2022/09/1569260077688709120/): Drafting Dominaria United yet again https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu [19:54] Today&#x27;s draft wasn&#x27;t as good as the first two, but at least we beat the terrible drafts 3 and 4. YT: https://www.youtube.com/watch?v=3Nk1ubiBzHE (Click photos to view full-size)
 - [Sept. 11, 2022, 2:23 a.m.](https://roytang.net/2022/09/616a3e6a91df76eb443d70cdb0e16bc8/): Apologies to anyone who caught the toot/tweet spam a couple of hours back, I made a deployment mistake and some background jobs ran wild. I had to delete so many toots/tweets T_T
-- [Sept. 8, 2022, 5:10 p.m.](https://roytang.net/2022/09/1567802625034264576/): Streaming some more Dominaria United draft! https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu [20:44] My luck finally ran out and I had two poor drafts today, an 0 and a 3. I suspect it&#x27;s because I didn&#x27;t have green this time. YT: https://www.youtube.com/watch?v=WE2zR9LGUFM (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
