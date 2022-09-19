@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [A Lack of Fear](https://roytang.net/2022/09/lack-of-fear/)
 - [Weeknotes 2022-09-18](https://roytang.net/2022/09/weeknotes-09-18/)
 - [Weeknotes 2022-09-11](https://roytang.net/2022/09/weeknotes-09-11/)
 - [Movies: Nausicaä, Top Gun Maverick, Game Night](https://roytang.net/2022/09/nausica-maverick-gamenight/)
 - [Books: Maskerade by Terry Pratchett](https://roytang.net/2022/09/maskerade/)
-- [Weeknotes 2022-09-04](https://roytang.net/2022/09/weeknotes-09-04/)
 
 [View all posts](https://roytang.net/blog)
 
