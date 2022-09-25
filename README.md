@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [WORLD OF TOMORROW - YouTube](https://roytang.net/2022/09/14bfff78213855046ed7c7ff6d16e017/)
+- [Institute of Network Cultures | Christopher Kelty:  The Internet We Could Have Had](https://roytang.net/2022/09/c5f84b8197cf32c224fb73e2bd175676/)
 - [The Enduring Allure of Choose Your Own Adventure Books | The New Yorker](https://roytang.net/2022/09/44b2ee3484b2bf2d0a4217a2923eb206/)
 - [‘You can’t say that!’: how to argue, better | Friendship | The Guardian](https://roytang.net/2022/09/aec0f8843c5b8beed200d8bc686f0d7b/)
 - [Take Care of Your Blog](https://roytang.net/2022/09/10b3556f2885d58d59c53f2b4ab3b3da/)
-- [Short stories: How much do you make? How do you sell one? How long does it take to write?](https://roytang.net/2022/09/567ed5f83a578be1d3e5d82373900d81/)
-- [Why Does a Librarian Own a Social Media Site That&#x27;s Been Around for Longer Than Facebook?](https://roytang.net/2022/09/3862ce2caa2800a13243e2c4098b085c/)
 
 [View all links](https://roytang.net/links)
 
