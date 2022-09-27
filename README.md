@@ -27,10 +27,10 @@ Latest shared links:
 Latest notes:
 
 - [Sept. 27, 2022, 11:17 p.m.](https://roytang.net/2022/09/treeline/): First Jason quiz night in three years! We won! Rounds were British monarchy Current tv China Logos (visual round) Batman Sports Animals (joker) Songs with 1 word titles (audio round)
+- [Sept. 27, 2022, 7:07 p.m.](https://roytang.net/2022/09/magnolia/): 
 - [Sept. 26, 2022, 6:29 p.m.](https://roytang.net/2022/09/1574345291561680901/): Quick Drafting Dominaria United 9/26 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgdmu #twitch [21:41] Managed a mediocre 3 and a pretty good 7 this time. The UR one felt great to play but I made too many mistakes. YT: https://www.youtube.com/watch?v=0cwxQpk6rJE (Click photos to view full-size)
 - [Sept. 24, 2022, 8:38 p.m.](https://roytang.net/2022/09/1573653142574575617/): The course described in this thread is something our local students sorely need Quoted QueenOfRats&#x27;s tweet: As we’re all still yelling abt research skills, digital literacy, &amp; Gen Z, I thought I’d share how I do my first 9th grade research skills workshop. This usually takes about 20 min and is intended to be an introduction. We go over it again several times during the school year. 1/
 - [Sept. 19, 2022, 7:02 p.m.](https://roytang.net/2022/09/1571816961805254659/): Quick Drafting Dominaria United 9/19 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgdmu #twitch [23:02] First day of Dominaria Quick Drafts didn&#x27;t go so well. Terrible 1 followed by mediocre 4. YT: https://www.youtube.com/watch?v=NWx0PUVxOho (Click photos to view full-size)
-- [Sept. 15, 2022, 8:03 p.m.](https://roytang.net/2022/09/1570382684475592704/): Drafting Dominaria United 9/15 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu [23:27] Today was a good day; got a 7-0 followed by a medicore 3, still ended up net gem positive for the day YT: https://www.youtube.com/watch?v=tMxtxFkrIjI (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
