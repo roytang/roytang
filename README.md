@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Sept. 29, 2022, 8:19 p.m.](https://roytang.net/2022/09/1575460137095028736/): Quick Drafting Dominaria United 9/29 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu
+- [Sept. 29, 2022, 8:19 p.m.](https://roytang.net/2022/09/1575460137095028736/): Quick Drafting Dominaria United 9/29 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu [23:02] Squeezed in a couple of DMU quick drafts before they rotate out. Tried UW for the first draft, it went a terrible 0 wins, but I got my groove back and went 7-0 for my final DMU quick draft! YT: https://www.youtube.com/watch?v=RMv6p7VC0i8 (Click photos to view full-size)
 - [Sept. 27, 2022, 11:17 p.m.](https://roytang.net/2022/09/treeline/): First Jason quiz night in three years! We won! Rounds were British monarchy Current tv China Logos (visual round) Batman Sports Animals (joker) Songs with 1 word titles (audio round)
 - [Sept. 27, 2022, 7:07 p.m.](https://roytang.net/2022/09/magnolia/): 
 - [Sept. 26, 2022, 6:29 p.m.](https://roytang.net/2022/09/1574345291561680901/): Quick Drafting Dominaria United 9/26 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgdmu #twitch [21:41] Managed a mediocre 3 and a pretty good 7 this time. The UR one felt great to play but I made too many mistakes. YT: https://www.youtube.com/watch?v=0cwxQpk6rJE (Click photos to view full-size)
