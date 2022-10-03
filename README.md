@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Noahpinion: A concrete vision of the liberal democratic future](https://roytang.net/2022/10/49598f3230e7f130c1860fa83cd4b049/)
 - [Pluralistic: 29 Sep 2022 Porn on Tumblr is a complicated subject](https://roytang.net/2022/10/3145ad0bc069c3297c1820651b9fa3e8/)
 - [Google is shutting down Stadia in January 2023 - The Verge](https://roytang.net/2022/10/b22c9435acd44533d9ba97ca54e3d9f7/)
 - [Google search “discussions and forums” highlights the results you really want - The Verge](https://roytang.net/2022/10/88564df79bdd2de79c55eefe65161bb7/)
 - [Neil Gaiman on Kindness](https://roytang.net/2022/10/7f4a6a728180b8e968eeffffbd5597f2/)
-- [WORLD OF TOMORROW - YouTube](https://roytang.net/2022/09/14bfff78213855046ed7c7ff6d16e017/)
 
 [View all links](https://roytang.net/links)
 
