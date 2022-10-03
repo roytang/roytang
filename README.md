@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 3, 2022, 7:55 p.m.](https://roytang.net/2022/10/1576903743593140225/): I think I do. Can I give it a shot? It has to do with the purpose of government. For some people (like us) purpose of government is to help people. We think fairness is possible, and that the government&#x27;s job is to try to create fairness. Others have a different worldview. 1/ https://twitter.com/JoyceWhiteVance/status/1556372038008332290
+- [Oct. 3, 2022, 7:55 p.m.](https://roytang.net/2022/10/1576903714920890368/): Contrary to popular belief, most DLC isn’t content that was maliciously cut from the game to make an extra buck. DLC has its own budget, timelines, greenlight, staff, etc. It’s a whoooole separate project. And nowadays it’s necessary for a AAA/AAAA game to ever break even. https://twitter.com/PushDustIn/status/1537598685625737216
+- [Oct. 3, 2022, 7:55 p.m.](https://roytang.net/2022/10/1576903661250580483/): Very long set of threads about the the various revisions Tolkien made to LOTR. The initial draft was a far, far cry from the finak outcome! Quoted mytholder&#x27;s tweet: So, for various reasons, I&#x27;m rereading the HISTORY OF MIDDLE-EARTH books about the writing of Lord of the Rings. They&#x27;re fascinating (for certain values of fascinating); what I&#x27;m going to do this time try to extract writing advice (thread)
 - [Oct. 1, 2022, 8:51 p.m.](https://roytang.net/2022/10/1576193172065071104/): So globe&#x27;s link filtering can easily be bypassed by mixed case https lol (Click photos to view full-size)
 - [Sept. 29, 2022, 8:19 p.m.](https://roytang.net/2022/09/1575460137095028736/): Quick Drafting Dominaria United 9/29 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgdmu [23:02] Squeezed in a couple of DMU quick drafts before they rotate out. Tried UW for the first draft, it went a terrible 0 wins, but I got my groove back and went 7-0 for my final DMU quick draft! YT: https://www.youtube.com/watch?v=RMv6p7VC0i8 (Click photos to view full-size)
-- [Sept. 27, 2022, 11:17 p.m.](https://roytang.net/2022/09/treeline/): First Jason quiz night in three years! We won! Rounds were British monarchy Current tv China Logos (visual round) Batman Sports Animals (joker) Songs with 1 word titles (audio round)
-- [Sept. 27, 2022, 7:07 p.m.](https://roytang.net/2022/09/magnolia/): 
-- [Sept. 26, 2022, 6:29 p.m.](https://roytang.net/2022/09/1574345291561680901/): Quick Drafting Dominaria United 9/26 https://www.twitch.tv/twitchyroy #mtg #magicarena #mtgdmu #twitch [21:41] Managed a mediocre 3 and a pretty good 7 this time. The UR one felt great to play but I made too many mistakes. YT: https://www.youtube.com/watch?v=0cwxQpk6rJE (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
