@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Google is shutting down Stadia in January 2023 - The Verge](https://roytang.net/2022/10/b22c9435acd44533d9ba97ca54e3d9f7/)
+- [Google search “discussions and forums” highlights the results you really want - The Verge](https://roytang.net/2022/10/88564df79bdd2de79c55eefe65161bb7/)
 - [Neil Gaiman on Kindness](https://roytang.net/2022/10/7f4a6a728180b8e968eeffffbd5597f2/)
 - [WORLD OF TOMORROW - YouTube](https://roytang.net/2022/09/14bfff78213855046ed7c7ff6d16e017/)
 - [Institute of Network Cultures | Christopher Kelty:  The Internet We Could Have Had](https://roytang.net/2022/09/c5f84b8197cf32c224fb73e2bd175676/)
-- [The Enduring Allure of Choose Your Own Adventure Books | The New Yorker](https://roytang.net/2022/09/44b2ee3484b2bf2d0a4217a2923eb206/)
-- [‘You can’t say that!’: how to argue, better | Friendship | The Guardian](https://roytang.net/2022/09/aec0f8843c5b8beed200d8bc686f0d7b/)
 
 [View all links](https://roytang.net/links)
 
