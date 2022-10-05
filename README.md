@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Ludum Dare 51: 10 Second Pizza Delivery](https://roytang.net/2022/10/ludum-dare-51-pizza/)
 - [Weeknotes 2022-10-03](https://roytang.net/2022/10/weeknotes-10-03/)
 - [Weeknotes 2022-09-25](https://roytang.net/2022/09/weeknotes-09-25/)
 - [Book Review: The Alloy of Law by Brandon Sanderson](https://roytang.net/2022/09/alloy-of-law/)
 - [A Lack of Fear](https://roytang.net/2022/09/lack-of-fear/)
-- [Weeknotes 2022-09-18](https://roytang.net/2022/09/weeknotes-09-18/)
 
 [View all posts](https://roytang.net/blog)
 
