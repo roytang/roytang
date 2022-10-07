@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The latest Godot Engine showreel is an impressive look at upcoming games | GamingOnLinux](https://roytang.net/2022/10/f32e6e20e6d61092466b593194854482/)
 - [SNES Ranking](https://roytang.net/2022/10/364d1c19613b27a35b2568140f9cc37b/)
 - [1977: Sylvester Stallone on making ROCKY | BBC Archive](https://roytang.net/2022/10/f18c1e60d3a7463a56f2515780514f57/)
 - [Marvel Studios’ Black Panther: Wakanda Forever | Official Trailer - YouTube](https://roytang.net/2022/10/c00c0e0ee8a446d68484205d39f98b5b/)
 - [Noahpinion: A concrete vision of the liberal democratic future](https://roytang.net/2022/10/49598f3230e7f130c1860fa83cd4b049/)
-- [Pluralistic: 29 Sep 2022 Porn on Tumblr is a complicated subject](https://roytang.net/2022/10/3145ad0bc069c3297c1820651b9fa3e8/)
 
 [View all links](https://roytang.net/links)
 
