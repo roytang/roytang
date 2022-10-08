@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 8, 2022, 10:01 p.m.](https://roytang.net/2022/10/irilia5/): Inktober 22 catchup #1: Gargoyle https://roytang.net/2022/10/inktober2022_1_2_3_4/
 - [Oct. 8, 2022, 8:58 p.m.](https://roytang.net/2022/10/inktober2022_1_2_3_4/): Okay, I guess we&#x27;re doing this. #Inktober2022 (and #sketchdaily) catchup: 1 - Gargoyle 2 - Scurry 3 - Bat 4 - Scallop
 - [Oct. 7, 2022, 3:43 p.m.](https://roytang.net/2022/10/109125868390603935/): Oh no, just found out mastodon.technology is shutting down =/ No wonder I got a number of re-follows from migrated accounts today. Time to once again play the game of &quot;What if I just make my custom blog software Mastodon compatible?&quot;
 - [Oct. 5, 2022, 10:50 p.m.](https://roytang.net/2022/10/1577672610246426624/): @joyarmadamba tag natin si Ka Tunying
 - [Oct. 5, 2022, 8:22 p.m.](https://roytang.net/2022/10/1577635360968159232/): &quot;I don&#x27;t see why I should bow my head when I could hold it high, or place it in the hands of my enemies when I can defeat them.&quot; José Rizal Total combat losses of the enemy from Feb 24 to Oct 5: (Click photos to view full-size)
-- [Oct. 5, 2022, 3:50 p.m.](https://roytang.net/2022/10/1577566834945298432/): My headcanon is that Vic Rodriguez is out because he kept nagging Jr to get some work done - like the SRA thing - and that TCA is out because she kept asking about how to justify all the partying and other shenanigans. Calida is out probably for being an asshole or sth [15:54] Bersamin knows all of this so he just immediately got to work in making up nonsense to justify the F1 thing in a way that doesn&#x27;t prejudice any future excuse #philippines #politics
 
 [View all notes](https://roytang.net/notes)
 
@@ -38,8 +38,7 @@ Latest sketches:
 
 
 - ![](https://roytang.net/media/cache/8b/b5/8bb546ee9b7c39665a6fa8d84b40f6c7.jpg)
-- ![](https://roytang.net/media/cache/12/60/1260736fe21c5cfd96c1c0b6f467475e.jpg)
-- ![](https://roytang.net/media/cache/71/25/7125fc96d9db296bc5f16306d33cc459.jpg)
+- ![](https://roytang.net/media/cache/e7/d2/e7d2c1d9a38293e39fc717ce5a6f70ee.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
