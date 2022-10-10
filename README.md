@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-10-10](https://roytang.net/2022/10/weeknotes-10-10/)
 - [Ludum Dare 51: 10 Second Pizza Delivery](https://roytang.net/2022/10/ludum-dare-51-pizza/)
 - [Weeknotes 2022-10-03](https://roytang.net/2022/10/weeknotes-10-03/)
 - [Weeknotes 2022-09-25](https://roytang.net/2022/09/weeknotes-09-25/)
 - [Book Review: The Alloy of Law by Brandon Sanderson](https://roytang.net/2022/09/alloy-of-law/)
-- [A Lack of Fear](https://roytang.net/2022/09/lack-of-fear/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 9, 2022, 1 p.m.](https://roytang.net/2022/10/inengs/): Family lunch @ Ineng&#x27;s. They still take a very long time to serve the food.
 - [Oct. 8, 2022, 8:58 p.m.](https://roytang.net/2022/10/inktober2022_1_2_3_4/): Okay, I guess we&#x27;re doing this. #Inktober2022 (and #sketchdaily) catchup: 1 - Gargoyle 2 - Scurry 3 - Bat 4 - Scallop
+- [Oct. 7, 2022, 6:30 p.m.](https://roytang.net/2022/10/madcafe/): Had dinner at MadCafe. I think this place has been around and nearby for more than 5 years now and I only decided to try it today. I forgot to take a picture of the food. It was a bit heavy.
 - [Oct. 7, 2022, 3:43 p.m.](https://roytang.net/2022/10/109125868390603935/): Oh no, just found out mastodon.technology is shutting down =/ No wonder I got a number of re-follows from migrated accounts today. Time to once again play the game of &quot;What if I just make my custom blog software Mastodon compatible?&quot;
 - [Oct. 5, 2022, 10:50 p.m.](https://roytang.net/2022/10/1577672610246426624/): @joyarmadamba tag natin si Ka Tunying
-- [Oct. 5, 2022, 8:22 p.m.](https://roytang.net/2022/10/1577635360968159232/): &quot;I don&#x27;t see why I should bow my head when I could hold it high, or place it in the hands of my enemies when I can defeat them.&quot; José Rizal Total combat losses of the enemy from Feb 24 to Oct 5: (Click photos to view full-size)
-- [Oct. 5, 2022, 3:50 p.m.](https://roytang.net/2022/10/1577566834945298432/): My headcanon is that Vic Rodriguez is out because he kept nagging Jr to get some work done - like the SRA thing - and that TCA is out because she kept asking about how to justify all the partying and other shenanigans. Calida is out probably for being an asshole or sth [15:54] Bersamin knows all of this so he just immediately got to work in making up nonsense to justify the F1 thing in a way that doesn&#x27;t prejudice any future excuse #philippines #politics
 
 [View all notes](https://roytang.net/notes)
 
