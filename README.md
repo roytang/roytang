@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 12, 2022, 5:06 a.m.](https://roytang.net/2022/10/109151675043482439/): Ok, about to attempt to migrate to @roytang@indieweb.social, see you on the other side!
 - [Oct. 10, 2022, 10:15 p.m.](https://roytang.net/2022/10/1579475779930705921/): Playing Words on Stream again https://www.twitch.tv/twitchyroy
 - [Oct. 9, 2022, 1 p.m.](https://roytang.net/2022/10/inengs/): Family lunch @ Ineng&#x27;s. They still take a very long time to serve the food.
 - [Oct. 8, 2022, 8:58 p.m.](https://roytang.net/2022/10/inktober2022_1_2_3_4/): Okay, I guess we&#x27;re doing this. #Inktober2022 (and #sketchdaily) catchup: 1 - Gargoyle 2 - Scurry 3 - Bat 4 - Scallop
 - [Oct. 7, 2022, 6:30 p.m.](https://roytang.net/2022/10/madcafe/): Had dinner at MadCafe. I think this place has been around and nearby for more than 5 years now and I only decided to try it today. I forgot to take a picture of the food. It was a bit heavy.
-- [Oct. 7, 2022, 3:43 p.m.](https://roytang.net/2022/10/109125868390603935/): Oh no, just found out mastodon.technology is shutting down =/ No wonder I got a number of re-follows from migrated accounts today. Time to once again play the game of &quot;What if I just make my custom blog software Mastodon compatible?&quot;
 
 [View all notes](https://roytang.net/notes)
 
