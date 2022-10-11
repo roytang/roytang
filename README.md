@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 12, 2022, 5:26 a.m.](https://roytang.net/2022/10/109151752766558627/): Aight, so notes on migrating to a new Mastodon instance: I found the ff helpful: https://edtechfactotum.com/migrating-to-a-new-mastodon-home/ I was able to successfully create the alias to the old account on this new account, so the bug mentioned in the above is already fixed. However, I was unable to create the redirect from the old account (&quot;is not an alias of this account&quot;). Looks like a cache invalidation issue (https://github.com/mastodon/mastodon/issues/12216), I&#x27;ll try again in a couple of days I guess
 - [Oct. 12, 2022, 5:06 a.m.](https://roytang.net/2022/10/109151675043482439/): Ok, about to attempt to migrate to @roytang@indieweb.social, see you on the other side!
 - [Oct. 10, 2022, 10:15 p.m.](https://roytang.net/2022/10/1579475779930705921/): Playing Words on Stream again https://www.twitch.tv/twitchyroy
 - [Oct. 9, 2022, 1 p.m.](https://roytang.net/2022/10/inengs/): Family lunch @ Ineng&#x27;s. They still take a very long time to serve the food.
 - [Oct. 8, 2022, 8:58 p.m.](https://roytang.net/2022/10/inktober2022_1_2_3_4/): Okay, I guess we&#x27;re doing this. #Inktober2022 (and #sketchdaily) catchup: 1 - Gargoyle 2 - Scurry 3 - Bat 4 - Scallop
-- [Oct. 7, 2022, 6:30 p.m.](https://roytang.net/2022/10/madcafe/): Had dinner at MadCafe. I think this place has been around and nearby for more than 5 years now and I only decided to try it today. I forgot to take a picture of the food. It was a bit heavy.
 
 [View all notes](https://roytang.net/notes)
 
@@ -47,7 +47,7 @@ Latest sketches:
 Elsewhere:
 
 - [Twitter](https://twitter.com/roytang)
-- [Mastodon](https://mastodon.technology/@roytang)
+- [Mastodon](https://indieweb.social/@roytang)
 - [Twitch](https://twitch.tv/twitchyroy)
 - [LinkedIn](https://www.linkedin.com/in/roytang)
 - [Instagram](https://instagram.com/roytang0400)
