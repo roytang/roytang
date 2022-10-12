@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Pluralistic: 11 Oct 2022 Trusting (machine learning) trust](https://roytang.net/2022/10/7226c2e4901c20197323d3f4fd710860/)
+- [I wish my web server were in the corner of my room (Interconnected)](https://roytang.net/2022/10/2fbdc837be22c31a9c7b8698a6966f50/)
 - [LEGEND - A DRAGON BALL TALE (FULL FILM) - 2022 STUDIO STRAY DOG - YouTube](https://roytang.net/2022/10/3ec99ce8ef9945a7e5a0e1128f2bcdde/)
 - [Wikipedia has once again debated whether Fox News is a reliable source.](https://roytang.net/2022/10/f1effe22710c13ec5c6cbf42a0bee64b/)
 - [There Is Simply Too Much Internet | by Ed Zitron | Sep, 2022 | Medium](https://roytang.net/2022/10/0fd58d85adedf6b0b4e4ea4f1d7df5d2/)
-- [The latest Godot Engine showreel is an impressive look at upcoming games | GamingOnLinux](https://roytang.net/2022/10/f32e6e20e6d61092466b593194854482/)
-- [SNES Ranking](https://roytang.net/2022/10/364d1c19613b27a35b2568140f9cc37b/)
 
 [View all links](https://roytang.net/links)
 
