@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 12, 2022, 4:32 p.m.](https://roytang.net/2022/10/109154371829684347/): New server, new pin #Introductions What to expect: Gaming, pop culture, tech stuff, current events, puns, anything I find hilarious. The blog: http://roytang.net/blog I stream games sometimes (mostly Magic Arena these days): http://twitch.tv/twitchyroy I doodle/sketch sometimes: https://roytang.net/albums/sketchbook/ Try my triviabot: twitter.com/triviastorm (I&#x27;ll make a masto version someday) Show me: your personal blogs/websites, writing, cluttered desktops, half-baked projects Feel free to message me.
 - [Oct. 12, 2022, 3:30 p.m.](https://roytang.net/2022/10/1580098442637942784/): @talk2GLOBE can i run a webserver from home using globe fiber?
 - [Oct. 12, 2022, 5:26 a.m.](https://roytang.net/2022/10/109151752766558627/): Aight, so notes on migrating to a new Mastodon instance: I found the ff helpful: https://edtechfactotum.com/migrating-to-a-new-mastodon-home/ I was able to successfully create the alias to the old account on this new account, so the bug mentioned in the above is already fixed. However, I was unable to create the redirect from the old account (&quot;is not an alias of this account&quot;). Looks like a cache invalidation issue (https://github.com/mastodon/mastodon/issues/12216), I&#x27;ll try again in a couple of days I guess
 - [Oct. 12, 2022, 5:06 a.m.](https://roytang.net/2022/10/109151675043482439/): Ok, about to attempt to migrate to @roytang@indieweb.social, see you on the other side!
 - [Oct. 10, 2022, 10:15 p.m.](https://roytang.net/2022/10/1579475779930705921/): Playing Words on Stream again https://www.twitch.tv/twitchyroy
-- [Oct. 9, 2022, 1 p.m.](https://roytang.net/2022/10/inengs/): Family lunch @ Ineng&#x27;s. They still take a very long time to serve the food.
 
 [View all notes](https://roytang.net/notes)
 
