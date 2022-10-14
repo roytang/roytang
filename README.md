@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Comics: Incredible Hulk (1962-1999), New Mutants (1983-1991) and others](https://roytang.net/2022/10/incredible-hulk-new-mutants/)
 - [Weeknotes 2022-10-10](https://roytang.net/2022/10/weeknotes-10-10/)
 - [Ludum Dare 51: 10 Second Pizza Delivery](https://roytang.net/2022/10/ludum-dare-51-pizza/)
 - [Weeknotes 2022-10-03](https://roytang.net/2022/10/weeknotes-10-03/)
 - [Weeknotes 2022-09-25](https://roytang.net/2022/09/weeknotes-09-25/)
-- [Book Review: The Alloy of Law by Brandon Sanderson](https://roytang.net/2022/09/alloy-of-law/)
 
 [View all posts](https://roytang.net/blog)
 
