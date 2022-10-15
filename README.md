@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Why Games Criticism Never Went Mainstream | by Clive Thompson | Oct, 2022 | Medium](https://roytang.net/2022/10/a179b950608b3e74159a5a28e7c1b316/)
 - [Improve the readability of the content on your website - Piccalilli](https://roytang.net/2022/10/ecf31cd54996594df7a5c7c158d14a98/)
 - [You Might Not Need JavaScript](https://roytang.net/2022/10/f4dc7fdb945b481b89cd0d858a163394/)
 - [Pluralistic: 11 Oct 2022 Trusting (machine learning) trust](https://roytang.net/2022/10/7226c2e4901c20197323d3f4fd710860/)
 - [I wish my web server were in the corner of my room (Interconnected)](https://roytang.net/2022/10/2fbdc837be22c31a9c7b8698a6966f50/)
-- [LEGEND - A DRAGON BALL TALE (FULL FILM) - 2022 STUDIO STRAY DOG - YouTube](https://roytang.net/2022/10/3ec99ce8ef9945a7e5a0e1128f2bcdde/)
 
 [View all links](https://roytang.net/links)
 
