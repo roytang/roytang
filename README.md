@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Proprietary Syndication Formats - Chris Coyier](https://roytang.net/2022/10/408c74fdb3a142f0f698bae278a54a97/)
 - [None of Your Business · Matthias Ott – User Experience Designer](https://roytang.net/2022/10/f3b8eb608b5e8cad7bfffd831868df20/)
 - [Pluralistic: 15 Oct 2022 How lawyers became sadists – Pluralistic](https://roytang.net/2022/10/968f6f5a6eaf8938cce907ddcb654e79/)
 - [Why Games Criticism Never Went Mainstream | by Clive Thompson | Oct, 2022 | Medium](https://roytang.net/2022/10/a179b950608b3e74159a5a28e7c1b316/)
 - [Improve the readability of the content on your website - Piccalilli](https://roytang.net/2022/10/ecf31cd54996594df7a5c7c158d14a98/)
-- [You Might Not Need JavaScript](https://roytang.net/2022/10/f4dc7fdb945b481b89cd0d858a163394/)
 
 [View all links](https://roytang.net/links)
 
