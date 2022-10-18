@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 18, 2022, 8:05 p.m.](https://roytang.net/2022/10/1582342222103838723/): @rasmansa f6 to f7?
 - [Oct. 17, 2022, 3:49 p.m.](https://roytang.net/2022/10/inktober2022_13_14_15_16/): Still behind. 13 - Kind 14 - Empty 15 - Armadillo. It was a mistake to attempt those spikes on this tiny pad. 16 - Fowl #inktober #inktober2022 #sketchdaily
 - [Oct. 15, 2022, 11:02 p.m.](https://roytang.net/2022/10/1581299378299449344/): Life is short and random and dumb and unfair. Have a snack.
 - [Oct. 14, 2022, 4:51 p.m.](https://roytang.net/2022/10/inktober2022_9_10_11_12/): My handwriting gets worse with each of these sets. 9 - Nest 10 - Crabby 11 - Eagle 12 - Forget Hopefully we catch up with the next set. #inktober #inktober2022 #sketchdaily
 - [Oct. 13, 2022, 6:29 p.m.](https://roytang.net/2022/10/1580505983692201984/): Drafting some Dominaria United Alchemy! https://www.twitch.tv/twitchyroy #mtg #mtgdmu #twitch #magicarena [21:15] First drafts back weren&#x27;t too good - ended up 3-3 and 2-3 respectively. Got to remember how to draft this format lol. More next week maybe! YT: https://www.youtube.com/watch?v=BBrcltg0qh8 (Click photos to view full-size)
-- [Oct. 12, 2022, 4:51 p.m.](https://roytang.net/2022/10/inktober2022_5_6_7_8/): I&#x27;m doing these 4 at a time but somehow I&#x27;m still falling further behind. 5 - Flame 6 - Bouquet 7 - Trip 8 - Match I found a red pen today. #inktober #inktober2022 #sketchdaily
 
 [View all notes](https://roytang.net/notes)
 
