@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 20, 2022, 12:26 a.m.](https://roytang.net/2022/10/inktober2022_17_18_19_20/): 17 - Salty 18 - Scrape 19 - Ponytail 20 - Bluff Hey, we caught up! #inktober #inktober2022 #sketchdaily
 - [Oct. 19, 2022, 7:48 p.m.](https://roytang.net/2022/10/1582700303526531073/): Broke through to Ultra Silver for the first time in #StreetFighterV ! Nothing -&gt; Silver: 5 years (!!) Silver -&gt; Super Silver: 14 months Super Silver -&gt; Ultra Silver: 5 months Here&#x27;s hoping we get to Gold before SF6 comes out! (Click photos to view full-size)
 - [Oct. 18, 2022, 8:05 p.m.](https://roytang.net/2022/10/1582342222103838723/): @rasmansa f6 to f7?
 - [Oct. 17, 2022, 3:49 p.m.](https://roytang.net/2022/10/inktober2022_13_14_15_16/): Still behind. 13 - Kind 14 - Empty 15 - Armadillo. It was a mistake to attempt those spikes on this tiny pad. 16 - Fowl #inktober #inktober2022 #sketchdaily
 - [Oct. 15, 2022, 11:02 p.m.](https://roytang.net/2022/10/1581299378299449344/): Life is short and random and dumb and unfair. Have a snack.
-- [Oct. 14, 2022, 4:51 p.m.](https://roytang.net/2022/10/inktober2022_9_10_11_12/): My handwriting gets worse with each of these sets. 9 - Nest 10 - Crabby 11 - Eagle 12 - Forget Hopefully we catch up with the next set. #inktober #inktober2022 #sketchdaily
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/1b/e6/1be6ed20af2ec45070c889eb85aafa6d.jpg)
-- ![](https://roytang.net/media/cache/75/e3/75e318f00f059353c2a777e8f5a644f9.jpg)
-- ![](https://roytang.net/media/cache/d2/eb/d2eb9431e6b321a25a7abd558941831e.jpg)
+- ![](https://roytang.net/media/cache/5f/5d/5f5d206af06895a0b40b11fbfadb78d3.jpg)
+- ![](https://roytang.net/media/cache/f9/1f/f91f81e9dd7e4a99d32eb2c726a6bbcb.jpg)
+- ![](https://roytang.net/media/cache/2c/18/2c18ee18a8f6042061ceb26ecd90b5e6.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
