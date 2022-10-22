@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 20, 2022, 11 p.m.](https://roytang.net/2022/10/popquiz-stage/): We skipped a couple of months of PopQuiz, but we&#x27;re back! Rounds were: Drag Performers - 5pts Concerts and Festival - 7pts BTS - 20pts with Ace (good job Army teammates!) Live Theater - 3pts Fictional Competitions - 6pts Video Games (audio round) - 8pts with powerup We saved our powerup for the video games round because we didn&#x27;t know it was an audio round which was much tougher. The (very blurry because I was in a rush) board picture below implies we tied for 1st with 49pts, but actually after the tiebreaker (WHICH WAS ALSO TIED), the 3rd place
+- [Oct. 20, 2022, 6:30 p.m.](https://roytang.net/2022/10/banapple-dinner/): 
+- [Oct. 20, 2022, 5 p.m.](https://roytang.net/2022/10/breadtalk-bekind/): 
 - [Oct. 20, 2022, 12:26 a.m.](https://roytang.net/2022/10/inktober2022_17_18_19_20/): 17 - Salty 18 - Scrape 19 - Ponytail 20 - Bluff Hey, we caught up! #inktober #inktober2022 #sketchdaily
 - [Oct. 19, 2022, 7:48 p.m.](https://roytang.net/2022/10/1582700303526531073/): Broke through to Ultra Silver for the first time in #StreetFighterV ! Nothing -&gt; Silver: 5 years (!!) Silver -&gt; Super Silver: 14 months Super Silver -&gt; Ultra Silver: 5 months Here&#x27;s hoping we get to Gold before SF6 comes out! (Click photos to view full-size)
-- [Oct. 18, 2022, 8:05 p.m.](https://roytang.net/2022/10/1582342222103838723/): @rasmansa f6 to f7?
-- [Oct. 17, 2022, 3:49 p.m.](https://roytang.net/2022/10/inktober2022_13_14_15_16/): Still behind. 13 - Kind 14 - Empty 15 - Armadillo. It was a mistake to attempt those spikes on this tiny pad. 16 - Fowl #inktober #inktober2022 #sketchdaily
-- [Oct. 15, 2022, 11:02 p.m.](https://roytang.net/2022/10/1581299378299449344/): Life is short and random and dumb and unfair. Have a snack.
 
 [View all notes](https://roytang.net/notes)
 
