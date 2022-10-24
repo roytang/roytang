@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 24, 2022, 10:06 a.m.](https://roytang.net/2022/10/1584365671600693248/): @waxpancake Twitter has a quality filter for notifications by default. Try disabling it in settings? (Click photos to view full-size)
 - [Oct. 23, 2022, 12:01 a.m.](https://roytang.net/2022/10/bullet-train/): Watched Bullet Train tonight. Was quite entertaining. I came in not knowing anything that wasn&#x27;t in the very first trailer. A colorful action film with some fun twists and surprising cameos. I really liked the soundtrack too, especially Japanese song covers.
 - [Oct. 20, 2022, 11 p.m.](https://roytang.net/2022/10/popquiz-stage/): We skipped a couple of months of PopQuiz, but we&#x27;re back! Rounds were: Drag Performers - 5pts Concerts and Festival - 7pts BTS - 20pts with Ace (good job Army teammates!) Live Theater - 3pts Fictional Competitions - 6pts Video Games (audio round) - 8pts with powerup We saved our powerup for the video games round because we didn&#x27;t know it was an audio round which was much tougher. The (very blurry because I was in a rush) board picture below implies we tied for 1st with 49pts, but actually after the tiebreaker (WHICH WAS ALSO TIED), the 3rd place
 - [Oct. 20, 2022, 6:30 p.m.](https://roytang.net/2022/10/banapple-dinner/): 
 - [Oct. 20, 2022, 5 p.m.](https://roytang.net/2022/10/breadtalk-bekind/): 
-- [Oct. 20, 2022, 12:26 a.m.](https://roytang.net/2022/10/inktober2022_17_18_19_20/): 17 - Salty 18 - Scrape 19 - Ponytail 20 - Bluff Hey, we caught up! #inktober #inktober2022 #sketchdaily
 
 [View all notes](https://roytang.net/notes)
 
