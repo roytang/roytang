@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-10-23](https://roytang.net/2022/10/weeknotes-10-23/)
 - [Book Review: Shadows of Self by Brandon Sanderson](https://roytang.net/2022/10/shadows-of-self/)
 - [Weeknotes 2022-10-17](https://roytang.net/2022/10/weeknotes-10-17/)
 - [Watching Lately: Marvel Stuff](https://roytang.net/2022/10/watching-lately-marvel/)
 - [Comics: Incredible Hulk (1962-1999), New Mutants (1983-1991) and others](https://roytang.net/2022/10/incredible-hulk-new-mutants/)
-- [Weeknotes 2022-10-10](https://roytang.net/2022/10/weeknotes-10-10/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -27,10 +27,10 @@ Latest shared links:
 Latest notes:
 
 - [Oct. 24, 2022, 10:06 a.m.](https://roytang.net/2022/10/1584365671600693248/): @waxpancake Twitter has a quality filter for notifications by default. Try disabling it in settings? (Click photos to view full-size)
+- [Oct. 23, 2022, 8:30 p.m.](https://roytang.net/2022/10/black-adam/): Enjoyed Black Adam, despite the poor critic reviews. The plot isn&#x27;t anything spectacular, but it&#x27;s a fun romp and good for comic fans. Was very happy to be correct that the actress playing Adrianna was Shaw from Person of Interest! She should have gotten higher billing. Brosnan gave a great performance as Fate. The VFX guys really loved Cyclone. Atom Smasher probably my favorite of the JSA crew. The Rock maximizing the use of his one &quot;smoldering&quot; look. Viola Davis, Jennifer Holland, Djimon Hounsou, and [surprise mid-credits actor cameo] reprising roles were welcome surprises. The only character I didn&#x27;t actually
+- [Oct. 23, 2022, 4 p.m.](https://roytang.net/2022/10/seda/): 
 - [Oct. 23, 2022, 12:01 a.m.](https://roytang.net/2022/10/bullet-train/): Watched Bullet Train tonight. Was quite entertaining. I came in not knowing anything that wasn&#x27;t in the very first trailer. A colorful action film with some fun twists and surprising cameos. I really liked the soundtrack too, especially Japanese song covers.
 - [Oct. 20, 2022, 11 p.m.](https://roytang.net/2022/10/popquiz-stage/): We skipped a couple of months of PopQuiz, but we&#x27;re back! Rounds were: Drag Performers - 5pts Concerts and Festival - 7pts BTS - 20pts with Ace (good job Army teammates!) Live Theater - 3pts Fictional Competitions - 6pts Video Games (audio round) - 8pts with powerup We saved our powerup for the video games round because we didn&#x27;t know it was an audio round which was much tougher. The (very blurry because I was in a rush) board picture below implies we tied for 1st with 49pts, but actually after the tiebreaker (WHICH WAS ALSO TIED), the 3rd place
-- [Oct. 20, 2022, 6:30 p.m.](https://roytang.net/2022/10/banapple-dinner/): 
-- [Oct. 20, 2022, 5 p.m.](https://roytang.net/2022/10/breadtalk-bekind/): 
 
 [View all notes](https://roytang.net/notes)
 
