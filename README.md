@@ -26,20 +26,20 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 28, 2022, 3:34 a.m.](https://roytang.net/2022/10/inktober2022_25_26_27_28/): Couldn&#x27;t sleep, so did another batch of these instead. 25 - Tempting 26 - Ego 27 - Snack 28 - Camping Still kinda phoning it in, but at least we are caught up. #inktober #inktober2022 #sketchdaily
 - [Oct. 27, 2022, 8:34 p.m.](https://roytang.net/2022/10/1585610936563519493/): Trying out Marvel Snap! https://www.twitch.tv/twitchyroy #twitch [2022-10-28 00:39] YT: https://www.youtube.com/watch?v=uxjGGbEdVEs
 - [Oct. 27, 2022, 3:19 p.m.](https://roytang.net/2022/10/inktober2022_21_22_23_24/): Have fallen behind again. Also kind of phoning it in a bit. 21 - Bad Dog 22 - Heist 23 - Booger 24 - Fairy #inktober #inktober2022 #sketchdaily
 - [Oct. 26, 2022, 7:50 p.m.](https://roytang.net/2022/10/1585237402192601089/): After SIX YEARS of playing #StreetFighterV, I finally managed to get to gold rank!! Nothing -&gt; Silver: 5 years (!!) Silver -&gt; Super Silver: 14 months Super Silver -&gt; Ultra Silver: 5 months Ultra Silver -&gt; Gold: 7 days!! (Click photos to view full-size) [19:50] The only SFV achievement left for me is the 300 super finishes one, at least now I don&#x27;t have to focus on winning so much! Hopefully we get to completion before SF6 comes out!
 - [Oct. 26, 2022, 1:29 p.m.](https://roytang.net/2022/10/catch-me/): Watched Catch Me If You Can last night. Actually over two nights. Been meaning to see this for a while, it looked neat. Frank Abagnale&#x27;s capers are largely entertaining, though the narration does feel heavily exaggerated in favor of the protagonist (and reading through Abagnale&#x27;s wikipedia entry suggests so as well). DiCaprio and Hanks give great performances here and I really enjoyed how they spoke every Christmas became friends by the end.
-- [Oct. 24, 2022, 10:06 a.m.](https://roytang.net/2022/10/1584365671600693248/): @waxpancake Twitter has a quality filter for notifications by default. Try disabling it in settings? (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/d1/98/d1983ac11af502bc06a54bd7908400f4.jpg)
-- ![](https://roytang.net/media/cache/1e/d7/1ed73df24d5c49dd0300a196ba957fcd.jpg)
-- ![](https://roytang.net/media/cache/73/97/73970218775668331d41d2a3df2b14b1.jpg)
+- ![](https://roytang.net/media/cache/2e/b0/2eb012c0abce2c9482fa877ddd04250f.jpg)
+- ![](https://roytang.net/media/cache/b7/75/b77545f5cce7f44a4c517ffbd6799671.jpg)
+- ![](https://roytang.net/media/cache/d1/88/d188e407aad4e493f00505944f6bec3e.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
