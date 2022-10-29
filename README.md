@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 29, 2022, 2:34 p.m.](https://roytang.net/2022/10/inktober2022_29_30_31/): Still doing a single post for the last batch, will add the next entries one at a time. 29 - Uh-oh #inktober #inktober2022 #sketchdaily
+- [Oct. 29, 2022, 2:21 p.m.](https://roytang.net/2022/10/doctor-who-2022/): Caught up with Jodie&#x27;s last 3 Doctor Who specials this week, since the internet already spoiled me about the thing at the end. Spoilers will be unmarked. Eve of the Daleks I should have enjoyed because I like time loops, but the execution here was a bit weird. They said in one of the earlier loops that they needed to save the guy because he was about to be killed and his death would be &quot;locked in&quot; for the next loop, which implies that they start each later loop with the &quot;one-minute&quot; state from the previous loops, but then later
 - [Oct. 28, 2022, 10:35 p.m.](https://roytang.net/2022/10/109246398128230786/): @kemonine should be able to click the timestamp to go to the permalink for the post
 - [Oct. 28, 2022, 3:34 a.m.](https://roytang.net/2022/10/inktober2022_25_26_27_28/): Couldn&#x27;t sleep, so did another batch of these instead. 25 - Tempting 26 - Ego 27 - Snack 28 - Camping Still kinda phoning it in, but at least we are caught up. #inktober #inktober2022 #sketchdaily
 - [Oct. 27, 2022, 8:34 p.m.](https://roytang.net/2022/10/1585610936563519493/): Trying out Marvel Snap! https://www.twitch.tv/twitchyroy #twitch [2022-10-28 00:39] YT: https://www.youtube.com/watch?v=uxjGGbEdVEs
-- [Oct. 27, 2022, 3:19 p.m.](https://roytang.net/2022/10/inktober2022_21_22_23_24/): Have fallen behind again. Also kind of phoning it in a bit. 21 - Bad Dog 22 - Heist 23 - Booger 24 - Fairy #inktober #inktober2022 #sketchdaily
-- [Oct. 26, 2022, 7:50 p.m.](https://roytang.net/2022/10/1585237402192601089/): After SIX YEARS of playing #StreetFighterV, I finally managed to get to gold rank!! Nothing -&gt; Silver: 5 years (!!) Silver -&gt; Super Silver: 14 months Super Silver -&gt; Ultra Silver: 5 months Ultra Silver -&gt; Gold: 7 days!! (Click photos to view full-size) [19:50] The only SFV achievement left for me is the 300 super finishes one, at least now I don&#x27;t have to focus on winning so much! Hopefully we get to completion before SF6 comes out!
 
 [View all notes](https://roytang.net/notes)
 
