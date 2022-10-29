@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Manton Reece - Dear Elon Musk](https://roytang.net/2022/10/4dfbc5f8ffd160b67ed461035a214a6f/)
 - [s13e10: Dying Slowly, and then All At Once; Scrollytelling](https://roytang.net/2022/10/0bbc2b4736022df8f77c9c84eda47a7b/)
 - [Welcome to hell, Elon - The Verge](https://roytang.net/2022/10/872e365ea2dc2a7050d30cbdd233424f/)
 - [The Proprietary Syndication Formats - Chris Coyier](https://roytang.net/2022/10/408c74fdb3a142f0f698bae278a54a97/)
 - [None of Your Business · Matthias Ott – User Experience Designer](https://roytang.net/2022/10/f3b8eb608b5e8cad7bfffd831868df20/)
-- [Pluralistic: 15 Oct 2022 How lawyers became sadists – Pluralistic](https://roytang.net/2022/10/968f6f5a6eaf8938cce907ddcb654e79/)
 
 [View all links](https://roytang.net/links)
 
