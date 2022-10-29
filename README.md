@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [s13e10: Dying Slowly, and then All At Once; Scrollytelling](https://roytang.net/2022/10/0bbc2b4736022df8f77c9c84eda47a7b/)
 - [Welcome to hell, Elon - The Verge](https://roytang.net/2022/10/872e365ea2dc2a7050d30cbdd233424f/)
 - [The Proprietary Syndication Formats - Chris Coyier](https://roytang.net/2022/10/408c74fdb3a142f0f698bae278a54a97/)
 - [None of Your Business · Matthias Ott – User Experience Designer](https://roytang.net/2022/10/f3b8eb608b5e8cad7bfffd831868df20/)
 - [Pluralistic: 15 Oct 2022 How lawyers became sadists – Pluralistic](https://roytang.net/2022/10/968f6f5a6eaf8938cce907ddcb654e79/)
-- [Why Games Criticism Never Went Mainstream | by Clive Thompson | Oct, 2022 | Medium](https://roytang.net/2022/10/a179b950608b3e74159a5a28e7c1b316/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [Oct. 29, 2022, 6:33 p.m.](https://roytang.net/2022/10/216c2e4b3e9bcba532fda6abbb757197/): To be an artist, you don’t have to compose music or paint or be in the movies or write books. It’s just a way of living. It has to do with paying attention, remembering, filtering what you see and answering back, participating in life. – Viggo Mortensen
 - [Oct. 29, 2022, 3:55 p.m.](https://roytang.net/2022/10/1586265470143201280/): @SeresaTagAraw what if halloween mask ang sinuout nya
 - [Oct. 29, 2022, 2:34 p.m.](https://roytang.net/2022/10/inktober2022_29_30_31/): Still doing a single post for the last batch, will add the next entries one at a time. 29 - Uh-oh #inktober #inktober2022 #sketchdaily
 - [Oct. 29, 2022, 2:21 p.m.](https://roytang.net/2022/10/doctor-who-2022/): Caught up with Jodie&#x27;s last 3 Doctor Who specials this week, since the internet already spoiled me about the thing at the end. Spoilers will be unmarked. Eve of the Daleks I should have enjoyed because I like time loops, but the execution here was a bit weird. They said in one of the earlier loops that they needed to save the guy because he was about to be killed and his death would be &quot;locked in&quot; for the next loop, which implies that they start each later loop with the &quot;one-minute&quot; state from the previous loops, but then later
 - [Oct. 28, 2022, 10:35 p.m.](https://roytang.net/2022/10/109246398128230786/): @kemonine should be able to click the timestamp to go to the permalink for the post
-- [Oct. 28, 2022, 3:34 a.m.](https://roytang.net/2022/10/inktober2022_25_26_27_28/): Couldn&#x27;t sleep, so did another batch of these instead. 25 - Tempting 26 - Ego 27 - Snack 28 - Camping Still kinda phoning it in, but at least we are caught up. #inktober #inktober2022 #sketchdaily
 
 [View all notes](https://roytang.net/notes)
 
