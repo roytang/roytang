@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Misremembered History Of The Internet&#x27;s Funniest Buzzer-Beater | Defector](https://roytang.net/2022/11/76723d84ba9257897bf281403e046151/)
 - [Get Blogging!](https://roytang.net/2022/11/8ac31da95f6ab3ea59ecfcea4743ea3e/)
 - [Pluralistic: 20 Oct 2022 It was all downhill after the Cuecat – Pluralistic](https://roytang.net/2022/10/1da784c4b1184af90e174c2c475acb7a/)
 - [The Hollow Core of Kevin Kelly&#x27;s &quot;Thousand True Fans&quot; Theory](https://roytang.net/2022/10/81a95122d38a5e88a6e4a6cd088d4ed8/)
 - [Manton Reece - Dear Elon Musk](https://roytang.net/2022/10/4dfbc5f8ffd160b67ed461035a214a6f/)
-- [s13e10: Dying Slowly, and then All At Once; Scrollytelling](https://roytang.net/2022/10/0bbc2b4736022df8f77c9c84eda47a7b/)
 
 [View all links](https://roytang.net/links)
 
