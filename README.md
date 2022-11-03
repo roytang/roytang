@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 4, 2022, 1:02 a.m.](https://roytang.net/2022/11/1588214962110943232/): @jaymelynilao @Spaghengtti @CrespoJanille @joemarck06 Happy birthday!
 - [Oct. 29, 2022, 6:33 p.m.](https://roytang.net/2022/10/216c2e4b3e9bcba532fda6abbb757197/): To be an artist, you don’t have to compose music or paint or be in the movies or write books. It’s just a way of living. It has to do with paying attention, remembering, filtering what you see and answering back, participating in life. – Viggo Mortensen
 - [Oct. 29, 2022, 3:55 p.m.](https://roytang.net/2022/10/1586265470143201280/): @SeresaTagAraw what if halloween mask ang sinuout nya
 - [Oct. 29, 2022, 2:34 p.m.](https://roytang.net/2022/10/inktober2022_29_30_31/): Still doing a single post for the last batch, will add the next entries one at a time. 29 - Uh-oh 30 - Gear 31 - Farm Inktober2022 is done! #inktober #inktober2022 #sketchdaily
 - [Oct. 29, 2022, 2:21 p.m.](https://roytang.net/2022/10/doctor-who-2022/): Caught up with Jodie&#x27;s last 3 Doctor Who specials this week, since the internet already spoiled me about the thing at the end. Spoilers will be unmarked. Eve of the Daleks I should have enjoyed because I like time loops, but the execution here was a bit weird. They said in one of the earlier loops that they needed to save the guy because he was about to be killed and his death would be &quot;locked in&quot; for the next loop, which implies that they start each later loop with the &quot;one-minute&quot; state from the previous loops, but then later
-- [Oct. 28, 2022, 10:35 p.m.](https://roytang.net/2022/10/109246398128230786/): @kemonine should be able to click the timestamp to go to the permalink for the post
 
 [View all notes](https://roytang.net/notes)
 
