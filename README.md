@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How I Wrote Knives Out — Writing Advice from Rian Johnson](https://roytang.net/2022/11/f8c9cdce2e921bc6e706b42e8721404c/)
+- [A Theory of Sprawling Holidays  - by Anne Helen Petersen](https://roytang.net/2022/11/7620dec02555d6b783548e1d0dc8e33c/)
+- [In praise of ffmpeg - Drew DeVault](https://roytang.net/2022/11/0e5aba6a17f29c2a357e63e427ba0e39/)
 - [The Misremembered History Of The Internet&#x27;s Funniest Buzzer-Beater | Defector](https://roytang.net/2022/11/76723d84ba9257897bf281403e046151/)
 - [Get Blogging!](https://roytang.net/2022/11/8ac31da95f6ab3ea59ecfcea4743ea3e/)
-- [Pluralistic: 20 Oct 2022 It was all downhill after the Cuecat – Pluralistic](https://roytang.net/2022/10/1da784c4b1184af90e174c2c475acb7a/)
-- [The Hollow Core of Kevin Kelly&#x27;s &quot;Thousand True Fans&quot; Theory](https://roytang.net/2022/10/81a95122d38a5e88a6e4a6cd088d4ed8/)
-- [Manton Reece - Dear Elon Musk](https://roytang.net/2022/10/4dfbc5f8ffd160b67ed461035a214a6f/)
 
 [View all links](https://roytang.net/links)
 
