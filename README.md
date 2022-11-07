@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-11-07](https://roytang.net/2022/11/weeknotes-11-07/)
 - [Weeknotes 2022-10-31](https://roytang.net/2022/10/weeknotes-10-30/)
 - [Weeknotes 2022-10-23](https://roytang.net/2022/10/weeknotes-10-23/)
 - [Book Review: Shadows of Self by Brandon Sanderson](https://roytang.net/2022/10/shadows-of-self/)
 - [Weeknotes 2022-10-17](https://roytang.net/2022/10/weeknotes-10-17/)
-- [Watching Lately: Marvel Stuff](https://roytang.net/2022/10/watching-lately-marvel/)
 
 [View all posts](https://roytang.net/blog)
 
