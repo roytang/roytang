@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 13, 2022, 1:45 a.m.](https://roytang.net/2022/11/68e5fb075549e229558962afdd9bb363/): I wonder if the Internet Archive already has a plan for if Twitter really does die
 - [Nov. 11, 2022, 7:40 p.m.](https://roytang.net/2022/11/1591033088699961344/): Finally managed achievement completion on #StreetFighterV! Now I&#x27;m ready to move on to SF6 next year! (Click photos to view full-size)
 - [Nov. 11, 2022, 1:58 p.m.](https://roytang.net/2022/11/1590946971715792896/): @mikafabs I think I was at this quiz night because I kind of remember that comment. That Team usually seems chill though, maybe it wasn&#x27;t really a serious comment? For the record, I think your hosting at quiz nights was pretty good!
 - [Nov. 10, 2022, 1:24 p.m.](https://roytang.net/2022/11/dada1d361d46749900f410659fb33368/): I tried out https://tweethunter.io/generate-tweets today and honestly all of these are pretty good except that one about responding to emails. (I would never have 100 unread emails)
 - [Nov. 10, 2022, 11:38 a.m.](https://roytang.net/2022/11/1590549484869943300/): @paulcatiang the proper response would be something like &quot;kasi madaming kagaya mo na ayaw magisip para sa sarili?&quot;
-- [Nov. 5, 2022, 3:16 p.m.](https://roytang.net/2022/11/boardgame-day/): Met up with my oldest friend group yesterday to play boardgames and MTG in honor of a friend who passed away. Some notes on the games we played: Cosmic Encounter Cosmic Encounter is a fun little space game where the goal is to put your ships on enemy planets, either through attacks or negotiations. Each encounter is relatively simple and resolves quickly; you choose a target and you either fight or negotiate, and each player plays a card to further that objective. Spicing it up is that each player is assigned a special power which is hidden at the start
 
 [View all notes](https://roytang.net/notes)
 
