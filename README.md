@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The IndieWeb for Everyone | Max Böck](https://roytang.net/2022/11/3add50663822a558f0f50254d47797ef/)
+- [Home invasion - Mastodon&#x27;s Eternal September begins](https://roytang.net/2022/11/da495457158f4d8cbe2af62dde01c082/)
 - [On Running a Mastodon Instance | rixx.de](https://roytang.net/2022/11/477b7ba06c4f9d068d643836ce9b99f9/)
 - [Building a website like it&#x27;s 1999... in 2022 - localghost](https://roytang.net/2022/11/dc4c895966e1e7ecd36105672ea16fee/)
 - [s13e20: What It Is Like To Be A Certain Kind Of Person](https://roytang.net/2022/11/c266f32d3824e71f919217624bba7226/)
-- [How I Wrote Knives Out — Writing Advice from Rian Johnson](https://roytang.net/2022/11/f8c9cdce2e921bc6e706b42e8721404c/)
-- [A Theory of Sprawling Holidays  - by Anne Helen Petersen](https://roytang.net/2022/11/7620dec02555d6b783548e1d0dc8e33c/)
 
 [View all links](https://roytang.net/links)
 
