@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Book Review: The Bands of Mourning by Brandon Sanderson](https://roytang.net/2022/11/bands-of-mourning/)
 - [Weeknotes 2022-11-14](https://roytang.net/2022/11/weeknotes-11-14/)
 - [MCU Reviews: Black Panther Wakanda Forever](https://roytang.net/2022/11/wakanda-forever/)
 - [Games: Paradise Killer and PC Game Pass](https://roytang.net/2022/11/paradise-killer/)
 - [Thoughts on Mastodon](https://roytang.net/2022/11/mastodon/)
-- [Weeknotes 2022-11-07](https://roytang.net/2022/11/weeknotes-11-07/)
 
 [View all posts](https://roytang.net/blog)
 
