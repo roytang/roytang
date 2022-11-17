@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Nov. 17, 2022, 6:22 p.m.](https://roytang.net/2022/11/1593187852124557313/): Drafting Brothers War on #MagicArena! https://www.twitch.tv/twitchyroy #twitch #mtgbro
+- [Nov. 17, 2022, 6:22 p.m.](https://roytang.net/2022/11/1593187852124557313/): Drafting Brothers War on #MagicArena! https://www.twitch.tv/twitchyroy #twitch #mtgbro [23:38] Managed two drafts tonight, but neither performed particularly well. First one made gems back with 5-3, but second bombed at 2-3. Definitely need to study/practice this format more! YT: https://www.youtube.com/watch?v=D1aUSYRe2MI (Click photos to view full-size)
 - [Nov. 17, 2022, 1:08 a.m.](https://roytang.net/2022/11/1592927603857723395/): Kicking off #magicarena #mtgbro limited season with a couple of sealed runs! MWM went 3-1, which is fine. Second sealed deck was kind of a mess, but still managed to get to 5-3. Set seems fun, looking forward to drafting! (Click photos to view full-size)
 - [Nov. 16, 2022, 12:34 p.m.](https://roytang.net/2022/11/1592737800688140290/): #mtgarenastats email dropped for #mtgdmu! I feel like I didn&#x27;t play a lot for this season, but the limited format was pretty good. I am looking forward to Brothers War! #mtg (Click photos to view full-size)
 - [Nov. 13, 2022, 1:45 a.m.](https://roytang.net/2022/11/68e5fb075549e229558962afdd9bb363/): I wonder if the Internet Archive already has a plan for if Twitter really does die
