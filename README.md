@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 22, 2022, 5:11 p.m.](https://roytang.net/2022/11/1594981838841270272/): Drafting Brothers War on #MagicArena! ep3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgbro
 - [Nov. 21, 2022, 7:32 p.m.](https://roytang.net/2022/11/1594654987661070336/): Drafting Brothers War on #MagicArena! ep2 https://www.twitch.tv/twitchyroy #mtgbro #magicarena #mtg #twitch
 - [Nov. 21, 2022, 4:39 a.m.](https://roytang.net/2022/11/1594430240691847168/): Thoughts on Twitter, Musk, and the destruction of the virtual public square. The end may be near. No amount of snark or schadenfreude will change the fact that this situation is a disaster. Twitter has always been a mess – but also a crucial instrument to democratize America. There are two distinct, but intertwined issues here: There is the fact that a tech oligarchy, animated by an inherently anti-democratic worldview, holds so much power; and there is, more specifically, the threat to the world’s most important political communications platform.
 - [Nov. 21, 2022, 12:43 a.m.](https://roytang.net/2022/11/1594370858713501696/): If twitter dies how else will i check who else has messaged @talk2GLOBE about internet being down in the tandang sora area?
 - [Nov. 19, 2022, 6:08 p.m.](https://roytang.net/2022/11/1593909027477803008/): OMG, after so many attempts, I qualified for an @EternalCardGame open day 2 for the first time! Looking forward to tomorrow! (Click photos to view full-size)
-- [Nov. 18, 2022, 11:32 a.m.](https://roytang.net/2022/11/1593447010408943616/): My personal website https://roytang.net/ has been around since before Twitter and will still be there if it goes, and it tells you where else you can find me. Not that I&#x27;m leaving Twitter, I&#x27;ll be here til it all comes crashing down On March 5, 2021, 7:47 p.m. I wrote: &quot;We have said goodbye before, so it stands to reason...&quot; &quot;...we&#x27;ll say hello again.&quot;
 
 [View all notes](https://roytang.net/notes)
 
