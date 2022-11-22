@@ -6,7 +6,7 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
-- [Word Person and Web Persons](https://roytang.net/2022/11/word-web-persons/)
+- [Word Persons and Web Persons](https://roytang.net/2022/11/word-web-persons/)
 - [Weeknotes 2022-11-21](https://roytang.net/2022/11/weeknotes-11-21/)
 - [Book Review: The Bands of Mourning by Brandon Sanderson](https://roytang.net/2022/11/bands-of-mourning/)
 - [Weeknotes 2022-11-14](https://roytang.net/2022/11/weeknotes-11-14/)
