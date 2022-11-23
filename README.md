@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Book Review: The Lost Metal by Brandon Sanderson](https://roytang.net/2022/11/lost-metal/)
 - [Word Persons and Web Persons](https://roytang.net/2022/11/word-web-persons/)
 - [Weeknotes 2022-11-21](https://roytang.net/2022/11/weeknotes-11-21/)
 - [Book Review: The Bands of Mourning by Brandon Sanderson](https://roytang.net/2022/11/bands-of-mourning/)
 - [Weeknotes 2022-11-14](https://roytang.net/2022/11/weeknotes-11-14/)
-- [MCU Reviews: Black Panther Wakanda Forever](https://roytang.net/2022/11/wakanda-forever/)
 
 [View all posts](https://roytang.net/blog)
 
