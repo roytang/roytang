@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [An open letter to the games industry](https://roytang.net/2022/11/b081a3d30af066a134a16efdd8bc6650/)
 - [James Acaster Became a Stand-Up Comedian to Infiltrate a Gang of Drug Dealers - YouTube](https://roytang.net/2022/11/70b3161083f066d794ad7bfdbb2c0ca2/)
 - [Magic on Deck | The Nib](https://roytang.net/2022/11/eeaec6bf74b7da4157ea9c0ceed0a824/)
 - [The IndieWeb for Everyone | Max Böck](https://roytang.net/2022/11/3add50663822a558f0f50254d47797ef/)
 - [Home invasion - Mastodon&#x27;s Eternal September begins](https://roytang.net/2022/11/da495457158f4d8cbe2af62dde01c082/)
-- [On Running a Mastodon Instance | rixx.de](https://roytang.net/2022/11/477b7ba06c4f9d068d643836ce9b99f9/)
 
 [View all links](https://roytang.net/links)
 
