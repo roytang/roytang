@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [why Japan&#x27;s internet is weirdly designed - YouTube](https://roytang.net/2022/11/eccd0b87fc1d0078aa43de42f0722b11/)
 - [How to Weave the Artisan Web | Whatever](https://roytang.net/2022/11/1d342f95f1bae10196cfe86f395c7a26/)
 - [jwz: PSA: Do Not Use Services That Hate The Internet](https://roytang.net/2022/11/d668a9c585b9521af9ed5f100daa2a76/)
 - [An open letter to the games industry](https://roytang.net/2022/11/b081a3d30af066a134a16efdd8bc6650/)
 - [James Acaster Became a Stand-Up Comedian to Infiltrate a Gang of Drug Dealers - YouTube](https://roytang.net/2022/11/70b3161083f066d794ad7bfdbb2c0ca2/)
-- [Magic on Deck | The Nib](https://roytang.net/2022/11/eeaec6bf74b7da4157ea9c0ceed0a824/)
 
 [View all links](https://roytang.net/links)
 
