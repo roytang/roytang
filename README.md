@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [My Dominaria United Limited Recap](https://roytang.net/2022/12/mtgdmu-limited-recap/)
 - [PC Build 2022](https://roytang.net/2022/12/pc-build-2022/)
 - [Weeknotes 2022-11-28](https://roytang.net/2022/11/weeknotes-11-28/)
 - [Book Review: The Lost Metal by Brandon Sanderson](https://roytang.net/2022/11/lost-metal/)
 - [Word Persons and Web Persons](https://roytang.net/2022/11/word-web-persons/)
-- [Weeknotes 2022-11-21](https://roytang.net/2022/11/weeknotes-11-21/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 1, 2022, 3:08 p.m.](https://roytang.net/2022/12/spotify-wrapped/): Time for the annual reminder from Spotify that my music preferences are basically still stuck in the 90s! I didn&#x27;t listen to a lot of Spotify this year; actually I think I may have ended up listening to music more via YT, but they don&#x27;t give me any stats for that. Here&#x27;s this year&#x27;s playlist: https://open.spotify.com/playlist/37i9dQZF1F0sijgNaJdgit
 - [Dec. 1, 2022, 1:33 p.m.](https://roytang.net/2022/12/af5090fc47f1f824ea62da0f3fe71b1c/): Leave a console game alone for a few years and for some reason there&#x27;s a 40gb update =/
 - [Nov. 28, 2022, 4:16 a.m.](https://roytang.net/2022/11/b9e4f1f1a5363c0476fb65e7ab1b8ada/): I haven&#x27;t been doing any daily sketching, but I do have this piece of paper full of doodles on my desk that I&#x27;ve just been adding to slowly over the past couple of weeks.
 - [Nov. 27, 2022, 4:12 p.m.](https://roytang.net/2022/11/arena-open/): Threw away some gold and gems on two runs at the Arena Open this past weekend, featuring Brothers War sealed. Finished 5-3 and 2-3 respectively. I really should just remember to never do a second run, they never go well! Resources are limited! Got some cool Mythics and Rares though.
 - [Nov. 26, 2022, 5:49 a.m.](https://roytang.net/2022/11/701960599133913088/): I’ve been looking for this Pugad Baboy strip for a while, mostly so I can respond to people who are Pilosopo
-- [Nov. 24, 2022, 8:30 p.m.](https://roytang.net/2022/11/popquiz-friendsgiving/): Final PopQuiz for the year! Rounds were: Live Action TV - 6pts Movies - 7pts x 0 for failed ace Naruto - 8pts x2 for powerup Animated TV - 3pts Video and Board Games - 4pts Fictional Bands (audio round) - 7pts (out of 20) The Naruto round was chosen by us as a benefit of placing third last month. We had originally submitted House of the Dragon as the topic, but we later found out our HotD person wouldn&#x27;t be available, so we switched it out. Despite the poor performance and disastrous ace usage, we still managed to finish
 
 [View all notes](https://roytang.net/notes)
 
