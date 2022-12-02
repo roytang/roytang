@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 2, 2022, 2:06 p.m.](https://roytang.net/2022/12/1598559150187110400/): Trying out the new OpenAI chatGPT. Seems insanely good. (Click photos to view full-size)
 - [Dec. 2, 2022, 12:09 a.m.](https://roytang.net/2022/12/mtgbro_draft_ep4/): Tried to get back into Brothers War drafting on Magic Arena today, it did not go well. Drafts 7 and 8 went 3-3 and 2-3 respectively. YT: https://www.youtube.com/watch?v=P2kE_HF9g0M
 - [Dec. 1, 2022, 3:08 p.m.](https://roytang.net/2022/12/spotify-wrapped/): Time for the annual reminder from Spotify that my music preferences are basically still stuck in the 90s! I didn&#x27;t listen to a lot of Spotify this year; actually I think I may have ended up listening to music more via YT, but they don&#x27;t give me any stats for that. Here&#x27;s this year&#x27;s playlist: https://open.spotify.com/playlist/37i9dQZF1F0sijgNaJdgit
 - [Dec. 1, 2022, 1:33 p.m.](https://roytang.net/2022/12/af5090fc47f1f824ea62da0f3fe71b1c/): Leave a console game alone for a few years and for some reason there&#x27;s a 40gb update =/
 - [Nov. 28, 2022, 4:16 a.m.](https://roytang.net/2022/11/b9e4f1f1a5363c0476fb65e7ab1b8ada/): I haven&#x27;t been doing any daily sketching, but I do have this piece of paper full of doodles on my desk that I&#x27;ve just been adding to slowly over the past couple of weeks.
-- [Nov. 27, 2022, 4:12 p.m.](https://roytang.net/2022/11/arena-open/): Threw away some gold and gems on two runs at the Arena Open this past weekend, featuring Brothers War sealed. Finished 5-3 and 2-3 respectively. I really should just remember to never do a second run, they never go well! Resources are limited! Got some cool Mythics and Rares though.
 
 [View all notes](https://roytang.net/notes)
 
