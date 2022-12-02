@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Dec. 2, 2022, 2:06 p.m.](https://roytang.net/2022/12/1598559150187110400/): Trying out the new OpenAI chatGPT. Seems insanely good. (Click photos to view full-size)
+- [Dec. 2, 2022, 2:06 p.m.](https://roytang.net/2022/12/1598559150187110400/): Trying out the new OpenAI chatGPT. Seems insanely good.
 - [Dec. 2, 2022, 12:09 a.m.](https://roytang.net/2022/12/mtgbro_draft_ep4/): Tried to get back into Brothers War drafting on Magic Arena today, it did not go well. Drafts 7 and 8 went 3-3 and 2-3 respectively. YT: https://www.youtube.com/watch?v=P2kE_HF9g0M
 - [Dec. 1, 2022, 3:08 p.m.](https://roytang.net/2022/12/spotify-wrapped/): Time for the annual reminder from Spotify that my music preferences are basically still stuck in the 90s! I didn&#x27;t listen to a lot of Spotify this year; actually I think I may have ended up listening to music more via YT, but they don&#x27;t give me any stats for that. Here&#x27;s this year&#x27;s playlist: https://open.spotify.com/playlist/37i9dQZF1F0sijgNaJdgit
 - [Dec. 1, 2022, 1:33 p.m.](https://roytang.net/2022/12/af5090fc47f1f824ea62da0f3fe71b1c/): Leave a console game alone for a few years and for some reason there&#x27;s a 40gb update =/
