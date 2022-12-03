@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Trying out ChatGPT](https://roytang.net/2022/12/chatgpt/)
 - [My Dominaria United Limited Recap](https://roytang.net/2022/12/mtgdmu-limited-recap/)
 - [PC Build 2022](https://roytang.net/2022/12/pc-build-2022/)
 - [Weeknotes 2022-11-28](https://roytang.net/2022/11/weeknotes-11-28/)
 - [Book Review: The Lost Metal by Brandon Sanderson](https://roytang.net/2022/11/lost-metal/)
-- [Word Persons and Web Persons](https://roytang.net/2022/11/word-web-persons/)
 
 [View all posts](https://roytang.net/blog)
 
