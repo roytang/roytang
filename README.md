@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [ooh.directory](https://roytang.net/2022/12/3f0d49101a6d5b11d22d0f182481186f/)
 - [All My Blogs Are Dead - The Awl](https://roytang.net/2022/12/41330bb8302c96dac7dc82a4f1c53361/)
 - [why Japan&#x27;s internet is weirdly designed - YouTube](https://roytang.net/2022/11/eccd0b87fc1d0078aa43de42f0722b11/)
 - [How to Weave the Artisan Web | Whatever](https://roytang.net/2022/11/1d342f95f1bae10196cfe86f395c7a26/)
 - [jwz: PSA: Do Not Use Services That Hate The Internet](https://roytang.net/2022/11/d668a9c585b9521af9ed5f100daa2a76/)
-- [An open letter to the games industry](https://roytang.net/2022/11/b081a3d30af066a134a16efdd8bc6650/)
 
 [View all links](https://roytang.net/links)
 
