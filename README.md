@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 8, 2022, 10:29 p.m.](https://roytang.net/2022/12/grisham/): Found some old John Grisham #books among my shelves. They look well-read, but I do not remember the plots of these books at all! It&#x27;s probably been at least 20 years since I read them! I think the only Grisham book I do remember reading and still vaguely remember the plot is The Firm.
+- [Dec. 8, 2022, 10:25 p.m.](https://roytang.net/2022/12/duolingo-stats/): Huh, even #Duolingo has year-end stats now. Did this only start this year?
+- [Dec. 8, 2022, 10:16 p.m.](https://roytang.net/2022/12/mtgbro-limited-6/): #MTGBRO drafts have been challenging for me so far on #MagicArena, but tonight I finally got my first trophy in the format! Tonight&#x27;s two quick drafts went to 7 and 5 respectively, the best night of the run so far. YT: https://www.youtube.com/watch?v=5uuDtyil5fA
+- [Dec. 6, 2022, 10:16 p.m.](https://roytang.net/2022/12/mtgbro-limited-5/): Tried quick drafting some #MTGBRO today on #MagicArena, it did not go well. Both runs went 1-3. YT: https://www.youtube.com/watch?v=Kfdcll6ghio
 - [Dec. 2, 2022, 2:06 p.m.](https://roytang.net/2022/12/1598559150187110400/): Trying out the new OpenAI chatGPT. Seems insanely good.
-- [Dec. 2, 2022, 12:09 a.m.](https://roytang.net/2022/12/mtgbro_draft_ep4/): Tried to get back into Brothers War drafting on Magic Arena today, it did not go well. Drafts 7 and 8 went 3-3 and 2-3 respectively. YT: https://www.youtube.com/watch?v=P2kE_HF9g0M
-- [Dec. 1, 2022, 3:08 p.m.](https://roytang.net/2022/12/spotify-wrapped/): Time for the annual reminder from Spotify that my music preferences are basically still stuck in the 90s! I didn&#x27;t listen to a lot of Spotify this year; actually I think I may have ended up listening to music more via YT, but they don&#x27;t give me any stats for that. Here&#x27;s this year&#x27;s playlist: https://open.spotify.com/playlist/37i9dQZF1F0sijgNaJdgit
-- [Dec. 1, 2022, 1:33 p.m.](https://roytang.net/2022/12/af5090fc47f1f824ea62da0f3fe71b1c/): Leave a console game alone for a few years and for some reason there&#x27;s a 40gb update =/
-- [Nov. 28, 2022, 4:16 a.m.](https://roytang.net/2022/11/b9e4f1f1a5363c0476fb65e7ab1b8ada/): I haven&#x27;t been doing any daily sketching, but I do have this piece of paper full of doodles on my desk that I&#x27;ve just been adding to slowly over the past couple of weeks.
 
 [View all notes](https://roytang.net/notes)
 
