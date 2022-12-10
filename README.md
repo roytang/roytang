@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [52 things I learned in 2022. | by Tom Whitwell | Magnetic Notes Medium](https://roytang.net/2022/12/35c5b1407b379c5fdc308113d8b82937/)
 - [A Creator of ActivityPub on What’s Next for the Fediverse - The New Stack](https://roytang.net/2022/12/ead6ecf64d8ab1b4581c44ab7df8854d/)
 - [A year of new avenues](https://roytang.net/2022/12/36880cfef285d2bea77cf5cd5b781d82/)
 - [I wrote a story for a friend - by Julian Gough](https://roytang.net/2022/12/daa5c77d501f15e362f664463bbe7ceb/)
 - [ooh.directory](https://roytang.net/2022/12/3f0d49101a6d5b11d22d0f182481186f/)
-- [All My Blogs Are Dead - The Awl](https://roytang.net/2022/12/41330bb8302c96dac7dc82a4f1c53361/)
 
 [View all links](https://roytang.net/links)
 
