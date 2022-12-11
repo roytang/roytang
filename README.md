@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Recommendations for Japan travel | Kalzumeus Software](https://roytang.net/2022/12/df1c505368a315bbf21acf7400ba62d7/)
 - [There is no social media alternative - Ed Bott&#x27;s READ.ME](https://roytang.net/2022/12/19e62b179dd14ff8a2acd064755fe477/)
 - [Pluralistic: Freedom of reach IS freedom of speech (10 Dec 2022) – Pluralistic](https://roytang.net/2022/12/f0527acc53d901434a39d7387df997ee/)
 - [52 things I learned in 2022. | by Tom Whitwell | Magnetic Notes Medium](https://roytang.net/2022/12/35c5b1407b379c5fdc308113d8b82937/)
 - [A Creator of ActivityPub on What’s Next for the Fediverse - The New Stack](https://roytang.net/2022/12/ead6ecf64d8ab1b4581c44ab7df8854d/)
-- [A year of new avenues](https://roytang.net/2022/12/36880cfef285d2bea77cf5cd5b781d82/)
 
 [View all links](https://roytang.net/links)
 
