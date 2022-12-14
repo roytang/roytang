@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 13, 2022, 5:51 p.m.](https://roytang.net/2022/12/64ed63220be6aa46cfa9af407e55f582/): The scene at my neighborhood drugstore a few minutes ago. Bystanders say something about a kidnapper? Maybe I&#x27;ll find out more in the news later
 - [Dec. 12, 2022, 8:38 p.m.](https://roytang.net/2022/12/d7f16c05582a2db136c8a5dc32e91142/): As I was out walking, a short hairy man with a toothy grin nodded at me as I passed him. I looked back and wondered who he was and he spread his arms out and shouted &quot;I LOVE QUEZON CITY!&quot;
 - [Dec. 12, 2022, 7:22 a.m.](https://roytang.net/2022/12/1602081376278237184/): @Westraid What game is this?
 - [Dec. 10, 2022, 6:46 a.m.](https://roytang.net/2022/12/reddit-recap/): It&#x27;s that time of the year, when online companies like Reddit give you stats! (I love stats!) Seems like I spent way more on Reddit this year, probably due to enjoying all the Alchemy drama on r/MagicArena lol Annoyance: On mobile, your recap can only be accessed by downloading the mobile app. Also, I wish they had text-only versions of this data. Previously: Reddit Recap 2021
 - [Dec. 8, 2022, 10:29 p.m.](https://roytang.net/2022/12/grisham/): Found some old John Grisham #books among my shelves. They look well-read, but I do not remember the plots of these books at all! It&#x27;s probably been at least 20 years since I read them! I think the only Grisham book I do remember reading and still vaguely remember the plot is The Firm.
-- [Dec. 8, 2022, 10:25 p.m.](https://roytang.net/2022/12/duolingo-stats/): Huh, even #Duolingo has year-end stats now. Did this only start this year?
 
 [View all notes](https://roytang.net/notes)
 
