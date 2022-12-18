@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2022-12-18](https://roytang.net/2022/12/weeknotes-12-18/)
 - [Weeknotes 2022-12-11](https://roytang.net/2022/12/weeknotes-12-11/)
 - [Games: Street Fighter V](https://roytang.net/2022/12/street-fighter-v/)
 - [Weeknotes 2022-12-05](https://roytang.net/2022/12/weeknotes-12-05/)
 - [Trying out ChatGPT](https://roytang.net/2022/12/chatgpt/)
-- [My Dominaria United Limited Recap](https://roytang.net/2022/12/mtgdmu-limited-recap/)
 
 [View all posts](https://roytang.net/blog)
 
