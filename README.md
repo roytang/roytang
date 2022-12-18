@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [cohost! - #compleat history of the magic the gathering metagame](https://roytang.net/2022/12/fd68d30b1245eceac54993e4cc3da840/)
 - [How to buy a social network, with Tumblr CEO Matt Mullenweg - The Verge](https://roytang.net/2022/12/fb572c5c67e5c1f34e9611ce98327446/)
 - [Recommendations for Japan travel | Kalzumeus Software](https://roytang.net/2022/12/df1c505368a315bbf21acf7400ba62d7/)
 - [There is no social media alternative - Ed Bott&#x27;s READ.ME](https://roytang.net/2022/12/19e62b179dd14ff8a2acd064755fe477/)
 - [Pluralistic: Freedom of reach IS freedom of speech (10 Dec 2022) – Pluralistic](https://roytang.net/2022/12/f0527acc53d901434a39d7387df997ee/)
-- [52 things I learned in 2022. | by Tom Whitwell | Magnetic Notes Medium](https://roytang.net/2022/12/35c5b1407b379c5fdc308113d8b82937/)
 
 [View all links](https://roytang.net/links)
 
