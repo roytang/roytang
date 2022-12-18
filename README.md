@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 19, 2022, 6:45 a.m.](https://roytang.net/2022/12/1604608825742331904/): It&#x27;s amazing how much this epitomizes what&#x27;s happening to Elon&#x27;s twitter Quoted RottenInDenmark&#x27;s tweet: I think we&#x27;ll look back on the last decade as a time when social media gave previously marginalized groups the ability to speak directly to elites and, as a result, elites lost their minds.
+- [Dec. 19, 2022, 6:42 a.m.](https://roytang.net/2022/12/1604608028308709376/): Sigh. It&#x27;s like every morning I wake up to better than even odds of more Twitter nonsense and here we are. I might be done. More later. Quoted TwitterSupport&#x27;s tweet: We recognize that many of our users are active on other social media platforms. However, we will no longer allow free promotion of certain social media platforms on Twitter.
 - [Dec. 18, 2022, 12:59 p.m.](https://roytang.net/2022/12/1604340452416622592/): Petition to rename Simbang Gabi to Catholic Christmas Battle Pass
 - [Dec. 16, 2022, 2:22 p.m.](https://roytang.net/2022/12/twitch-recap/): This one is new, last year I had to add up these stats myself! I did around 50% more streams this year. I still don&#x27;t identify as a streamer though. And I still don&#x27;t watch a lot of other streams.
 - [Dec. 16, 2022, 2:15 p.m.](https://roytang.net/2022/12/switch-year-in-review/): Four Switch games finished for me this year, which is a lot (assuming I actually manage to power through SMTV by end of year!) #NintendoSwitch2022 Previously
-- [Dec. 16, 2022, 2:08 p.m.](https://roytang.net/2022/12/mtgbro-limited-7/): Did what might be final #MTGBRO drafts last night, this time with Alchemy! Unfortunately, this run ends on a poor note, as the two drafts went 0-3 and 3-3 respectively =/ YT: https://www.youtube.com/watch?v=_wtxET01LUo Looking forward to Phyrexia: All Will Be One next month, hopefully I do better with that set! #mtg #twitch #magicarena
-- [Dec. 16, 2022, 11:55 a.m.](https://roytang.net/2022/12/9857696ada6ed13b4a33d74d9601d9fe/): Can confirm that Twitter no longer allows me to post links to Mastodon servers, even if there is no word &quot;mastodon&quot; in the URL.
 
 [View all notes](https://roytang.net/notes)
 
