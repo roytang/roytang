@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 18, 2022, 12:59 p.m.](https://roytang.net/2022/12/1604340452416622592/): Petition to rename Simbang Gabi to Catholic Christmas Battle Pass
 - [Dec. 16, 2022, 2:22 p.m.](https://roytang.net/2022/12/twitch-recap/): This one is new, last year I had to add up these stats myself! I did around 50% more streams this year. I still don&#x27;t identify as a streamer though. And I still don&#x27;t watch a lot of other streams.
 - [Dec. 16, 2022, 2:15 p.m.](https://roytang.net/2022/12/switch-year-in-review/): Four Switch games finished for me this year, which is a lot (assuming I actually manage to power through SMTV by end of year!) #NintendoSwitch2022 Previously
 - [Dec. 16, 2022, 2:08 p.m.](https://roytang.net/2022/12/mtgbro-limited-7/): Did what might be final #MTGBRO drafts last night, this time with Alchemy! Unfortunately, this run ends on a poor note, as the two drafts went 0-3 and 3-3 respectively =/ YT: https://www.youtube.com/watch?v=_wtxET01LUo Looking forward to Phyrexia: All Will Be One next month, hopefully I do better with that set! #mtg #twitch #magicarena
 - [Dec. 16, 2022, 11:55 a.m.](https://roytang.net/2022/12/9857696ada6ed13b4a33d74d9601d9fe/): Can confirm that Twitter no longer allows me to post links to Mastodon servers, even if there is no word &quot;mastodon&quot; in the URL.
-- [Dec. 13, 2022, 5:51 p.m.](https://roytang.net/2022/12/64ed63220be6aa46cfa9af407e55f582/): The scene at my neighborhood drugstore a few minutes ago. Bystanders say something about a kidnapper? Maybe I&#x27;ll find out more in the news later
 
 [View all notes](https://roytang.net/notes)
 
