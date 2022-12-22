@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 22, 2022, 11:33 a.m.](https://roytang.net/2022/12/1605768464068509697/): On nice, end of year #mtgarenastats email just dropped! #mtg #magicarena (Click photos to view full-size)
 - [Dec. 20, 2022, 10:36 a.m.](https://roytang.net/2022/12/1605029295314726915/): @paulcatiang He has very right wing views, pro trump etc
 - [Dec. 19, 2022, 6:45 a.m.](https://roytang.net/2022/12/1604608825742331904/): It&#x27;s amazing how much this epitomizes what&#x27;s happening to Elon&#x27;s twitter Quoted RottenInDenmark&#x27;s tweet: I think we&#x27;ll look back on the last decade as a time when social media gave previously marginalized groups the ability to speak directly to elites and, as a result, elites lost their minds.
 - [Dec. 19, 2022, 6:42 a.m.](https://roytang.net/2022/12/1604608028308709376/): Sigh. It&#x27;s like every morning I wake up to better than even odds of more Twitter nonsense and here we are. I might be done. More later. Quoted TwitterSupport&#x27;s tweet: We recognize that many of our users are active on other social media platforms. However, we will no longer allow free promotion of certain social media platforms on Twitter. [12:32] Lol tweets already deleted
 - [Dec. 18, 2022, 12:59 p.m.](https://roytang.net/2022/12/1604340452416622592/): Petition to rename Simbang Gabi to Catholic Christmas Battle Pass
-- [Dec. 16, 2022, 2:22 p.m.](https://roytang.net/2022/12/twitch-recap/): This one is new, last year I had to add up these stats myself! I did around 50% more streams this year. I still don&#x27;t identify as a streamer though. And I still don&#x27;t watch a lot of other streams.
 
 [View all notes](https://roytang.net/notes)
 
