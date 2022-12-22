@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Why the super rich are inevitable](https://roytang.net/2022/12/abc6388d884555162ca616eabe4c19e5/)
 - [The internet wants to be fragmented - by Noah Smith](https://roytang.net/2022/12/a9c926c3bab19883981af9287ad66ec6/)
 - [cohost! - #compleat history of the magic the gathering metagame](https://roytang.net/2022/12/fd68d30b1245eceac54993e4cc3da840/)
 - [How to buy a social network, with Tumblr CEO Matt Mullenweg - The Verge](https://roytang.net/2022/12/fb572c5c67e5c1f34e9611ce98327446/)
 - [Recommendations for Japan travel | Kalzumeus Software](https://roytang.net/2022/12/df1c505368a315bbf21acf7400ba62d7/)
-- [There is no social media alternative - Ed Bott&#x27;s READ.ME](https://roytang.net/2022/12/19e62b179dd14ff8a2acd064755fe477/)
 
 [View all links](https://roytang.net/links)
 
