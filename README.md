@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 27, 2022, 7:42 a.m.](https://roytang.net/2022/12/88c72f6f397be40f17274e6888825dcf/): Even Steam has year-end stats now! I set my profile page to public: https://s.team/y22/fvtmfrh
 - [Dec. 25, 2022, 4:01 p.m.](https://roytang.net/2022/12/808752e2219fe9c1928e84e70f8e17db/): Haven&#x27;t been here in 3 years! So many people here today!
 - [Dec. 25, 2022, 12:25 a.m.](https://roytang.net/2022/12/nochebuena/): Obligatory #NocheBuena post, this time including the food from our lunch get together Merry Christmas!
 - [Dec. 24, 2022, 9 p.m.](https://roytang.net/2022/12/109568774873413321/): @Savagejen Hello! I would like to try this one if possible. Merry Christmas!
 - [Dec. 24, 2022, 5:25 a.m.](https://roytang.net/2022/12/ac4512880daa2e819db00379c5bb65ff/): I don&#x27;t do the #SimbangGabi but sometimes I go out walking in the early morning just as the Mass lets out and I&#x27;m pleasantly surprised at the number of young people (teens/tweens) coming from the church, walking home in small groups as if coming back from a late night gimik
-- [Dec. 24, 2022, 4:06 a.m.](https://roytang.net/2022/12/eb4ed2656037cf9495f686536f8528ba/): Had a dream where I was running around trying to put together a presentation for my college thesis adviser. More than two decades later and still that man haunts me
 
 [View all notes](https://roytang.net/notes)
 
