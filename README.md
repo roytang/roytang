@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 28, 2022, 7:15 a.m.](https://roytang.net/2022/12/109588179043520670/): @alwirtes thank you for the support!
+- [Dec. 28, 2022, 7:13 a.m.](https://roytang.net/2022/12/4795d020d965b07c782e42ce88e0d717/): As expected, problems plague first hours of SIM registration - https://www.philstar.com/headlines/2022/12/27/2233582/expected-problems-plague-first-hours-sim-registration No one is surprised. Also, I don&#x27;t understand why so many people are excited to comply with the registration, it&#x27;s not like it benefits you personally or directly. If I had to register, it would be at the last possible moment.
 - [Dec. 27, 2022, 7:42 a.m.](https://roytang.net/2022/12/88c72f6f397be40f17274e6888825dcf/): Even Steam has year-end stats now! I set my profile page to public: https://s.team/y22/fvtmfrh
 - [Dec. 25, 2022, 4:01 p.m.](https://roytang.net/2022/12/808752e2219fe9c1928e84e70f8e17db/): Haven&#x27;t been here in 3 years! So many people here today!
 - [Dec. 25, 2022, 12:25 a.m.](https://roytang.net/2022/12/nochebuena/): Obligatory #NocheBuena post, this time including the food from our lunch get together Merry Christmas!
-- [Dec. 24, 2022, 9 p.m.](https://roytang.net/2022/12/109568774873413321/): @Savagejen Hello! I would like to try this one if possible. Merry Christmas!
-- [Dec. 24, 2022, 5:25 a.m.](https://roytang.net/2022/12/ac4512880daa2e819db00379c5bb65ff/): I don&#x27;t do the #SimbangGabi but sometimes I go out walking in the early morning just as the Mass lets out and I&#x27;m pleasantly surprised at the number of young people (teens/tweens) coming from the church, walking home in small groups as if coming back from a late night gimik
 
 [View all notes](https://roytang.net/notes)
 
