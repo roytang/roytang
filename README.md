@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 28, 2022, 6:57 p.m.](https://roytang.net/2022/12/a3bbd841f397fea5dc6c969ff4acc7bf/): Someone gave me a Son Goku, he looks so happy! (And maybe needs a Kintoun Cloud)
 - [Dec. 28, 2022, 7:15 a.m.](https://roytang.net/2022/12/109588179043520670/): @alwirtes thank you for the support!
 - [Dec. 28, 2022, 7:13 a.m.](https://roytang.net/2022/12/4795d020d965b07c782e42ce88e0d717/): As expected, problems plague first hours of SIM registration - https://www.philstar.com/headlines/2022/12/27/2233582/expected-problems-plague-first-hours-sim-registration No one is surprised. Also, I don&#x27;t understand why so many people are excited to comply with the registration, it&#x27;s not like it benefits you personally or directly. If I had to register, it would be at the last possible moment.
 - [Dec. 27, 2022, 11:26 p.m.](https://roytang.net/2022/12/letterboxd-review-329402655/): An ok whodunnit with 1.5 likeable leads, though trying to compare itself to Agathe Christie is a bad idea as the mystery here is nowhere near as clever. This is the first time I&#x27;ve seen Saoirse Ronan in anything.
 - [Dec. 27, 2022, 7:42 a.m.](https://roytang.net/2022/12/88c72f6f397be40f17274e6888825dcf/): Even Steam has year-end stats now! I set my profile page to public: https://s.team/y22/fvtmfrh
-- [Dec. 25, 2022, 4:01 p.m.](https://roytang.net/2022/12/808752e2219fe9c1928e84e70f8e17db/): Haven&#x27;t been here in 3 years! So many people here today!
 
 [View all notes](https://roytang.net/notes)
 
