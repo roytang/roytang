@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 29, 2022, 10:28 p.m.](https://roytang.net/2022/12/letterboxd-review-330319397/): Maybe a little bit self-indulgent but I really enjoyed this one. A lot of the dialogue and banter was great and I like how the plot wrapped around itself. Hugh Grant here is the least Hugh Grant-like I&#x27;ve ever seen him.
 - [Dec. 29, 2022, 7:50 p.m.](https://roytang.net/2022/12/1608430214186663937/): testing: @home @search @explore @notifications @messages [19:51] lol interesting, only home resolves to an actual profile. (None of these profiles can be viewed via Twitter web because they are used as URL paths)
-- [Dec. 29, 2022, 2:28 p.m.](https://roytang.net/2022/12/letterboxd-review-330319397/): Maybe a little bit self-indulgent but I really enjoyed this one. A lot of the dialogue and banter was great and I like how the plot wrapped around itself. Hugh Grant here is the least Hugh Grant-like I&#x27;ve ever seen him.
 - [Dec. 28, 2022, 6:57 p.m.](https://roytang.net/2022/12/a3bbd841f397fea5dc6c969ff4acc7bf/): Someone gave me a Son Goku, he looks so happy! (And maybe needs a Kintoun Cloud)
+- [Dec. 28, 2022, 7:26 a.m.](https://roytang.net/2022/12/letterboxd-review-329402655/): An ok whodunnit with 1.5 likeable leads, though trying to compare itself to Agathe Christie is a bad idea as the mystery here is nowhere near as clever. This is the first time I&#x27;ve seen Saoirse Ronan in anything.
 - [Dec. 28, 2022, 7:15 a.m.](https://roytang.net/2022/12/109588179043520670/): @alwirtes thank you for the support!
-- [Dec. 28, 2022, 7:13 a.m.](https://roytang.net/2022/12/4795d020d965b07c782e42ce88e0d717/): As expected, problems plague first hours of SIM registration - https://www.philstar.com/headlines/2022/12/27/2233582/expected-problems-plague-first-hours-sim-registration No one is surprised. Also, I don&#x27;t understand why so many people are excited to comply with the registration, it&#x27;s not like it benefits you personally or directly. If I had to register, it would be at the last possible moment.
 
 [View all notes](https://roytang.net/notes)
 
