@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 30, 2022, 3:55 p.m.](https://roytang.net/2022/12/1608733530804326401/): My first reaction to this was: I look forward to his message for the EDSA holiday in Feb Quoted desamting&#x27;s tweet: &#x27;Violent uprising&#x27; also known as the Philippine Revolution by the way (Click photos to view full-size)
 - [Dec. 30, 2022, 12:27 p.m.](https://roytang.net/2022/12/1608681088427360256/): @sleepyskunk At 1:04, that scene with Wanda and the professor, was it in any of the trailers?!? Seems very spoilery
 - [Dec. 29, 2022, 10:28 p.m.](https://roytang.net/2022/12/letterboxd-review-330319397/): Maybe a little bit self-indulgent but I really enjoyed this one. A lot of the dialogue and banter was great and I like how the plot wrapped around itself. Hugh Grant here is the least Hugh Grant-like I&#x27;ve ever seen him.
 - [Dec. 29, 2022, 7:50 p.m.](https://roytang.net/2022/12/1608430214186663937/): testing: @home @search @explore @notifications @messages [19:51] lol interesting, only home resolves to an actual profile. (None of these profiles can be viewed via Twitter web because they are used as URL paths)
 - [Dec. 28, 2022, 6:57 p.m.](https://roytang.net/2022/12/a3bbd841f397fea5dc6c969ff4acc7bf/): Someone gave me a Son Goku, he looks so happy! (And maybe needs a Kintoun Cloud)
-- [Dec. 28, 2022, 7:26 a.m.](https://roytang.net/2022/12/letterboxd-review-329402655/): An ok whodunnit with 1.5 likeable leads, though trying to compare itself to Agathe Christie is a bad idea as the mystery here is nowhere near as clever. This is the first time I&#x27;ve seen Saoirse Ronan in anything.
 
 [View all notes](https://roytang.net/notes)
 
