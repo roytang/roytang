@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Follow Friday #2 and Blogroll Update](https://roytang.net/2022/12/follow-friday-2/)
 - [Games: Shin Megami Tensei V](https://roytang.net/2022/12/smtv/)
 - [Digital Boardgames Review: Gloomhaven](https://roytang.net/2022/12/gloomhaven/)
 - [Thoughts on Twitter](https://roytang.net/2022/12/thoughts-on-twitter/)
 - [Weeknotes 2022-12-25](https://roytang.net/2022/12/weeknotes-12-25/)
-- [Games: Tunic](https://roytang.net/2022/12/tunic/)
 
 [View all posts](https://roytang.net/blog)
 
