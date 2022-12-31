@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 31, 2022, 11:44 p.m.](https://roytang.net/2022/12/8b14e94c09d0cc1584a9d52fed3b258f/): Obligatory #MediaNoche post. Happy New Year everyone!
 - [Dec. 31, 2022, 4:23 p.m.](https://roytang.net/2022/12/food-photodump/): Clearing out my 2022 photos. Here&#x27;s some food I had during the year.
 - [Dec. 31, 2022, 4:12 p.m.](https://roytang.net/2022/12/a4c37da2d3c0cd1446559b5d3823b8a5/): Still haven&#x27;t gotten back into the regular sketching. Here are the doodles I had on my desk this month.
 - [Dec. 30, 2022, 4:10 p.m.](https://roytang.net/2022/12/341cec0ff0d87c7ce8badd51d62aae5d/): In 2 days it will be 2023 whether we like it or not. I find this strangely comforting
 - [Dec. 30, 2022, 3:55 p.m.](https://roytang.net/2022/12/1608733530804326401/): My first reaction to this was: I look forward to his message for the EDSA holiday in Feb Quoted desamting&#x27;s tweet: &#x27;Violent uprising&#x27; also known as the Philippine Revolution by the way (Click photos to view full-size)
-- [Dec. 30, 2022, 12:27 p.m.](https://roytang.net/2022/12/1608681088427360256/): @sleepyskunk At 1:04, that scene with Wanda and the professor, was it in any of the trailers?!? Seems very spoilery
 
 [View all notes](https://roytang.net/notes)
 
