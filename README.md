@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Greg Moore · Litany Against Resolutions](https://roytang.net/2022/12/38c7d258b72516cfd10065d9ff2ad552/)
 - [Mastodon—and the pros and cons of moving beyond Big Tech gatekeepers | Ars Technica](https://roytang.net/2022/12/0c7be16e76d06f8b83fa9672abb206a0/)
 - [2022 Movie Trailer Mashup - Sleepy Skunk](https://roytang.net/2022/12/d0416b8642dbfb41e682f7c62cabecb1/)
 - [2022, in 7 minutes - Vox](https://roytang.net/2022/12/28e9718789dbad4d5b5a2bb5f92ce52a/)
 - [State-of-the-Art Text Posts on Tumblr - How to have a good internet experience in 8 easy steps](https://roytang.net/2022/12/d499aa12ce0b17fdb932e40060d7cab2/)
-- [Stop Talking to Each Other and Start Buying Things: Three Decades of Survival in the Desert of Social Media](https://roytang.net/2022/12/4e895ef0df681810814e47f9c4db4629/)
 
 [View all links](https://roytang.net/links)
 
