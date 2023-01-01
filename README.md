@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2022 Year in Review](https://roytang.net/2023/01/2022-year-in-review/)
 - [Weeknotes 2022-12-31 Happy New Year!](https://roytang.net/2022/12/weeknotes-12-31/)
 - [Games: Marvel Snap](https://roytang.net/2022/12/marvel-snap/)
 - [Follow Friday #2 and Blogroll Update](https://roytang.net/2022/12/follow-friday-2/)
 - [Games: Shin Megami Tensei V](https://roytang.net/2022/12/smtv/)
-- [Digital Boardgames Review: Gloomhaven](https://roytang.net/2022/12/gloomhaven/)
 
 [View all posts](https://roytang.net/blog)
 
