@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 3, 2023, 4:03 a.m.](https://roytang.net/2023/01/109621399867613195/): @triviastorm Animal Crackers
 - [Jan. 3, 2023, 12:23 a.m.](https://roytang.net/2023/01/ca9d958b3e384dbe91abc35a04f5a934/): Survey: What was your favorite movie/tv show/game/other media you consumed in 2022?
 - [Jan. 1, 2023, 10 p.m.](https://roytang.net/2023/01/1609550075352748034/): Kicking off the new year to celebrate 5k followers with a Spider-Man Miles Morales Steam key giveaway. Like = 1 Entry Retweet = 1 Entry Comment = ❤️ Will double the prize at 1k retweets, entries are open till 6pm GMT on Jan 3. We hope 2023 brings you good luck
 - [Dec. 31, 2022, 11:44 p.m.](https://roytang.net/2022/12/8b14e94c09d0cc1584a9d52fed3b258f/): Obligatory #MediaNoche post. Happy New Year everyone!
 - [Dec. 31, 2022, 4:23 p.m.](https://roytang.net/2022/12/food-photodump/): Clearing out my 2022 photos. Here&#x27;s some food I had during the year.
-- [Dec. 31, 2022, 4:12 p.m.](https://roytang.net/2022/12/a4c37da2d3c0cd1446559b5d3823b8a5/): Still haven&#x27;t gotten back into the regular sketching. Here are the doodles I had on my desk this month.
 
 [View all notes](https://roytang.net/notes)
 
