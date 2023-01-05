@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 5, 2023, 7:03 p.m.](https://roytang.net/2023/01/b71b385d9566ebcd71252d1644042352/): Playing Citizen Sleeper https://www.twitch.tv/twitchyroy #twitch
 - [Jan. 3, 2023, 12:23 a.m.](https://roytang.net/2023/01/ca9d958b3e384dbe91abc35a04f5a934/): Survey: What was your favorite movie/tv show/game/other media you consumed in 2022?
 - [Dec. 31, 2022, 11:44 p.m.](https://roytang.net/2022/12/8b14e94c09d0cc1584a9d52fed3b258f/): Obligatory #MediaNoche post. Happy New Year everyone!
 - [Dec. 31, 2022, 4:23 p.m.](https://roytang.net/2022/12/food-photodump/): Clearing out my 2022 photos. Here&#x27;s some food I had during the year.
 - [Dec. 31, 2022, 4:12 p.m.](https://roytang.net/2022/12/a4c37da2d3c0cd1446559b5d3823b8a5/): Still haven&#x27;t gotten back into the regular sketching. Here are the doodles I had on my desk this month.
-- [Dec. 30, 2022, 4:10 p.m.](https://roytang.net/2022/12/341cec0ff0d87c7ce8badd51d62aae5d/): In 2 days it will be 2023 whether we like it or not. I find this strangely comforting
 
 [View all notes](https://roytang.net/notes)
 
