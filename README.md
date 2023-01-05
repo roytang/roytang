@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Vampire Survivors](https://roytang.net/2023/01/vampire-survivors/)
 - [Twenty Years As A Software Developer](https://roytang.net/2023/01/twenty-years-working/)
 - [New Year&#x27;s Checklist 2023: Things I&#x27;m Looking Forward To](https://roytang.net/2023/01/2023-checklist/)
 - [2022 Year in Review](https://roytang.net/2023/01/2022-year-in-review/)
 - [Weeknotes 2022-12-31 Happy New Year!](https://roytang.net/2022/12/weeknotes-12-31/)
-- [Games: Marvel Snap](https://roytang.net/2022/12/marvel-snap/)
 
 [View all posts](https://roytang.net/blog)
 
