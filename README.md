@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 9, 2023, 7:31 p.m.](https://roytang.net/2023/01/da52215261592acd3f4060a43efa32f1/): There is no better indication of the attitude towards books in this country than the so-called &quot;National Bookstore&quot; selling mostly school supplies and not a lot of books
 - [Jan. 9, 2023, 2:58 a.m.](https://roytang.net/2023/01/e37a3f83e96c6b92c308aecc8d79b67f/): Submitted Untitled Shooty Game 2 to LudumDare52 Compo with a bit more than an hour to spare! https://hungryroy.itch.io/untitled-shooty-game-2 https://ldjam.com/events/ludum-dare/52/untitled-shooty-game-2-the-harvesting #LDJam #LudumDare #GameJam #GameDev Blog post sometime this week. For now, I am just really tired.
 - [Jan. 5, 2023, 7:03 p.m.](https://roytang.net/2023/01/b71b385d9566ebcd71252d1644042352/): Playing Citizen Sleeper https://www.twitch.tv/twitchyroy #twitch [22:54] YT: https://www.youtube.com/watch?v=Lstg9kVXu-w
 - [Jan. 3, 2023, 12:23 a.m.](https://roytang.net/2023/01/ca9d958b3e384dbe91abc35a04f5a934/): Survey: What was your favorite movie/tv show/game/other media you consumed in 2022?
 - [Dec. 31, 2022, 11:44 p.m.](https://roytang.net/2022/12/8b14e94c09d0cc1584a9d52fed3b258f/): Obligatory #MediaNoche post. Happy New Year everyone!
-- [Dec. 31, 2022, 4:23 p.m.](https://roytang.net/2022/12/food-photodump/): Clearing out my 2022 photos. Here&#x27;s some food I had during the year.
 
 [View all notes](https://roytang.net/notes)
 
