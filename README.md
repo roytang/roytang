@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 10, 2023, 6:46 p.m.](https://roytang.net/2023/01/letterboxd-review-337410751/): I haven&#x27;t seen this before, but that scene where Will is at a bar taking down some guy talking about economics? I&#x27;ve seen it on the internet so many times, I figured I should go watch the film already.This film came out in 1997 when I was in maybe the 2nd year of college and I feel like back then I would not have appreciated the themes of talent, ambition, fear and regret that encompass Will&#x27;s journey in this film.I can see why it&#x27;s regarded as a modern-day classic. The film alternates between light-hearted moments and gut-wrenching conflict. The script
 - [Jan. 9, 2023, 7:31 p.m.](https://roytang.net/2023/01/da52215261592acd3f4060a43efa32f1/): There is no better indication of the attitude towards books in this country than the so-called &quot;National Bookstore&quot; selling mostly school supplies and not a lot of books
 - [Jan. 9, 2023, 2:58 a.m.](https://roytang.net/2023/01/e37a3f83e96c6b92c308aecc8d79b67f/): Submitted Untitled Shooty Game 2 to LudumDare52 Compo with a bit more than an hour to spare! https://hungryroy.itch.io/untitled-shooty-game-2 https://ldjam.com/events/ludum-dare/52/untitled-shooty-game-2-the-harvesting #LDJam #LudumDare #GameJam #GameDev Blog post sometime this week. For now, I am just really tired.
 - [Jan. 5, 2023, 7:03 p.m.](https://roytang.net/2023/01/b71b385d9566ebcd71252d1644042352/): Playing Citizen Sleeper https://www.twitch.tv/twitchyroy #twitch [22:54] YT: https://www.youtube.com/watch?v=Lstg9kVXu-w
 - [Jan. 3, 2023, 12:23 a.m.](https://roytang.net/2023/01/ca9d958b3e384dbe91abc35a04f5a934/): Survey: What was your favorite movie/tv show/game/other media you consumed in 2022?
-- [Dec. 31, 2022, 11:44 p.m.](https://roytang.net/2022/12/8b14e94c09d0cc1584a9d52fed3b258f/): Obligatory #MediaNoche post. Happy New Year everyone!
 
 [View all notes](https://roytang.net/notes)
 
