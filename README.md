@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [My Brothers War Limited Recap](https://roytang.net/2023/01/mtgbro-limited-recap/)
 - [2023 Week 02](https://roytang.net/2023/01/2023-week-02/)
 - [Ludum Dare 52: Untitled Shooty Game 2](https://roytang.net/2023/01/ludum-dare-52-shooty-2/)
 - [2023 Week 01](https://roytang.net/2023/01/2023-week-01/)
 - [Vampire Survivors](https://roytang.net/2023/01/vampire-survivors/)
-- [Twenty Years As A Software Developer](https://roytang.net/2023/01/twenty-years-working/)
 
 [View all posts](https://roytang.net/blog)
 
