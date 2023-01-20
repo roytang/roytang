@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Matt Yglesias and the secret of blogging - by Max Read](https://roytang.net/2023/01/07875b94a5eea3471c855831c8699c05/)
+- [Twitter officially bans third-party clients with new developer rules - The Verge](https://roytang.net/2023/01/dbfa2ccc40d93fc03df1c473cde8d08f/)
 - [From Vaccines to Golden Rice: 10 Positive Stories From 2022 | Time](https://roytang.net/2023/01/2affb393ef0d2f4c8f2d939f72b3d204/)
 - [Cine2Nerdle](https://roytang.net/2023/01/b6c766bc0452a71b378a1362d764f45e/)
 - [Fan Sites VS Fandom: A Case Study | Brain Baking](https://roytang.net/2023/01/f05a343268feb89b58f0afd65262f5e8/)
-- [Pluralistic: Why the Fed wants to crush workers (19 Jan 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/01/ab86dfbbf256464a9e9c47f74f88b4c1/)
-- [Bring back personal blogging - The Verge](https://roytang.net/2023/01/03b8a5ca715d7a9bd5629bc2cd7c05d0/)
 
 [View all links](https://roytang.net/links)
 
