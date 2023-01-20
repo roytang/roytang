@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Cine2Nerdle](https://roytang.net/2023/01/b6c766bc0452a71b378a1362d764f45e/)
 - [Fan Sites VS Fandom: A Case Study | Brain Baking](https://roytang.net/2023/01/f05a343268feb89b58f0afd65262f5e8/)
 - [Pluralistic: Why the Fed wants to crush workers (19 Jan 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/01/ab86dfbbf256464a9e9c47f74f88b4c1/)
 - [Bring back personal blogging - The Verge](https://roytang.net/2023/01/03b8a5ca715d7a9bd5629bc2cd7c05d0/)
 - [Greg Moore · Litany Against Resolutions](https://roytang.net/2022/12/38c7d258b72516cfd10065d9ff2ad552/)
-- [Mastodon—and the pros and cons of moving beyond Big Tech gatekeepers | Ars Technica](https://roytang.net/2022/12/0c7be16e76d06f8b83fa9672abb206a0/)
 
 [View all links](https://roytang.net/links)
 
