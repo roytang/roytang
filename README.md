@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 22, 2023, 2:29 p.m.](https://roytang.net/2023/01/e1ad8044b445b3bab7f4ad74d1321088/): 2023 Arena Open attempt no. 1: Kaldheim Sealed. Finished 2-3 =/ Before I went in, I reviewed my Kaldheim Limited Review, and it looks like I did terribly in that format. So it&#x27;s not surprising that I didn&#x27;t too well this time either!
 - [Jan. 19, 2023, 12:56 a.m.](https://roytang.net/2023/01/10fcbbx/): Posted on r/MarvelUnlimited: Does is anyone know why Captain America #400 is incomplete on MU? It only has the main story from operation galatic storm. Looks like there should also be backups with falcon and usagent rescuing dman and diamondback/crossbones origin story
 - [Jan. 17, 2023, 9:19 p.m.](https://roytang.net/2023/01/109704744130699285/): @jikodesu do you need to have the DDG app as the default browser to use this?
 - [Jan. 16, 2023, 7:57 p.m.](https://roytang.net/2023/01/1614954978602520576/): @Westraid Happy birthday!
 - [Jan. 16, 2023, 5:09 p.m.](https://roytang.net/2023/01/1614912728325578752/): I have unfollowed 95% of my Twitter follows. Don&#x27;t worry, I&#x27;m probably still following you via a list. My DMs are no longer open. They&#x27;re only ever crypto spam bots nowadays anyway. My website will always tell you how to contact me: https://roytang.net/page/about/contact/ [17:09] I probably post there more anyway: https://roytang.net/all/ Like and subscribe: https://www.twitch.tv/twitchyroy, https://www.youtube.com/@roytang Triviabot: @triviabot and https://botsin.space/@triviastorm
-- [Jan. 14, 2023, 11:44 p.m.](https://roytang.net/2023/01/letterboxd-review-339378547/): I like this new CGI animation style, everything looks cool. The plot is pretty by the numbers for a DC thing, but the banter between the boys is great.
 
 [View all notes](https://roytang.net/notes)
 
