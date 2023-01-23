@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Chronophoto - The Photographical History Game! - Home](https://roytang.net/2023/01/400d63e94e2b742804d1231a643321b9/)
+- [Pluralistic: Tiktok’s enshittification (21 Jan 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/01/f9fb15ca0d4cd1867ad1371bef05c95e/)
 - [Matt Yglesias and the secret of blogging - by Max Read](https://roytang.net/2023/01/07875b94a5eea3471c855831c8699c05/)
 - [Twitter officially bans third-party clients with new developer rules - The Verge](https://roytang.net/2023/01/dbfa2ccc40d93fc03df1c473cde8d08f/)
 - [From Vaccines to Golden Rice: 10 Positive Stories From 2022 | Time](https://roytang.net/2023/01/2affb393ef0d2f4c8f2d939f72b3d204/)
-- [Cine2Nerdle](https://roytang.net/2023/01/b6c766bc0452a71b378a1362d764f45e/)
-- [Fan Sites VS Fandom: A Case Study | Brain Baking](https://roytang.net/2023/01/f05a343268feb89b58f0afd65262f5e8/)
 
 [View all links](https://roytang.net/links)
 
