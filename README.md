@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 03: Lunar New Year](https://roytang.net/2023/01/2023-week-03/)
 - [Walking Distances](https://roytang.net/2023/01/walking-distances/)
 - [Citizen Sleeper](https://roytang.net/2023/01/citizen-sleeper/)
 - [My Brothers War Limited Recap](https://roytang.net/2023/01/mtgbro-limited-recap/)
 - [2023 Week 02](https://roytang.net/2023/01/2023-week-02/)
-- [Ludum Dare 52: Untitled Shooty Game 2](https://roytang.net/2023/01/ludum-dare-52-shooty-2/)
 
 [View all posts](https://roytang.net/blog)
 
