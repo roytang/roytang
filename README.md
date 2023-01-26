@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Complete Marvel Run part 3: Captain America (1968) and others](https://roytang.net/2023/01/marvel-run-3-captain-america-etc/)
 - [2023 Week 03: Lunar New Year](https://roytang.net/2023/01/2023-week-03/)
 - [Walking Distances](https://roytang.net/2023/01/walking-distances/)
 - [Citizen Sleeper](https://roytang.net/2023/01/citizen-sleeper/)
 - [My Brothers War Limited Recap](https://roytang.net/2023/01/mtgbro-limited-recap/)
-- [2023 Week 02](https://roytang.net/2023/01/2023-week-02/)
 
 [View all posts](https://roytang.net/blog)
 
