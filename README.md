@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [What does it look like for the web to lose? - Chris Coyier](https://roytang.net/2023/01/14c05c4cd7035127449a6bf265775d3a/)
 - [Radio Garden – Explore live radio by rotating the globe](https://roytang.net/2023/01/dc14070c1d8432d6622ce6349a1a6d25/)
 - [Wonders of Street View](https://roytang.net/2023/01/94892a066cbc7cf4d2ccf90956e8da32/)
 - [Chronophoto - The Photographical History Game! - Home](https://roytang.net/2023/01/400d63e94e2b742804d1231a643321b9/)
 - [Pluralistic: Tiktok’s enshittification (21 Jan 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/01/f9fb15ca0d4cd1867ad1371bef05c95e/)
-- [Matt Yglesias and the secret of blogging - by Max Read](https://roytang.net/2023/01/07875b94a5eea3471c855831c8699c05/)
 
 [View all links](https://roytang.net/links)
 
