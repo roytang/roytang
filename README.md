@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 29, 2023, 4:32 p.m.](https://roytang.net/2023/01/109771562925638875/): @puzzletrailpaul pretty good! My anagram-loving friends enjoyed it! There seems to be a problem with Firefox though, the button for sharing results doesn&#x27;t appear (see screenshot). I only saw the buttonn when i tried it in edge (Click photos to view full-size)
 - [Jan. 28, 2023, 9:49 p.m.](https://roytang.net/2023/01/109767149280055955/): @prijks I am surprised this format (with the content warning) works with the bot, I hadn&#x27;t handled it explicitly! Thanks for helping test!
 - [Jan. 28, 2023, 9:36 p.m.](https://roytang.net/2023/01/The%20Menu%202022/): This was very, very good. I wasn&#x27;t sure what to expect; I thought it was going to be some stabby serial-killer thing, but the whole black comedy vibe and the rising tension were executed very well. Ralph Fiennes gives an excellent performance as the chef delivering the menu.
 - [Jan. 28, 2023, 2:10 a.m.](https://roytang.net/2023/01/0d7159363914f6204f8785c17104090a/): Currently the first and only PH blog listed on ooh.directory. We need more PH bloggers!
 - [Jan. 26, 2023, 9:30 p.m.](https://roytang.net/2023/01/10lru92/): Posted on r/comicbooks: Has anything come out of this meeting between Kate and Reed at the end of Marauders v1? I’m not even sure if Kate can use the gates yet in v2
-- [Jan. 25, 2023, 6:26 p.m.](https://roytang.net/2023/01/75e9b56ea458323bc98b5f87bc04212f/): EEAAO is so different from the usual Oscars fare I can only imagine all the Oscars people sitting at a table and looking at each other in disbelief. &quot;Really? We&#x27;re really nominating this?!?&quot;
 
 [View all notes](https://roytang.net/notes)
 
