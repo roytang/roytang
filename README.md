@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [A Grand Unified Theory of Buying Stuff | WIRED](https://roytang.net/2023/01/dc034387f54d5b3052fb6280a3636db1/)
 - [Twitter Tumbleweed Watch - by Dave Karpf](https://roytang.net/2023/01/dc1e995cf254d6ee689e8c3a656f76ee/)
 - [What does it look like for the web to lose? - Chris Coyier](https://roytang.net/2023/01/14c05c4cd7035127449a6bf265775d3a/)
 - [Radio Garden – Explore live radio by rotating the globe](https://roytang.net/2023/01/dc14070c1d8432d6622ce6349a1a6d25/)
 - [Wonders of Street View](https://roytang.net/2023/01/94892a066cbc7cf4d2ccf90956e8da32/)
-- [Chronophoto - The Photographical History Game! - Home](https://roytang.net/2023/01/400d63e94e2b742804d1231a643321b9/)
 
 [View all links](https://roytang.net/links)
 
