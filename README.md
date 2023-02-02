@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 3, 2023, 1:12 a.m.](https://roytang.net/2023/02/superstore-s6/): This series came out on NF recently and I was reminded that I never watched the final season so I binged that in the background over a couple of days. Season is relatively short (15 eps) and I guess generally of the same quality as the previous ones. Mostly watched this one just to get some closure. A few laughs here and there, most plotlines resolved satisfactorily. The best thing about this show was the relatively large ensemble cast (since a big box store requires a lot of staff), so they rarely run out of B-plots to run.
 - [Feb. 2, 2023, 4:34 p.m.](https://roytang.net/2023/02/1621064609083056130/): Welp, we&#x27;ll see if this pushes through. If it does I&#x27;m probably done with Twitter Quoted TwitterDev&#x27;s tweet: Starting February 9, we will no longer support free access to the Twitter API, both v2 and v1.1. A paid basic tier will be available instead 🧵
 - [Feb. 1, 2023, 7:54 a.m.](https://roytang.net/2023/02/109786515161975163/): I was kind of intrigued by the idea of a &quot;text-focused tiktok&quot;, but given that their homepage requires a phone number to get on the waitlist tells me they are prioritizing phone/app-based users. No web access (or web users as second class citizens) is a nonstarter for me. https://www.theverge.com/2023/1/31/23579552/artifact-instagram-cofounders-kevin-systrom-mike-krieger-news-app (Click photos to view full-size)
 - [Feb. 1, 2023, 7:32 a.m.](https://roytang.net/2023/02/1620565752683319297/): Let&#x27;s face it, constant crises and rebooting and elseworlds are time-honored DC #comics traditions Most excited for: Supergirl Woman of Tomorrow, that comic was great Quoted JamesGunn&#x27;s tweet: Here are just a few of our plans. Up, up, and away! #DCStudios #DCU @DCComics Your browser does not support the video tag.
 - [Feb. 1, 2023, 12:30 a.m.](https://roytang.net/2023/02/training-day-2001/): An intense film, and summarizes neatly why I find it hard to trust law enforcement and any so-called &quot;war on drugs&quot;
-- [Jan. 30, 2023, 1:47 p.m.](https://roytang.net/2023/01/3414422438460bb615ddfdd102e37807/): After we finished the first jigsaw puzzle a while back, Ma started working on the new one, which is roughly twice as large. We have been at this one for two weeks now!
 
 [View all notes](https://roytang.net/notes)
 
