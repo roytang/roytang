@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 9, 2023, 1:49 a.m. ](https://roytang.net/2023/02/109830376898454363/): @neauoire alright, thanks for the info!
+- [Feb. 9, 2023, 1:48 a.m. ](https://roytang.net/2023/02/109830372673909720/): @neauoire ah yeah sorry, doing some work on it at the moment. does the list update dynamically?
+- [Feb. 9, 2023, 1:45 a.m. ](https://roytang.net/2023/02/109830360718613258/): @neauoire hello! I was poking around on this search engine and I found that there are some webring member sites that are not indexed (mine included). May I ask what is the criteria for not being indexed?
 - [Feb. 7, 2023, 6:42 p.m. ](https://roytang.net/2023/02/1622908668705656832/): Occasionally I look into the &quot;For You&quot; tab to see what it&#x27;s like being among the unwashed masses and my first question is always &quot;Why are my own tweets here?&quot; I have by definition already seen them!
 - [Feb. 7, 2023, 1:01 a.m. Movies: Fantastic Four: Rise of the Silver Surfer (2007)](https://roytang.net/2023/02/fantastic-four-rise-of-the-silver-surfer-2007/): I was not happy with the original so I never bothered watching this one, but it wasn&#x27;t too bad actually, maybe a slight improvement over the original even, though that&#x27;s not a high bar to clear. Still not happy with Doom&#x27;s BS powers coming back into play (and they didn&#x27;t even bother explaining why he&#x27;s still around lol). I understand space cloud Galactus was kind of silly, but I would imagine a gigantic guy in a hat would not have played well in theaters in 2007. Was nice to see Chris Evans being brash and annoying instead of the do-gooder
-- [Feb. 6, 2023, 8:18 p.m. ](https://roytang.net/2023/02/2a6c7a09457d8dba5d16b3e5f9c9d047/): Streaming Ori and the Will of the Wisps twitch.tv/twitchyroy #gaming #twitch [2023-02-07 01:02] YT: https://www.youtube.com/watch?v=VDH1T9J11_A
-- [Feb. 5, 2023, 1:53 p.m. Movies: Daredevil (2003)](https://roytang.net/2023/02/daredevil-2003/): Starting on my backlog of poorly-reviewed comic book moviesThis one I think tried to cram in way too many elements of the Daredevil mythos into one film. Trying to do Elektra, Kingpin and Bullseye all in one go was maybe a bit too ambitious. It led to them cutting back on actually developing each character properly. No mention of Stick or the Hand anywhere, we are just supposed to believe that Matt gained his fighting skills just by training a lot as by himself a kid. And Matt is super cavalier with not hiding his extra senses! He randomly tries
-- [Feb. 4, 2023, 3:35 p.m. ](https://roytang.net/2023/02/1637ab6d532664a9f275bbca43dd6df0/): Streaming The Witcher 3 https://www.twitch.tv/twitchyroy #twitch #witcher3 #gaming [2023-02-06 12:17] YT: https://www.youtube.com/watch?v=qUd2-tbiXBA
 
 [View all notes](https://roytang.net/notes)
 
