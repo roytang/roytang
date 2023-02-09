@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Feb. 9, 2023, 6:45 p.m. ](https://roytang.net/2023/02/dee35db04d4629f35cfcaae54c27a575/): Drafting some Phyrexia All Will Be One! https://www.twitch.tv/twitchyroy #twitch #mtg #mtgone
+- [Feb. 9, 2023, 6:45 p.m. ](https://roytang.net/2023/02/dee35db04d4629f35cfcaae54c27a575/): Drafting some Phyrexia All Will Be One! https://www.twitch.tv/twitchyroy #twitch #mtg #mtgone [23:15] Had an excellent first day of MTGONE drafts on https://indieweb.social/tags/magicarena&quot; class=&quot;mention hashtag&quot; rel=&quot;tag&quot;&gt;#magicarena! Drafts went 6 and 7, good start to the season!YT: https://www.youtube.com/watch?v=cIHVi8zFbjk (Click photos to view full-size)
 - [Feb. 9, 2023, 1:08 p.m. ](https://roytang.net/2023/02/1623549491537403906/): #mtgarenastats email dropped for #mtgbro! This limited season was very challenging for me, hopefully I do better with the next one! (Click photos to view full-size)
 - [Feb. 9, 2023, 1:45 a.m. ](https://roytang.net/2023/02/109830360718613258/): @neauoire hello! I was poking around on this search engine and I found that there are some webring member sites that are not indexed (mine included). May I ask what is the criteria for not being indexed?
 - [Feb. 7, 2023, 6:42 p.m. ](https://roytang.net/2023/02/1622908668705656832/): Occasionally I look into the &quot;For You&quot; tab to see what it&#x27;s like being among the unwashed masses and my first question is always &quot;Why are my own tweets here?&quot; I have by definition already seen them!
