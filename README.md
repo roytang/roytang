@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Things I Do Not Like Hearing - by John Paul Brammer](https://roytang.net/2023/02/2992bbba9ff151f059b819840f2f31e1/)
 - [The Last Man Without a Cell Phone - by Anne Kadet](https://roytang.net/2023/02/44aff28e0de71d7ae5b0d285d67e42ce/)
 - [ChatGPT Is a Blurry JPEG of the Web | The New Yorker](https://roytang.net/2023/02/9b189fd040d553dc1b8788dba04038a0/)
 - [The Market for Lemons - Infrequently Noted](https://roytang.net/2023/02/f430c05adc46131d97da8bb2192f5c0f/)
 - [Mastodon: Good Enough For Now | Bill Hunt](https://roytang.net/2023/02/fccb0f6e7c82fc4a6990ce91a650fd77/)
-- [Play-to-earn app Lyka, where users earn GEMs, plots comeback - Rest of World](https://roytang.net/2023/02/1150f4953824c8a8aa42fb84d82ce36b/)
 
 [View all links](https://roytang.net/links)
 
