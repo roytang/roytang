@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 16, 2023, 8:55 a.m. ](https://roytang.net/2023/02/5d0e6212d3a1c1f6cd08520bc7d65fe0/): Star Trek episode where Data is first introduced and everyone spends their time trying to get him to say racial slurs or gaslighting him or trying to bypass his programming or otherwise being mean to him #ai
 - [Feb. 13, 2023, 7:09 p.m. ](https://roytang.net/2023/02/de253a8fd9a79550c408a37860cb4708/): Drafting some more Phyrexia: All Will Be One https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgone [2023-02-14 00:40] Today&#x27;s drafts did not go as well as last time. Also, I forgot to get draft deck screenshotsYT: https://www.youtube.com/watch?v=gyQsHi-lnBI
 - [Feb. 13, 2023, 2:33 a.m. ](https://roytang.net/2023/02/7451037fb675310a979a4d075a004a0a/): It amazes me that this Grand Prix Manila 2008 shirt is still alive after almost 15 years! The GP shirts were always a bit too small for me, so my dad is the one who has been wearing mine all this time. #mtg #gpmanila
 - [Feb. 13, 2023, 12:34 a.m. Movies: Lost Bullet (2020)](https://roytang.net/2023/02/lost-bullet-2020/): I think I got a recommendation for Lost Bullet 2 from somewhere and decided to watch this one first since it was also on NF. Didn&#x27;t know anything coming in other than it&#x27;s some kind of Fast and the Furious-type thing, and I&#x27;ve never seen any of those films. Surprised to find out it&#x27;s actually a French film. Switched to French voices with English subs because the English dubs in live action really throws me off. The plot isn&#x27;t that original and kinda predictable and there were actually not as many car chases than I thought there would be, but
 - [Feb. 11, 2023, 12:53 p.m. ](https://roytang.net/2023/02/1624270286182027267/): #MTGArenaStats email for #MTGBRO dropped. Twice! Lol the first one had DMU commons/uncommons instead of BRO ones, had to delete and re-post. (Click photos to view full-size)
-- [Feb. 9, 2023, 6:45 p.m. ](https://roytang.net/2023/02/dee35db04d4629f35cfcaae54c27a575/): Drafting some Phyrexia All Will Be One! https://www.twitch.tv/twitchyroy #twitch #mtg #mtgone [23:15] Had an excellent first day of MTGONE drafts on https://indieweb.social/tags/magicarena&quot; class=&quot;mention hashtag&quot; rel=&quot;tag&quot;&gt;#magicarena! Drafts went 6 and 7, good start to the season!YT: https://www.youtube.com/watch?v=cIHVi8zFbjk (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
