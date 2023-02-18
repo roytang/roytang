@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Frank Chimero - There is a Horse in the Apple Store](https://roytang.net/2023/02/76f86c2a44a084f947e6d4b909b7e88f/)
+- [Writing Javascript without a build system](https://roytang.net/2023/02/027d8ba9041b7bd9c670b9124f800b7b/)
+- [God Did the World a Favor by Destroying Twitter | WIRED](https://roytang.net/2023/02/814329a0bb9578607a859009e541c0a4/)
 - [Things I Do Not Like Hearing - by John Paul Brammer](https://roytang.net/2023/02/2992bbba9ff151f059b819840f2f31e1/)
 - [The Last Man Without a Cell Phone - by Anne Kadet](https://roytang.net/2023/02/44aff28e0de71d7ae5b0d285d67e42ce/)
-- [ChatGPT Is a Blurry JPEG of the Web | The New Yorker](https://roytang.net/2023/02/9b189fd040d553dc1b8788dba04038a0/)
-- [The Market for Lemons - Infrequently Noted](https://roytang.net/2023/02/f430c05adc46131d97da8bb2192f5c0f/)
-- [Mastodon: Good Enough For Now | Bill Hunt](https://roytang.net/2023/02/fccb0f6e7c82fc4a6990ce91a650fd77/)
 
 [View all links](https://roytang.net/links)
 
