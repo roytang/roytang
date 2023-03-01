@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Bitter End of &quot;Content&quot; - Freddie deBoer](https://roytang.net/2023/03/c36fdd6c627e7b0032c882122bdc30f5/)
 - [A blog post is a very long and complex search query to find fascinating people and make them route interesting stuff to your inbox](https://roytang.net/2023/02/a979d4194bc3d89253958cf61d48699f/)
 - [The (extremely) loud minority | Andy Bell](https://roytang.net/2023/02/f554c56df2d46a016e57ad166164dce4/)
 - [Keanu Reeves Will Never Surrender to the Machines | WIRED](https://roytang.net/2023/02/7575386d2ffed00e246b71de73eecfb1/)
 - [Where the Elements Came From](https://roytang.net/2023/02/0561d05381b0a523aa90fb588a03773a/)
-- [Frank Chimero - There is a Horse in the Apple Store](https://roytang.net/2023/02/76f86c2a44a084f947e6d4b909b7e88f/)
 
 [View all links](https://roytang.net/links)
 
