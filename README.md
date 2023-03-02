@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [March 2, 2023, 7:26 p.m. ](https://roytang.net/2023/03/4528f5f85dc44540b98c7fb2c0adba83/): #MTGONE Quick Drafts day 3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch
+- [March 2, 2023, 7:26 p.m. ](https://roytang.net/2023/03/4528f5f85dc44540b98c7fb2c0adba83/): #MTGONE Quick Drafts day 3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch [22:58] Today&#x27;s two drafts went 6 and 3, a bit better than last time, but could still stand some improvement. Not sure if I&#x27;m still going to get more QD chances though.YT: https://www.youtube.com/watch?v=3VpjUJv-1nc (Click photos to view full-size)
 - [March 2, 2023, 1:12 a.m. ](https://roytang.net/2023/03/1630979436458950656/): @NYTGames Your browser does not support the video tag.
 - [March 1, 2023, 12:06 a.m. Phyrexia All Will Be One Quick Drafts 3 and 4](https://roytang.net/2023/03/mtgone-quickdrafts-2/): Day 2 of #MTGONE quick drafts, my first foray into blue for this format. The first draft went well at 6 wins, but the second one where I tried to go monoblue went much worse with 1 win. Oh well.
 - [Feb. 28, 2023, 8:37 a.m. ](https://roytang.net/2023/02/109939568145573904/): Having some issues with my ISP&#x27;s DNS servers, what are good alternative DNS servers to try?
