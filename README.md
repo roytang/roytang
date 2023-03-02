@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 2, 2023, 7:26 p.m. ](https://roytang.net/2023/03/4528f5f85dc44540b98c7fb2c0adba83/): #MTGONE Quick Drafts day 3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch
 - [March 2, 2023, 1:12 a.m. ](https://roytang.net/2023/03/1630979436458950656/): @NYTGames Your browser does not support the video tag.
 - [March 1, 2023, 12:06 a.m. Phyrexia All Will Be One Quick Drafts 3 and 4](https://roytang.net/2023/03/mtgone-quickdrafts-2/): Day 2 of #MTGONE quick drafts, my first foray into blue for this format. The first draft went well at 6 wins, but the second one where I tried to go monoblue went much worse with 1 win. Oh well.
 - [Feb. 28, 2023, 8:37 a.m. ](https://roytang.net/2023/02/109939568145573904/): Having some issues with my ISP&#x27;s DNS servers, what are good alternative DNS servers to try?
 - [Feb. 28, 2023, 1:05 a.m. Phyrexia All Will Be One Quick Drafts 1 and 2](https://roytang.net/2023/02/mtgone-quickdrafts/): Wasn&#x27;t sure if I could stream before #MTGONE quick drafts rotated out, so I decided to do a couple offline. Only went 3 and 4, which is still a bit better than my last draft day. I won every game with that Sword, but I never got to cast Kaya.
-- [Feb. 26, 2023, 10:17 p.m. ](https://roytang.net/2023/02/109931465941944212/): @jefklak @rubenerd @hl @podiboq @joehart Thanks for the shoutout! Also looking forward to checking out the other blogs in this thread!
 
 [View all notes](https://roytang.net/notes)
 
