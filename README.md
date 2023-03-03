@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 4, 2023, 12:51 a.m. Movies: Nightcrawler (2014)](https://roytang.net/2023/03/nightcrawler-2014/): I was a bit bored at the start, but the last 30-45 hours of this film are super intense. Jake Gyllenhaal gives a great performance as the freelance crime reporter who easily descends into darkness as his ambitions overshadow whatever morals he had. A stinging critique of capitalism and our attention economy as well.
 - [March 3, 2023, 10:40 p.m. Phyrexia All Will Be One Quick Drafts 7 and 8](https://roytang.net/2023/03/mtgone-quickdrafts-4/): Managed to squeeze in a couple more off-stream #MTGONE quick drafts before they rotate out, this time continuing my experimentation with blue. First one didn&#x27;t go well (only 1 win), but second one paid off and went the distance! A trophy is a pretty good way to end my Quick Draft run!
 - [March 2, 2023, 7:26 p.m. ](https://roytang.net/2023/03/4528f5f85dc44540b98c7fb2c0adba83/): #MTGONE Quick Drafts day 3 https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch [22:58] Today&#x27;s two drafts went 6 and 3, a bit better than last time, but could still stand some improvement. Not sure if I&#x27;m still going to get more QD chances though.YT: https://www.youtube.com/watch?v=3VpjUJv-1nc (Click photos to view full-size)
 - [March 2, 2023, 1:12 a.m. ](https://roytang.net/2023/03/1630979436458950656/): @NYTGames Your browser does not support the video tag.
 - [March 1, 2023, 12:06 a.m. Phyrexia All Will Be One Quick Drafts 3 and 4](https://roytang.net/2023/03/mtgone-quickdrafts-2/): Day 2 of #MTGONE quick drafts, my first foray into blue for this format. The first draft went well at 6 wins, but the second one where I tried to go monoblue went much worse with 1 win. Oh well.
-- [Feb. 28, 2023, 8:37 a.m. ](https://roytang.net/2023/02/109939568145573904/): Having some issues with my ISP&#x27;s DNS servers, what are good alternative DNS servers to try?
 
 [View all notes](https://roytang.net/notes)
 
