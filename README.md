@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 8, 2023, 3:23 p.m. ](https://roytang.net/2023/03/1633367807370076161/): Globe internet down in tandang sora? @talk2GLOBE
 - [March 6, 2023, 2:23 p.m. Abbott Elementary S1](https://roytang.net/2023/03/abbott-elementary-s1/): Saw this was on D+ and decided to watch it, since it had garned some Emmy nods a while back. I was kind of expecting a joke-heavy thing, something like B99, but it&#x27;s more like a like-hearted slice of life show with some absurdity sprinkled in. Good for background watching. Strong Modern Family vibes, even has the same mockumentary conceit. This kind of show tends to take a while to ramp up in enjoyment, as you need some time to get attached to the ensemble cast. The first season is short (it came in as a midseason replacement) so I&#x27;m
 - [March 5, 2023, 4:23 a.m. Phyrexia All Will Be One Arena Open](https://roytang.net/2023/03/mtgone-arena-open/): Sigh. Threw some gems away on the Arena Open again, attempts no. 2 and 3. First pool looked decent, but I had some bad misplays that cost me a couple of games, finished 2-3. Second pool had some good rares in shallow colors, I went RW for more consistency, but only went 1-3. Someday we&#x27;ll get there!
 - [March 4, 2023, 2:14 p.m. ](https://roytang.net/2023/03/7ef1524a8832ef0ef67e55622cdfb33c/): &quot;Let your interests be as wide as possible, and let your reactions to the things and persons that interest you be as far as possible friendly rather than hostile.&quot; -- Bertrand Russell (via the Marginalian)
 - [March 4, 2023, 12:51 a.m. Movies: Nightcrawler (2014)](https://roytang.net/2023/03/nightcrawler-2014/): I was a bit bored at the start, but the last 30-45 hours of this film are super intense. Jake Gyllenhaal gives a great performance as the freelance crime reporter who easily descends into darkness as his ambitions overshadow whatever morals he had. A stinging critique of capitalism and our attention economy as well.
-- [March 3, 2023, 10:40 p.m. Phyrexia All Will Be One Quick Drafts 7 and 8](https://roytang.net/2023/03/mtgone-quickdrafts-4/): Managed to squeeze in a couple more off-stream #MTGONE quick drafts before they rotate out, this time continuing my experimentation with blue. First one didn&#x27;t go well (only 1 win), but second one paid off and went the distance! A trophy is a pretty good way to end my Quick Draft run!
 
 [View all notes](https://roytang.net/notes)
 
