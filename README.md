@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 9, 2023, 1:54 p.m. ](https://roytang.net/2023/03/db42c73fdcebb963e86f26587ec73b21/): Had no internet at home from around 11am yesterday and it was restored today at around 1pm. Kudos to Globe actually for getting someone out here the day after I reported the problem to their CS messenger bot. (And to the crew for not making me wait all afternoon) The problem was some loose connection outside our house. Their comms could be improved though. The SMS I got yesterday just said someone will &quot;reach out to me&quot;, I had to call this morning to confirm we&#x27;re getting a site visit. Losing internet for 24h felt forever though. A sign of
 - [March 9, 2023, 5:21 a.m. ](https://roytang.net/2023/03/109989755992755585/): @ajroach42 I like that they have RSS feeds for each user&#x27;s reviews, that already makes them kind of federated
 - [March 8, 2023, 3:23 p.m. ](https://roytang.net/2023/03/1633367807370076161/): Globe internet down in tandang sora? @talk2GLOBE
 - [March 6, 2023, 2:23 p.m. Abbott Elementary S1](https://roytang.net/2023/03/abbott-elementary-s1/): Saw this was on D+ and decided to watch it, since it had garned some Emmy nods a while back. I was kind of expecting a joke-heavy thing, something like B99, but it&#x27;s more like a like-hearted slice of life show with some absurdity sprinkled in. Good for background watching. Strong Modern Family vibes, even has the same mockumentary conceit. This kind of show tends to take a while to ramp up in enjoyment, as you need some time to get attached to the ensemble cast. The first season is short (it came in as a midseason replacement) so I&#x27;m
 - [March 5, 2023, 4:23 a.m. Phyrexia All Will Be One Arena Open](https://roytang.net/2023/03/mtgone-arena-open/): Sigh. Threw some gems away on the Arena Open again, attempts no. 2 and 3. First pool looked decent, but I had some bad misplays that cost me a couple of games, finished 2-3. Second pool had some good rares in shallow colors, I went RW for more consistency, but only went 1-3. Someday we&#x27;ll get there!
-- [March 4, 2023, 2:14 p.m. ](https://roytang.net/2023/03/7ef1524a8832ef0ef67e55622cdfb33c/): &quot;Let your interests be as wide as possible, and let your reactions to the things and persons that interest you be as far as possible friendly rather than hostile.&quot; -- Bertrand Russell (via the Marginalian)
 
 [View all notes](https://roytang.net/notes)
 
