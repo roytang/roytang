@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Love Letters from Letterboxd](https://roytang.net/2023/03/070c00f67c5aad24d23b42c6c499f0c7/)
+- [Pluralistic: End to End (07 Mar 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/03/45bf88ee243e26f8e2ad35385f3c3154/)
 - [Discord, or the Death of Lore « ASCII by Jason Scott](https://roytang.net/2023/03/106e5be2c81fa38d137b8b708989ed81/)
 - [Pluralistic: Solving the Moderator’s Trilemma with Federation (04 Mar 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/03/acc5d0a712e2d804b358f11dc71fe0f0/)
 - [Godot 4.0 sets sail: All aboard for new horizons](https://roytang.net/2023/03/6ba447dfa9d55c7788a587d64d668c90/)
-- [The Bitter End of &quot;Content&quot; - Freddie deBoer](https://roytang.net/2023/03/c36fdd6c627e7b0032c882122bdc30f5/)
-- [A blog post is a very long and complex search query to find fascinating people and make them route interesting stuff to your inbox](https://roytang.net/2023/02/a979d4194bc3d89253958cf61d48699f/)
 
 [View all links](https://roytang.net/links)
 
