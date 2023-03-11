@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 11, 2023, 11:34 p.m. ](https://roytang.net/2023/03/16ed11a1c2d605ea718b501500ee4ed2/): Returning to Monkey Island https://www.twitch.tv/twitchyroy #twitch #gaming
 - [March 10, 2023, 5:56 a.m. MTGONE Draft 7](https://roytang.net/2023/03/mtgone-draft-7/): Did another off-stream draft last night, a premier one this time, spending gold to try to restock my gem balance after the disastrous Arena Open Weekend. It went well, the draft went to 6, so profit~ I actually learned a lot from the quick drafts I think, I wouldn&#x27;t have been sure how to draft this kind of RG deck before. Was tempted to do a second one but (a) didn&#x27;t have time; and (b) let&#x27;s not push our luck (or our gem total!)
 - [March 9, 2023, 1:54 p.m. ](https://roytang.net/2023/03/db42c73fdcebb963e86f26587ec73b21/): Had no internet at home from around 11am yesterday and it was restored today at around 1pm. Kudos to Globe actually for getting someone out here the day after I reported the problem to their CS messenger bot. (And to the crew for not making me wait all afternoon) The problem was some loose connection outside our house. Their comms could be improved though. The SMS I got yesterday just said someone will &quot;reach out to me&quot;, I had to call this morning to confirm we&#x27;re getting a site visit. Losing internet for 24h felt forever though. A sign of
 - [March 9, 2023, 5:21 a.m. ](https://roytang.net/2023/03/109989755992755585/): @ajroach42 I like that they have RSS feeds for each user&#x27;s reviews, that already makes them kind of federated
 - [March 8, 2023, 3:23 p.m. ](https://roytang.net/2023/03/1633367807370076161/): Globe internet down in tandang sora? @talk2GLOBE
-- [March 6, 2023, 2:23 p.m. Abbott Elementary S1](https://roytang.net/2023/03/abbott-elementary-s1/): Saw this was on D+ and decided to watch it, since it had garned some Emmy nods a while back. I was kind of expecting a joke-heavy thing, something like B99, but it&#x27;s more like a like-hearted slice of life show with some absurdity sprinkled in. Good for background watching. Strong Modern Family vibes, even has the same mockumentary conceit. This kind of show tends to take a while to ramp up in enjoyment, as you need some time to get attached to the ensemble cast. The first season is short (it came in as a midseason replacement) so I&#x27;m
 
 [View all notes](https://roytang.net/notes)
 
