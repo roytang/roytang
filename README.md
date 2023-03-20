@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 11](https://roytang.net/2023/03/2023-week-11/)
 - [2023 Week 10](https://roytang.net/2023/03/2023-week-10/)
 - [Four Thousand Weeks by Oliver Burkeman](https://roytang.net/2023/03/four-thousand-weeks/)
 - [2023 Week 09](https://roytang.net/2023/03/2023-week-09/)
 - [2023 Week 08](https://roytang.net/2023/02/2023-week-08/)
-- [Managing Your Workload](https://roytang.net/2023/02/workload-management/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -27,10 +27,10 @@ Latest shared links:
 Latest notes:
 
 - [March 20, 2023, 2:10 p.m. ](https://roytang.net/2023/03/1637698113766035456/): @Cardboard_Crack TIL goyf prices have tanked
+- [March 20, 2023, 1:04 p.m. Junk Shop](https://roytang.net/2023/03/junk-shop/): I&#x27;m always amused by this sign whenever I walk past this storefront. (Name translates loosely to &quot;Buying circuit breaker junk shop&quot;)
 - [March 18, 2023, 9:59 p.m. Movies: Shazam! Fury of the Gods (2023)](https://roytang.net/2023/03/shazam-fury-of-the-gods-2023/): A fun little superhero movie, kinda predictable. Gave me some Thor the Dark World vibes for some reason.
 - [March 18, 2023, 8:01 p.m. ](https://roytang.net/2023/03/2801096b607edc401d391b981204d14e/): Random Saturday night #MTGONE drafting https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena [22:14] This one didn&#x27;t go so well.YT: https://www.youtube.com/watch?v=TUZ6zBLXaHg (Click photos to view full-size)
 - [March 18, 2023, 7:59 a.m. ](https://roytang.net/2023/03/110041337831166542/): @maya I can appreciate why such features can be too much for the average casual reader of a personal website who are unlikely to ever click through to category/topic pages. But I think they are great for the site author to be able to look back and view his own site content filtered through a particular lens, especially if your site has a lot of old content. I would never give them up!
-- [March 18, 2023, 12:41 a.m. ](https://roytang.net/2023/03/110039615706097996/): What happens to old sites? They decay. Their maintainers lose interest or forget about them. Their software eventually falls out of date. They break. Eventually, they stop paying the server and domain bills, and the site goes dark. The Wayback Machine saves some, but not all, never the moving parts of a site, and often incompletely. Realize now, this will happen to every site you use and love today. The internet is not kind to old tech and information, even when it&#x27;s still perfectly good. Old memes, old communities, old shows, bands, games, their days are all numbered. Entropy rules
 
 [View all notes](https://roytang.net/notes)
 
