@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [More like everyone else – Baty.net](https://roytang.net/2023/03/c5a4f5ddb49e609cfd987e10162ccb38/)
+- [My first love | The Garden](https://roytang.net/2023/03/0cc072edb5d00f82932a16be58e7f415/)
 - [Design notes on the 2023 Wikipedia redesign](https://roytang.net/2023/03/e04a869c422cbba509e9dadd74462f36/)
 - [BASES LOADED by kindanice](https://roytang.net/2023/03/a8f1cea9deb7c40b4b6cee6066ea8cdf/)
 - [The Special Way Commander Riker Sits Down | The Mary Sue](https://roytang.net/2023/03/71fc44f7097104d075944182bb1f474b/)
-- [Love Letters from Letterboxd](https://roytang.net/2023/03/070c00f67c5aad24d23b42c6c499f0c7/)
-- [Pluralistic: End to End (07 Mar 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/03/45bf88ee243e26f8e2ad35385f3c3154/)
 
 [View all links](https://roytang.net/links)
 
