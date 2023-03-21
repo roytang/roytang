@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How blogs shaped the web | Chase McCoy](https://roytang.net/2023/03/32cf933bb5b4ac42ab1fd434c1bcae70/)
+- [Why I Decided Not to Do Emrakul, and How We Shipped It Anyway](https://roytang.net/2023/03/8c254e39516c2c5098156eef71721a1f/)
 - [More like everyone else – Baty.net](https://roytang.net/2023/03/c5a4f5ddb49e609cfd987e10162ccb38/)
 - [My first love | The Garden](https://roytang.net/2023/03/0cc072edb5d00f82932a16be58e7f415/)
 - [Design notes on the 2023 Wikipedia redesign](https://roytang.net/2023/03/e04a869c422cbba509e9dadd74462f36/)
-- [BASES LOADED by kindanice](https://roytang.net/2023/03/a8f1cea9deb7c40b4b6cee6066ea8cdf/)
-- [The Special Way Commander Riker Sits Down | The Mary Sue](https://roytang.net/2023/03/71fc44f7097104d075944182bb1f474b/)
 
 [View all links](https://roytang.net/links)
 
