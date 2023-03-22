@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Web fingerprinting is worse than I thought - Bitestring&#x27;s Blog](https://roytang.net/2023/03/39ca81aad09c78b6f71fa351ca1a6bb1/)
 - [How blogs shaped the web | Chase McCoy](https://roytang.net/2023/03/32cf933bb5b4ac42ab1fd434c1bcae70/)
 - [Why I Decided Not to Do Emrakul, and How We Shipped It Anyway](https://roytang.net/2023/03/8c254e39516c2c5098156eef71721a1f/)
 - [More like everyone else – Baty.net](https://roytang.net/2023/03/c5a4f5ddb49e609cfd987e10162ccb38/)
 - [My first love | The Garden](https://roytang.net/2023/03/0cc072edb5d00f82932a16be58e7f415/)
-- [Design notes on the 2023 Wikipedia redesign](https://roytang.net/2023/03/e04a869c422cbba509e9dadd74462f36/)
 
 [View all links](https://roytang.net/links)
 
