@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 23, 2023, 1:44 p.m. Arena Mythic March 2023](https://roytang.net/2023/03/c570a3599955dc065f47de15cb5e9b1c/): Managed to hit Mythic in #MagicArena after a long drought (last time was way back in August!), right before I leave town and need to be away from Arena for a few days [13:48] I was running Esper Legends in Standard, it&#x27;s a fun deck! And current Standard is actually a bit fun, despite the prevalence of Fable (Click photos to view full-size)
 - [March 20, 2023, 2:10 p.m. ](https://roytang.net/2023/03/1637698113766035456/): @Cardboard_Crack TIL goyf prices have tanked
 - [March 20, 2023, 1:04 p.m. Junk Shop](https://roytang.net/2023/03/junk-shop/): I&#x27;m always amused by this sign whenever I walk past this storefront. (Name translates loosely to &quot;Buying circuit breaker junk shop&quot;)
 - [March 18, 2023, 9:59 p.m. Movies: Shazam! Fury of the Gods (2023)](https://roytang.net/2023/03/shazam-fury-of-the-gods-2023/): A fun little superhero movie, kinda predictable. Gave me some Thor the Dark World vibes for some reason.
 - [March 18, 2023, 8:01 p.m. ](https://roytang.net/2023/03/2801096b607edc401d391b981204d14e/): Random Saturday night #MTGONE drafting https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena [22:14] This one didn&#x27;t go so well.YT: https://www.youtube.com/watch?v=TUZ6zBLXaHg (Click photos to view full-size)
-- [March 18, 2023, 7:59 a.m. ](https://roytang.net/2023/03/110041337831166542/): @maya I can appreciate why such features can be too much for the average casual reader of a personal website who are unlikely to ever click through to category/topic pages. But I think they are great for the site author to be able to look back and view his own site content filtered through a particular lens, especially if your site has a lot of old content. I would never give them up!
 
 [View all notes](https://roytang.net/notes)
 
