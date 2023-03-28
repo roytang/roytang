@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 28, 2023, 8:38 p.m. ](https://roytang.net/2023/03/1640694759743209472/): I am super annoyed by new Tweetdeck. Might be enough to just make me quit Twitter entirely lol
+- [March 28, 2023, 8:36 p.m. Movies: John Wick: Chapter 4 (2023)](https://roytang.net/2023/03/john-wick-chapter-4-2023/): My friends asked me how this movie was and I was like &quot;It meets expectations. You kind of imagine what a new John Wick movie would be like, and this is exactly that.&quot; Great action sequences as usual. One of the characters I had no idea why he was in the script at all, didn&#x27;t seem like he added anything of interest.While I did enjoy the film, I do think the whole John Wick saga went on a bit too long, and each additional entry, while entertaining, will just never have as much bang as the previous entries, so I&#x27;m
+- [March 28, 2023, 8:33 p.m. Movies: Suzume (2022)](https://roytang.net/2023/03/suzume-2022/): Some friends wanted to watch this in the cinema so I went with them. I hadn&#x27;t seen a lot of Makoto Shinkai before. I&#x27;ve seen 5cms/second and know a bit about Your name by reputation, so I was expecting something similar to either of those, which I am willing to sit through, but not really the sort of thing I&#x27;m super into.My expectations were broken. I ended up greatly enjoying this film. It had a lot more action than I expected, the animation was fantastic, and the script and plot were very clever and had the sort of timey-wimey shenanigans
 - [March 26, 2023, 7:48 a.m. ](https://roytang.net/2023/03/110086593483186476/): I finally got back to a 70k weekly step count after a long while! (Click photos to view full-size)
 - [March 24, 2023, 5:17 a.m. ](https://roytang.net/2023/03/1639013551343026176/): Ugh, did they roll out a new version of Tweetdeck? Not only do I dislike this change, I&#x27;m worried about EM being aware of Tweetdeck lol
-- [March 23, 2023, 1:44 p.m. Arena Mythic March 2023](https://roytang.net/2023/03/c570a3599955dc065f47de15cb5e9b1c/): Managed to hit Mythic in #MagicArena after a long drought (last time was way back in August!), right before I leave town and need to be away from Arena for a few days I was running Esper Legends in Standard, it&#x27;s a fun deck! And current Standard is actually a bit fun, despite the prevalence of Fable
-- [March 20, 2023, 2:10 p.m. ](https://roytang.net/2023/03/1637698113766035456/): @Cardboard_Crack TIL goyf prices have tanked
-- [March 20, 2023, 1:04 p.m. Junk Shop](https://roytang.net/2023/03/junk-shop/): I&#x27;m always amused by this sign whenever I walk past this storefront. (Name translates loosely to &quot;Buying circuit breaker junk shop&quot;)
 
 [View all notes](https://roytang.net/notes)
 
