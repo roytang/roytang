@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 4, 2023, 11:31 a.m. ](https://roytang.net/2023/04/jevk0z1/): Lots of online discussions from the past 20 years about to be lost forever. They should at least consider seeding the forum database as a torrent or something so that it exists somewhere
 - [April 4, 2023, 10:15 a.m. ](https://roytang.net/2023/04/1643074751517319169/): Finally managed to hit Infinite on #MarvelSnap, an hour before the season ends! @_@ (Click photos to view full-size)
 - [March 31, 2023, 4:28 p.m. Popquiz: Last Woman Standing](https://roytang.net/2023/03/popquiz-lastwoman/): Last night we attended the first PopQuiz for the year. And CRUSHED IT! Rounds were: TV and Streaming - 9pts (x2 for successful ace) Personalities - 6pts Video and Board Games - 2pts (lol) Movies - 7pts (x2 for powerup) Literature - 3pts Music - 6pts They had a new &quot;Hail Mary&quot; mechanic, where you could replace your lowest scoring round with your score from an extra enumeration question (noted as &quot;HM5&quot; - 5 pts in the attached image), but only if your team ordered a certain amount of food and drinks from the resto. Boo, pay to win! (We
 - [March 29, 2023, 2:59 p.m. Airport Sketches](https://roytang.net/2023/03/cd8166166ec16a64ba0888383e19c435/): Travelling by air again means an inordinate amount of time waiting at airports, so I passed the time with some sketching/doodling. I didn&#x27;t have an actual sketchbook handy, so a ruled notebook had to do.
 - [March 28, 2023, 8:38 p.m. ](https://roytang.net/2023/03/1640694759743209472/): I am super annoyed by new Tweetdeck. Might be enough to just make me quit Twitter entirely lol
-- [March 27, 2023, 10:01 p.m. ](https://roytang.net/2023/03/6421a1a9d9f38c4addde3e5c/): (@Changi Terminal 4)
 
 [View all notes](https://roytang.net/notes)
 
