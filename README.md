@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Software Multiverse | brillient](https://roytang.net/2023/04/3728405de2d29c7ef52d9e80a9b35ffc/)
 - [The age of average — Alex Murrell](https://roytang.net/2023/04/c8018bca091ca3605c0bc37620a27e4d/)
 - [GRID WORLD by Alexander Miller](https://roytang.net/2023/04/ee85e3913067bbd4d6628f2f728918c3/)
 - [Book Publishers Won’t Stop Until Libraries Are Dead](https://roytang.net/2023/04/62cabdb7923716370713efdfcce12ed0/)
 - [Amazing Portrait Art Created on Old Manual Typewriters](https://roytang.net/2023/04/d64fdf9f505be69736a1c7f907034484/)
-- [Time Control](https://roytang.net/2023/04/e6d2d55b5661511cb1e608fbfcec18c5/)
 
 [View all links](https://roytang.net/links)
 
