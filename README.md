@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 8, 2023, 11:51 p.m. ](https://roytang.net/2023/04/1644729724760117248/): 4/4. Be a good assistant to yourself. Prepare and gather, make notations and sketches in your head or phone. When you work, all that mapping, architecture, research &amp; preparation will be your past self giving a gift to the future self that you are now. That is the sacred.
 - [April 8, 2023, 11:40 a.m. ](https://roytang.net/2023/04/1644545657720680448/): @rocketkeis hbd!
 - [April 8, 2023, 11:38 a.m. Movies: Murder Mystery 2 (2023)](https://roytang.net/2023/04/murder-mystery-2-2023/): Needed a light film to watch in the background, settled on this one from NF recommendations. I have almost no memory of what happened in the first film.Sandler and Aniston&#x27;s characters are now bumbling amateur detectives who rapidly stumble into happening to solve a kidnapping (and several murders). The humor is about what you&#x27;d expect for this kind of movie.It reminds me of Rush Hour 3 for some reason, but that might just be because they also went to Paris (and that is the only detail I remember from Rush Hour 3)Film is entertaining enough as popcorn fare that you
 - [April 7, 2023, 10:40 p.m. Gartic Phone](https://roytang.net/2023/04/gartic-phone/): Discord Activities were free today, so Trivia Team tried out this game called &quot;Gartic Phone&quot;. It&#x27;s like a strange mix of pictionary and telephone/pass the message. I always like how my drawings come out in this kind of game! (Click through the GIFs to view them animated)
 - [April 7, 2023, 5:40 p.m. Good Friday Procession](https://roytang.net/2023/04/good-friday-procession/): 
-- [April 6, 2023, 11:47 p.m. Movies: Moneyball (2011)](https://roytang.net/2023/04/moneyball-2011/): My mom said she tried to watch some Brad Pitt film about sports but found it boring because there was so much talking. I realized later that she was referring to this film and decided to finally watch it.It&#x27;s pretty good! It&#x27;s a film about sports, but not really a sports film. And also a film about trying out new things and challenging industry preconceptions. The pacing and shots and how the pivotal moments in the team&#x27;s season are portrayed are all well-executed.Definitely the sort of film for my mom though.
 
 [View all notes](https://roytang.net/notes)
 
