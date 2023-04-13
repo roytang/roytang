@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 13, 2023, 8:47 p.m. Movies: Dungeons &amp; Dragons: Honor Among Thieves (2023)](https://roytang.net/2023/04/dungeons-dragons-honor-among-thieves-2023/): This was so good. Fresh, fun and witty adventure, and so many references for those familiar with the source material. I liked the Paladin and the Druid, but all the characters are quite good and reasonably fleshed out and likeable and the performances are pretty good. This is what I wish MCU movies could be like since Endgame.
 - [April 12, 2023, 11:38 a.m. Explorer Metagame Challenge](https://roytang.net/2023/04/explorer-metagame-challenge/): Did a few runs on the Explorer Metagame challenge on Arena with a couple of different decks: Run 1: 2 wins (-500 gold +1 pack) Creativity Run 2: 4 wins (+500 gold +5 packs) Rogues Run 3: 2 wins (-500 gold +1 pack) Rogues Run 4: 3 wins (+0 gold +3 packs) Rogues So total record was 11 wins, 4 losses, -500 gold, +10 packs. Explorer is a fun and varied format but wow I had forgotten how long BO3 games tend to play. Each of these runs took longer than a typical Premier Draft, even though I never went
 - [April 12, 2023, 7:22 a.m. ](https://roytang.net/2023/04/1645930230555754496/): Pulled a pretty sweet mystery variant from the inbox! #MarvelSnap (Click photos to view full-size)
 - [April 11, 2023, 11:55 p.m. Marvels Teaser Trailer](https://roytang.net/2023/04/c55d8812fc4abbad2f45c1afb484aa23/): https://www.youtube.com/watch?v=iuk77TjvfmE Okay, I know the MCU films haven&#x27;t been super good lately, but this trailer and the GOTG3 ones have been quite good, so I&#x27;m hoping for some good ones!
 - [April 11, 2023, 10:04 p.m. ](https://roytang.net/2023/04/12ikvom/): Posted on r/Philippines: Survey: How old were you when you first started taking public transpo by yourself? What was it like?
-- [April 11, 2023, 12:18 a.m. Movies: Extraction (2020)](https://roytang.net/2023/04/extraction-2020/): Wanted an action film to watch while doing other stuff, this was a pretty good choice. Was honestly a bit bored at the start but then they had this insanely long set of action sequences that look like they were all a single shot (I found out later that they weren&#x27;t, but still pretty impressive) and I started paying attention.The plot isn&#x27;t much to speak about, but the action sequences are pretty good and Hemsworth gives a pretty decent performance actually. Not bad, will probably give the sequel a shot.
 
 [View all notes](https://roytang.net/notes)
 
