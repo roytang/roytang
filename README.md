@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How to Grow Up: Nick Cave’s Life-Advice to a 13-Year-Old – The Marginalian](https://roytang.net/2023/04/d197cab138a69328ad2708399bf6a108/)
 - [Outside | Brandon Sanderson](https://roytang.net/2023/04/4ea237e38e959deef116b86844edf925/)
 - [How to Learn to Draw Anything - by Lian Cho](https://roytang.net/2023/04/864e36d6a0d2502a269b98bb0f2ce94c/)
 - [Rank Things](https://roytang.net/2023/04/6bb14c88171a2287a94441951551b315/)
 - [in a way, this is how it should be - by Brian Feldman](https://roytang.net/2023/04/efa3ac4011b6796a77b75a2c8a91907f/)
-- [Kottke.org Is 25 Years Old Today and I’m Going to Write About It](https://roytang.net/2023/04/312e8d56a905c1e11babe78cdf7b2c06/)
 
 [View all links](https://roytang.net/links)
 
