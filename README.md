@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 30, 2023, 12:58 p.m. ](https://roytang.net/2023/04/3eadcd965f50bf77050d504402a31667/): Tapping out early of Ludum Dare 53. Was underprepared and lost too much time brainstorming and struggling with Godot 4 and physics issues etc. All I have is throwing the pineapple: https://www.youtube.com/watch?v=p9ElbNuGqZY Might be worth a blog post later. #ldjam
 - [April 28, 2023, 2:08 p.m. Friday afternoon MTGMOM drafting](https://roytang.net/2023/04/9e7a844a48603ec5c429133eab420d1c/): https://twitch.tv/twitchyroy #twitch #mtgmom #mtg #magicarena
 - [April 26, 2023, 8:09 p.m. ](https://roytang.net/2023/04/1651196904439689218/): #MTGArenaStats email for #MTGONE dropped. Also, I think I&#x27;ll start compiling these into a table somewhere, so I can compare across sets etc (Click photos to view full-size)
 - [April 26, 2023, 8:08 p.m. ](https://roytang.net/2023/04/1651196435097088000/): Extremely basic U/W deck got me to 3-0 in midweek magic #MTGMOM sealed on #MagicArena Honestly didn&#x27;t even look at the other rares after seeing the 2x Boon-Bringer Valkyrie lol (Click photos to view full-size)
 - [April 25, 2023, 9:35 p.m. ](https://roytang.net/2023/04/110259713332391400/): @wynlim modern family
-- [April 22, 2023, 9:17 p.m. Star Trek Picard S3](https://roytang.net/2023/04/picard-s3/): This is the final season for Star Trek: Picard and hopefully the last great adventure for Admiral Jean-Luc Picard, we all know he has earned a rest! I liked this season, probably more than seasons 1 or 2, mainly because I was a big fan of TNG - I watched a bit of it back in the 90s but was only able to binge all of it around 2015 I think. This season reunites Admiral Picard with his old crew as they discover a Secret Invasion-style conspiracy within Starfleet that leads them to face off against one of Picard&#x27;s greatest
 
 [View all notes](https://roytang.net/notes)
 
