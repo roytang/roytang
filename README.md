@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Complete Marvel Run part 4: Thor v1 (1966) and others](https://roytang.net/2023/05/marvel-run-4-thor-etc/)
 - [2023 Week 17](https://roytang.net/2023/04/2023-week-17/)
 - [Games: Death&#x27;s Door](https://roytang.net/2023/04/deaths-door/)
 - [2023 Week 16](https://roytang.net/2023/04/2023-week-16/)
 - [Good Enough For Now](https://roytang.net/2023/04/good-enough/)
-- [2023 Week 15](https://roytang.net/2023/04/2023-week-15/)
 
 [View all posts](https://roytang.net/blog)
 
