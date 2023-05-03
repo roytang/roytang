@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Internet Isn&#x27;t Meant To Be So Small | Defector](https://roytang.net/2023/05/c42a7e6a126f181610173e32ca1c3a95/)
 - [Erin Kissane - Blue skies over Mastodon](https://roytang.net/2023/05/07f2f0850fc298be9b0b8d28bda164b9/)
 - [(Youtube) The History of Super Mario Bros 3 100% World Records](https://roytang.net/2023/04/98534e14aa11bfe1156281599c75cf27/)
 - [Space Elevator](https://roytang.net/2023/04/f07eba4251afd6de947146bdce835766/)
 - [Imgur is banning porn and purging old anonymous uploads - The Verge](https://roytang.net/2023/04/4409b39ac3748f18bd9d91fa728ad2f2/)
-- [&quot;the secret list of websites&quot; - Chris Coyier](https://roytang.net/2023/04/fa7c9091e21128f2ae33239a026b2c36/)
 
 [View all links](https://roytang.net/links)
 
