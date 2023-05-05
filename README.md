@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [(Youtube) Star Wars by Wes Anderson](https://roytang.net/2023/05/2b9a3fc8eb845e8130d7d1950a51a23c/)
+- [Do we misremember Eternal September? Kevin Driscoll / University of virginia – Flow](https://roytang.net/2023/05/5dfd4c3d34da6f2540d0fdf384712eb3/)
+- [We&#x27;re Living in a Scroll-and Swipe Doom Loop Culture](https://roytang.net/2023/05/76b9e430a6da3f404a146464d40c65b5/)
 - [The Internet Isn&#x27;t Meant To Be So Small | Defector](https://roytang.net/2023/05/c42a7e6a126f181610173e32ca1c3a95/)
 - [Erin Kissane - Blue skies over Mastodon](https://roytang.net/2023/05/07f2f0850fc298be9b0b8d28bda164b9/)
-- [(Youtube) The History of Super Mario Bros 3 100% World Records](https://roytang.net/2023/04/98534e14aa11bfe1156281599c75cf27/)
-- [Space Elevator](https://roytang.net/2023/04/f07eba4251afd6de947146bdce835766/)
-- [Imgur is banning porn and purging old anonymous uploads - The Verge](https://roytang.net/2023/04/4409b39ac3748f18bd9d91fa728ad2f2/)
 
 [View all links](https://roytang.net/links)
 
