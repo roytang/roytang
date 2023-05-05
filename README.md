@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [(Youtube) Designing &#x27;MARVEL SNAP&#x27;](https://roytang.net/2023/05/74a9006634453b123e2cdbb6791f7d7c/)
 - [(Youtube) Star Wars by Wes Anderson](https://roytang.net/2023/05/2b9a3fc8eb845e8130d7d1950a51a23c/)
 - [Do we misremember Eternal September? Kevin Driscoll / University of virginia – Flow](https://roytang.net/2023/05/5dfd4c3d34da6f2540d0fdf384712eb3/)
 - [We&#x27;re Living in a Scroll-and Swipe Doom Loop Culture](https://roytang.net/2023/05/76b9e430a6da3f404a146464d40c65b5/)
 - [The Internet Isn&#x27;t Meant To Be So Small | Defector](https://roytang.net/2023/05/c42a7e6a126f181610173e32ca1c3a95/)
-- [Erin Kissane - Blue skies over Mastodon](https://roytang.net/2023/05/07f2f0850fc298be9b0b8d28bda164b9/)
 
 [View all links](https://roytang.net/links)
 
