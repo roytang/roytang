@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [An Anonymous Critic Played Cat and Mouse with Beijing for 12 Years. Then He Got Caught.](https://roytang.net/2023/05/1a9f95aa04e7d03e99949d07906878a6/)
 - [Simple Truths About Personal Websites · Matthias Ott – User Experience Designer](https://roytang.net/2023/05/2f07d0b9eb218d0fd5bf9ab08ebc1550/)
 - [(Youtube) Designing &#x27;MARVEL SNAP&#x27;](https://roytang.net/2023/05/74a9006634453b123e2cdbb6791f7d7c/)
 - [(Youtube) Star Wars by Wes Anderson](https://roytang.net/2023/05/2b9a3fc8eb845e8130d7d1950a51a23c/)
 - [Do we misremember Eternal September? Kevin Driscoll / University of virginia – Flow](https://roytang.net/2023/05/5dfd4c3d34da6f2540d0fdf384712eb3/)
-- [We&#x27;re Living in a Scroll-and Swipe Doom Loop Culture](https://roytang.net/2023/05/76b9e430a6da3f404a146464d40c65b5/)
 
 [View all links](https://roytang.net/links)
 
