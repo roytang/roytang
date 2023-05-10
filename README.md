@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [what do you want from the internet? - by Brian Feldman](https://roytang.net/2023/05/c30f441e60e856f9ea9232f6b4187175/)
+- [Google AMP: how Google tried to fix the web by taking it over - The Verge](https://roytang.net/2023/05/e1c9e6edf21985f50f63609f47622fce/)
 - [You Will Never Be A Full Stack Developer | Seldo.com](https://roytang.net/2023/05/020385a866f696839f70510f90f2d6e1/)
 - [The web&#x27;s most important decision - The History of the Web](https://roytang.net/2023/05/9570f2db9df142f71b111f10788c3abc/)
 - [An Anonymous Critic Played Cat and Mouse with Beijing for 12 Years. Then He Got Caught.](https://roytang.net/2023/05/1a9f95aa04e7d03e99949d07906878a6/)
-- [Simple Truths About Personal Websites · Matthias Ott – User Experience Designer](https://roytang.net/2023/05/2f07d0b9eb218d0fd5bf9ab08ebc1550/)
-- [(Youtube) Designing &#x27;MARVEL SNAP&#x27;](https://roytang.net/2023/05/74a9006634453b123e2cdbb6791f7d7c/)
 
 [View all links](https://roytang.net/links)
 
