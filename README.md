@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 11, 2023, 7:19 p.m. Final March of the Machine draft day!](https://roytang.net/2023/05/53bd3fb678f3b99d28652d9887328960/): https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena #mtgmom
 - [May 9, 2023, 7:37 p.m. ](https://roytang.net/2023/05/cca4c439685b1fda6d9f49f80cc823ea/): Continuing to be terrible at March of the Machine Quick Drafts https://www.twitch.tv/twitchyroy #mtg #mtgmom #magicarena #twitch [2023-05-10 07:52] Had a good draft day, finally managing to trophy in this limited format! QD7 went to 7-2, while QD8 only went 5-3.YT, part 1: https://www.youtube.com/watch?v=73E5U1s6hy4part 2: https://www.youtube.com/watch?v=HnxpZ7vbDwg (Click photos to view full-size)
 - [May 8, 2023, 11:58 p.m. Cr_KoiFP7wf](https://roytang.net/2023/05/Cr_KoiFP7wf/): Haven&#x27;t been here in a while
 - [May 8, 2023, 3:08 a.m. ](https://roytang.net/2023/05/3bfa2655f1d8bf6a94dc76be69d8d757/): My mom finally finished Jigsaw puzzle no. 2 after 4 months! I didn&#x27;t help a lot with this one after the initial framing. Also, my mom insists the structures on top are ruined buildings, I can&#x27;t convince her they&#x27;re some kind of red rock formations.
 - [May 7, 2023, 12:48 p.m. ](https://roytang.net/2023/05/1655071997142114305/): Make it available im Southeast Asia you cowards Quoted MTG_Arena&#x27;s tweet: MTG Arena is coming to Steam on May 23rd! Visit the link below to get more info and add it to your wishlist. ⚙️ http://spr.ly/6015OwOsd ⚙️ (Click photos to view full-size)
-- [May 6, 2023, 1:38 p.m. Movies: Guardians of the Galaxy Vol. 3 (2023)](https://roytang.net/2023/05/guardians-of-the-galaxy-vol-3-2023/): Feels like this had a darker, more somber and much more emotional tone than the first two films. A very hateable villain, especially for animal lovers. The Guardians crew are at the best they&#x27;ve ever been; the banter and the coordination fighting alongside each other are a testament of how they&#x27;ve grown together as a found family. The films gives a fitting end to the story arcs for most of our Guardians crew.Some plot nitpicks here and there, and my brother though the film was just a tad too long, but nothing too problematic. James Gunn has more or less
 
 [View all notes](https://roytang.net/notes)
 
