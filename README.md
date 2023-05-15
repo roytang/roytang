@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 15, 2023, 1:18 p.m. Movies: Police Story 3: Super Cop (1992)](https://roytang.net/2023/05/police-story-3-super-cop-1992/): Watched this only because I heard young Michelle Yeoh was in it, then realized afterwards that I&#x27;ve never actually seen Police Story 2.It was fine, lots of good fighting and stunts as would be expected. Michelle Yeoh looks so different especially during the earlier scenes; I think if I had seen this blind it might have taken me a while to recognize her. She did great though.I think I like the original Police Story a bit more; like the bus sequences in the third act of the first film were a bit more interesting than the train sequences here. Though
 - [May 12, 2023, 12:14 p.m. ](https://roytang.net/2023/05/110353768772670760/): It&#x27;s time! #zelda #pickups (Click photos to view full-size)
 - [May 11, 2023, 7:19 p.m. Final March of the Machine draft day!](https://roytang.net/2023/05/53bd3fb678f3b99d28652d9887328960/): https://www.twitch.tv/twitchyroy #twitch #mtg #magicarena #mtgmom [2023-05-12 07:02] My final MOM draft day was also my second good draft day, nice to finish on a high note. The two drafts finished with 3 wins and 6 wins respectively. Would&#x27;ve preferred a second trophy, but I&#x27;ll take it!Unfortunately the stream was lagging again this time and YT exports are incomplete.Part 1: https://www.youtube.com/watch?v=0L8WGxn3ppUPart 2: https://www.youtube.com/watch?v=IODASak6Kgw (Click photos to view full-size)
 - [May 9, 2023, 7:37 p.m. ](https://roytang.net/2023/05/cca4c439685b1fda6d9f49f80cc823ea/): Continuing to be terrible at March of the Machine Quick Drafts https://www.twitch.tv/twitchyroy #mtg #mtgmom #magicarena #twitch [2023-05-10 07:52] Had a good draft day, finally managing to trophy in this limited format! QD7 went to 7-2, while QD8 only went 5-3.YT, part 1: https://www.youtube.com/watch?v=73E5U1s6hy4part 2: https://www.youtube.com/watch?v=HnxpZ7vbDwg (Click photos to view full-size)
 - [May 8, 2023, 11:58 p.m. ](https://roytang.net/2023/05/Cr_KoiFP7wf/): Haven&#x27;t been here in a while
-- [May 8, 2023, 3:08 a.m. ](https://roytang.net/2023/05/3bfa2655f1d8bf6a94dc76be69d8d757/): My mom finally finished Jigsaw puzzle no. 2 after 4 months! I didn&#x27;t help a lot with this one after the initial framing. Also, my mom insists the structures on top are ruined buildings, I can&#x27;t convince her they&#x27;re some kind of red rock formations.
 
 [View all notes](https://roytang.net/notes)
 
