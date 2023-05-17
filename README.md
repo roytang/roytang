@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Well-maintained Software | Henrik Warne&#x27;s blog](https://roytang.net/2023/05/98120d36662f22ce5ccb4ac3ee5ae311/)
+- [(Youtube) How Filmmakers Make Cameras Disappear | Mirrors in Movies: Part II](https://roytang.net/2023/05/db65f5be135892a1adb5fac1bcac8c3f/)
+- [How to run a shadow library: operations at Anna’s Archive - Anna’s Blog](https://roytang.net/2023/05/01dcdd7c7a69f165ee4b4a68b4ee34fc/)
 - [what do you want from the internet? - by Brian Feldman](https://roytang.net/2023/05/c30f441e60e856f9ea9232f6b4187175/)
 - [Google AMP: how Google tried to fix the web by taking it over - The Verge](https://roytang.net/2023/05/e1c9e6edf21985f50f63609f47622fce/)
-- [You Will Never Be A Full Stack Developer | Seldo.com](https://roytang.net/2023/05/020385a866f696839f70510f90f2d6e1/)
-- [The web&#x27;s most important decision - The History of the Web](https://roytang.net/2023/05/9570f2db9df142f71b111f10788c3abc/)
-- [An Anonymous Critic Played Cat and Mouse with Beijing for 12 Years. Then He Got Caught.](https://roytang.net/2023/05/1a9f95aa04e7d03e99949d07906878a6/)
 
 [View all links](https://roytang.net/links)
 
