@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 20](https://roytang.net/2023/05/2023-week-20/)
 - [2023 Week 19](https://roytang.net/2023/05/2023-week-19/)
 - [29 NES/Famicom Games I finished as a kid](https://roytang.net/2023/05/nes-games/)
 - [Books: Tomorrow and Tomorrow and Tomorrow by Gabrielle Zevin](https://roytang.net/2023/05/tomorrow3/)
 - [2023 Week 18](https://roytang.net/2023/05/2023-week-18/)
-- [The Complete Marvel Run part 4: Thor v1 (1966) and others](https://roytang.net/2023/05/marvel-run-4-thor-etc/)
 
 [View all posts](https://roytang.net/blog)
 
