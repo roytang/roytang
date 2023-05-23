@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 24, 2023, 6:19 a.m. ](https://roytang.net/2023/05/110420318576923027/): So apprently the Twitter API keys my site uses for automated syndication/cross-posting to twitter have stopped working sometime over the past 24h. No warning or anything. Unsurprising given everything else happening over there I guess. Will give it a few days before I just completely disable the crossposting
 - [May 24, 2023, 5:06 a.m. ](https://roytang.net/2023/05/201785633f773d3b1c8326b641ee5e4a/): Uh-oh, the site couldn&#x27;t load the content to be shown here. Looks like something bad happened on our end, sorry! Try again later?
 - [May 23, 2023, 12:13 p.m. Movies: The Raid (2011)](https://roytang.net/2023/05/the-raid-2011/): Intense and action-packed, great fight scenes
 - [May 22, 2023, 7:20 a.m. ](https://roytang.net/2023/05/1fd9747948ac89ddedf4fc5778d54680/): Finally unboxing this Breath of the Wild amiibo I bought six years ago so I could use it with Tears of the Kingdom. Looks great! #zelda #amiibo #gaming
 - [May 21, 2023, 1:22 p.m. More MOM drafting](https://roytang.net/2023/05/momdrafts/): I&#x27;m not streaming March of the Machine drafts anymore, but I did do some drafting online this past week, in prep for potentially playing in this weekend&#x27;s Arena Open. (Spoiler: I did not end up playing the open.) First up, I actually tried drafting on MTGO! It has been a long while - in fact I have no idea when I last played a game on MTGO, though I do login to check the account occasionally. When I checked my account, I saw that I actually had enough play points to enter a draft league, which I had never done
-- [May 18, 2023, 11:53 p.m. Popquiz: Some Like It Hot](https://roytang.net/2023/05/popquiz-hot/): This was a difficult and low-scoring quiz night at one of the usual haunts. Despite a couple of terrible rounds and a poor choice of joker, we actually managed to finish 1pt away from tying for first! Scores for this game were super close, as is typical with difficult, wide-open nights. Rounds were: Hot Food - 2pts Hot Places - 5pts (x2 for powerup)* Hot People (reality/dating shows) - 4pts Heated Arguments (feuds and rivalries) - 2pts Billboard Hot 100 (bad google translated song lyrics) - 7pts (x2 for successful Ace!) Steamy Scenes - 5pts (Hail Mary) OG Viva Hot
 
 [View all notes](https://roytang.net/notes)
 
