@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [May 24, 2023, 5:06 a.m. ](https://roytang.net/2023/05/201785633f773d3b1c8326b641ee5e4a/): This is a test post, please ignore.
+- [May 24, 2023, 5:06 a.m. ](https://roytang.net/2023/05/201785633f773d3b1c8326b641ee5e4a/): Uh-oh, the site couldn&#x27;t load the content to be shown here. Looks like something bad happened on our end, sorry! Try again later?
 - [May 23, 2023, 12:13 p.m. Movies: The Raid (2011)](https://roytang.net/2023/05/the-raid-2011/): Intense and action-packed, great fight scenes
 - [May 22, 2023, 7:20 a.m. ](https://roytang.net/2023/05/1fd9747948ac89ddedf4fc5778d54680/): Finally unboxing this Breath of the Wild amiibo I bought six years ago so I could use it with Tears of the Kingdom. Looks great! #zelda #amiibo #gaming
 - [May 21, 2023, 1:22 p.m. More MOM drafting](https://roytang.net/2023/05/momdrafts/): I&#x27;m not streaming March of the Machine drafts anymore, but I did do some drafting online this past week, in prep for potentially playing in this weekend&#x27;s Arena Open. (Spoiler: I did not end up playing the open.) First up, I actually tried drafting on MTGO! It has been a long while - in fact I have no idea when I last played a game on MTGO, though I do login to check the account occasionally. When I checked my account, I saw that I actually had enough play points to enter a draft league, which I had never done
