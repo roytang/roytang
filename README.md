@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Example Domain](https://roytang.net/2023/05/995b15d5d117b620fe7363e55566ac04/)
 - [cohost! - &quot;One Year As One Of The Top Competitive Duolingo Players On Earth (I Am Going Out In A Blaze Of Glory)&quot;](https://roytang.net/2023/05/52c890bba3f279b1ebb608f6be2d71cf/)
 - [Well-maintained Software | Henrik Warne&#x27;s blog](https://roytang.net/2023/05/98120d36662f22ce5ccb4ac3ee5ae311/)
 - [(Youtube) How Filmmakers Make Cameras Disappear | Mirrors in Movies: Part II](https://roytang.net/2023/05/db65f5be135892a1adb5fac1bcac8c3f/)
 - [How to run a shadow library: operations at Anna’s Archive - Anna’s Blog](https://roytang.net/2023/05/01dcdd7c7a69f165ee4b4a68b4ee34fc/)
-- [what do you want from the internet? - by Brian Feldman](https://roytang.net/2023/05/c30f441e60e856f9ea9232f6b4187175/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [May 24, 2023, 5:06 a.m. ](https://roytang.net/2023/05/201785633f773d3b1c8326b641ee5e4a/): This is a test post, please ignore.
 - [May 23, 2023, 12:13 p.m. Movies: The Raid (2011)](https://roytang.net/2023/05/the-raid-2011/): Intense and action-packed, great fight scenes
 - [May 22, 2023, 7:20 a.m. ](https://roytang.net/2023/05/1fd9747948ac89ddedf4fc5778d54680/): Finally unboxing this Breath of the Wild amiibo I bought six years ago so I could use it with Tears of the Kingdom. Looks great! #zelda #amiibo #gaming
 - [May 21, 2023, 1:22 p.m. More MOM drafting](https://roytang.net/2023/05/momdrafts/): I&#x27;m not streaming March of the Machine drafts anymore, but I did do some drafting online this past week, in prep for potentially playing in this weekend&#x27;s Arena Open. (Spoiler: I did not end up playing the open.) First up, I actually tried drafting on MTGO! It has been a long while - in fact I have no idea when I last played a game on MTGO, though I do login to check the account occasionally. When I checked my account, I saw that I actually had enough play points to enter a draft league, which I had never done
 - [May 18, 2023, 11:53 p.m. Popquiz: Some Like It Hot](https://roytang.net/2023/05/popquiz-hot/): This was a difficult and low-scoring quiz night at one of the usual haunts. Despite a couple of terrible rounds and a poor choice of joker, we actually managed to finish 1pt away from tying for first! Scores for this game were super close, as is typical with difficult, wide-open nights. Rounds were: Hot Food - 2pts Hot Places - 5pts (x2 for powerup)* Hot People (reality/dating shows) - 4pts Heated Arguments (feuds and rivalries) - 2pts Billboard Hot 100 (bad google translated song lyrics) - 7pts (x2 for successful Ace!) Steamy Scenes - 5pts (Hail Mary) OG Viva Hot
-- [May 15, 2023, 1:18 p.m. Movies: Police Story 3: Super Cop (1992)](https://roytang.net/2023/05/police-story-3-super-cop-1992/): Watched this only because I heard young Michelle Yeoh was in it, then realized afterwards that I&#x27;ve never actually seen Police Story 2.It was fine, lots of good fighting and stunts as would be expected. Michelle Yeoh looks so different especially during the earlier scenes; I think if I had seen this blind it might have taken me a while to recognize her. She did great though.I think I like the original Police Story a bit more; like the bus sequences in the third act of the first film were a bit more interesting than the train sequences here. Though
 
 [View all notes](https://roytang.net/notes)
 
