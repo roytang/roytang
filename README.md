@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 5, 2023, 1:18 a.m. Movies: The Mummy (1999)](https://roytang.net/2023/06/the-mummy-1999/): When I told my friends I&#x27;d never seen this film before they told me it&#x27;s fun so I watched it. It was indeed fun, but not as fun as I&#x27;d hoped and I feel like my expectations were set too high. I think I was expecting more Indiana Jones type hijinx and instead got body horror and cheesy 90s CGI.That being said, still very entertaining; Fraser and Weiss gave good performances that prevented the movie from being too cheesy. I like how the protag starts out rough and a bit belligerent but comes around to show he really cares about
 - [June 1, 2023, 8:41 p.m. ](https://roytang.net/2023/06/19c955ad22a67fda8f9e722d8a4547b2/): &quot;Almost everything will work again if you unplug it for a few minutes — including you.&quot; Anne Lamott
 - [May 25, 2023, 1:13 p.m. Movies: Mystic River (2003)](https://roytang.net/2023/05/mystic-river-2003/): I forget why I added this to my list but wow such a good film with magnificent performances. Sean Penn and Tim Robbins were great in this, and even a lot of the supporting cast were great. A dark and tragic tale of loss and trauma and vengeance and endless cycles of violence
 - [May 24, 2023, 6:19 a.m. ](https://roytang.net/2023/05/110420318576923027/): So apprently the Twitter API keys my site uses for automated syndication/cross-posting to twitter have stopped working sometime over the past 24h. No warning or anything. Unsurprising given everything else happening over there I guess. Will give it a few days before I just completely disable the crossposting
 - [May 23, 2023, 12:13 p.m. Movies: The Raid (2011)](https://roytang.net/2023/05/the-raid-2011/): Intense and action-packed, great fight scenes
-- [May 22, 2023, 7:20 a.m. ](https://roytang.net/2023/05/1fd9747948ac89ddedf4fc5778d54680/): Finally unboxing this Breath of the Wild amiibo I bought six years ago so I could use it with Tears of the Kingdom. Looks great! #zelda #amiibo #gaming
 
 [View all notes](https://roytang.net/notes)
 
