@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Some blogging myths](https://roytang.net/2023/06/d4dcecd6bdc3355e2cab9bf9a30445fb/)
 - [Linear feeds are a dark pattern](https://roytang.net/2023/05/af22bb5eed0fcaecfcfc7cb9a9d6b2f6/)
 - [See your identity pieced together from stolen data - ABC News](https://roytang.net/2023/05/3e2b66eb7226773478a6b0bc014c270f/)
 - [cohost! - &quot;One Year As One Of The Top Competitive Duolingo Players On Earth (I Am Going Out In A Blaze Of Glory)&quot;](https://roytang.net/2023/05/52c890bba3f279b1ebb608f6be2d71cf/)
 - [Well-maintained Software | Henrik Warne&#x27;s blog](https://roytang.net/2023/05/98120d36662f22ce5ccb4ac3ee5ae311/)
-- [(Youtube) How Filmmakers Make Cameras Disappear | Mirrors in Movies: Part II](https://roytang.net/2023/05/db65f5be135892a1adb5fac1bcac8c3f/)
 
 [View all links](https://roytang.net/links)
 
