@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Flash S9: RIP Arrowverse](https://roytang.net/2023/06/rip-arrowverse/)
 - [2023 Week 22](https://roytang.net/2023/06/2023-week-22/)
 - [You Can Write About Anything](https://roytang.net/2023/06/write-anything/)
 - [2023 Week 21](https://roytang.net/2023/05/2023-week-21/)
 - [Complete Marvel Run: Jason Aaron&#x27;s Thor, Avengers, and War of the Realms](https://roytang.net/2023/05/comics-aaron-thor-avengers-realms/)
-- [2023 Week 20](https://roytang.net/2023/05/2023-week-20/)
 
 [View all posts](https://roytang.net/blog)
 
