@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [3DS Games Part 1](https://roytang.net/2023/06/3ds-games/)
 - [2023 Week 23](https://roytang.net/2023/06/2023-week-23/)
 - [Flash S9: RIP Arrowverse](https://roytang.net/2023/06/rip-arrowverse/)
 - [2023 Week 22](https://roytang.net/2023/06/2023-week-22/)
 - [You Can Write About Anything](https://roytang.net/2023/06/write-anything/)
-- [2023 Week 21](https://roytang.net/2023/05/2023-week-21/)
 
 [View all posts](https://roytang.net/blog)
 
