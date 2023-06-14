@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [My March of the Machine Limited Recap](https://roytang.net/2023/06/mtgmom-limited-recap/)
 - [3DS Games Part 1](https://roytang.net/2023/06/3ds-games/)
 - [2023 Week 23](https://roytang.net/2023/06/2023-week-23/)
 - [Flash S9: RIP Arrowverse](https://roytang.net/2023/06/rip-arrowverse/)
 - [2023 Week 22](https://roytang.net/2023/06/2023-week-22/)
-- [You Can Write About Anything](https://roytang.net/2023/06/write-anything/)
 
 [View all posts](https://roytang.net/blog)
 
