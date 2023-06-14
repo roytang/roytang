@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [posting is charity - by Brian Feldman - BNet](https://roytang.net/2023/06/5cb6dbe0d01f22d2bf6d365847600292/)
 - [interview with a household manager for rich people — Ask a Manager](https://roytang.net/2023/06/983c6f3c660c78ec15c82f1b9f5e8b4a/)
 - [100 Little Ideas · Collab Fund](https://roytang.net/2023/06/2defcae7d10b3bae3fe805fdd0142b70/)
 - [Everything Must Be Paid for Twice](https://roytang.net/2023/06/be76697ec7170ae16147abc5a7802144/)
 - [Chase Your Reading - by Robin Hanson - Overcoming Bias](https://roytang.net/2023/06/9d64922878a8671a5b803a6562d6fb7b/)
-- [Some blogging myths](https://roytang.net/2023/06/d4dcecd6bdc3355e2cab9bf9a30445fb/)
 
 [View all links](https://roytang.net/links)
 
