@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Comic: Goodnight Phone](https://roytang.net/2023/06/ad829f1a06b05a054b01cee15a4cecfe/)
 - [The Last Page Of The Internet | Defector](https://roytang.net/2023/06/682211bba597179be557e51238030615/)
 - [Why did the #TwitterMigration fail? – Café Lob-On](https://roytang.net/2023/06/856e263a91d8dfde02ad4706beb42b3a/)
 - [(Youtube) Fastest Rubik&#x27;s cube 3x3 WR (3.13) sec WORLD RECORD](https://roytang.net/2023/06/27cf5f4e308e46d30762aedc0dd9e800/)
 - [posting is charity - by Brian Feldman - BNet](https://roytang.net/2023/06/5cb6dbe0d01f22d2bf6d365847600292/)
-- [interview with a household manager for rich people — Ask a Manager](https://roytang.net/2023/06/983c6f3c660c78ec15c82f1b9f5e8b4a/)
 
 [View all links](https://roytang.net/links)
 
