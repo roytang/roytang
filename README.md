@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Bloomberg - A Belgian Lesson in Taming the Automobile](https://roytang.net/2023/06/362dfa1b48044aced1d012c3440846cd/)
+- [AI is killing the old web, and the new web struggles to be born - The Verge](https://roytang.net/2023/06/bf1a5970a70ac4c1162d4dda5b1106cb/)
+- [Dense Discovery – Issue 243](https://roytang.net/2023/06/1b0c556cb6a63a76d17830e170b13ac8/)
 - [Comic: Goodnight Phone](https://roytang.net/2023/06/ad829f1a06b05a054b01cee15a4cecfe/)
 - [The Last Page Of The Internet | Defector](https://roytang.net/2023/06/682211bba597179be557e51238030615/)
-- [Why did the #TwitterMigration fail? – Café Lob-On](https://roytang.net/2023/06/856e263a91d8dfde02ad4706beb42b3a/)
-- [(Youtube) Fastest Rubik&#x27;s cube 3x3 WR (3.13) sec WORLD RECORD](https://roytang.net/2023/06/27cf5f4e308e46d30762aedc0dd9e800/)
-- [posting is charity - by Brian Feldman - BNet](https://roytang.net/2023/06/5cb6dbe0d01f22d2bf6d365847600292/)
 
 [View all links](https://roytang.net/links)
 
