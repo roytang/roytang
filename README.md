@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [(Youtube) The Undertaker and Mick Foley watch iconic Hell in a Cell Match: WWE Playback](https://roytang.net/2023/07/782a2f2a1ca649de42fa59ca428ae7bb/)
+- [Word Solitaire](https://roytang.net/2023/07/82cf85ebaf5084e989d6ec7ccf7ecafd/)
 - [How Google Reader died — and why the web misses it more than ever - The Verge](https://roytang.net/2023/07/103571fbc5fa8fc7dd081e4bb88b1e50/)
 - [Bloomberg - A Belgian Lesson in Taming the Automobile](https://roytang.net/2023/06/362dfa1b48044aced1d012c3440846cd/)
 - [AI is killing the old web, and the new web struggles to be born - The Verge](https://roytang.net/2023/06/bf1a5970a70ac4c1162d4dda5b1106cb/)
-- [Dense Discovery – Issue 243](https://roytang.net/2023/06/1b0c556cb6a63a76d17830e170b13ac8/)
-- [Comic: Goodnight Phone](https://roytang.net/2023/06/ad829f1a06b05a054b01cee15a4cecfe/)
 
 [View all links](https://roytang.net/links)
 
