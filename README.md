@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 26 This Too Shall Pass](https://roytang.net/2023/07/2023-week-26/)
 - [2023 Week 25](https://roytang.net/2023/06/2023-week-25/)
 - [3DS Games Part 2](https://roytang.net/2023/06/3ds-games-2/)
 - [2023 Week 24](https://roytang.net/2023/06/2023-week-24/)
 - [Books: Pyramids by Terry Pratchett (Discworld #7)](https://roytang.net/2023/06/pyramids/)
-- [My March of the Machine Limited Recap](https://roytang.net/2023/06/mtgmom-limited-recap/)
 
 [View all posts](https://roytang.net/blog)
 
