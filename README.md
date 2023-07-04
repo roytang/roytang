@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [/u/spez is right about feudalism and that&#x27;s why reddit as we know it is doomed | maya.land](https://roytang.net/2023/07/0196cce311bd1a6bf709baca909838d5/)
+- [I was Russell Crowe&#x27;s stooge](https://roytang.net/2023/07/8a60f0c7e8969189f7add81c92cd9c7c/)
+- [Reddit, Twitter, Mastodon: where are we all supposed to go now? - The Verge](https://roytang.net/2023/07/cecc199270fd9445a76b3233531462ed/)
 - [(Youtube) The Undertaker and Mick Foley watch iconic Hell in a Cell Match: WWE Playback](https://roytang.net/2023/07/782a2f2a1ca649de42fa59ca428ae7bb/)
 - [Word Solitaire](https://roytang.net/2023/07/82cf85ebaf5084e989d6ec7ccf7ecafd/)
-- [How Google Reader died — and why the web misses it more than ever - The Verge](https://roytang.net/2023/07/103571fbc5fa8fc7dd081e4bb88b1e50/)
-- [Bloomberg - A Belgian Lesson in Taming the Automobile](https://roytang.net/2023/06/362dfa1b48044aced1d012c3440846cd/)
-- [AI is killing the old web, and the new web struggles to be born - The Verge](https://roytang.net/2023/06/bf1a5970a70ac4c1162d4dda5b1106cb/)
 
 [View all links](https://roytang.net/links)
 
