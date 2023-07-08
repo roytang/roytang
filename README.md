@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Three Lies of Capitalism](https://roytang.net/2023/07/3c061f0abe4183d3701682702ca883cc/)
+- [Talk to people. – Jakob Greenfeld – Experiments in Permissionless Entrepreneurship](https://roytang.net/2023/07/c5c69b8aaf00720f8efad802ecea32cf/)
+- [XML is the future - Bite code!](https://roytang.net/2023/07/d4b6c1be98217e1a70b4d56d91abba6a/)
 - [/u/spez is right about feudalism and that&#x27;s why reddit as we know it is doomed | maya.land](https://roytang.net/2023/07/0196cce311bd1a6bf709baca909838d5/)
 - [I was Russell Crowe&#x27;s stooge](https://roytang.net/2023/07/8a60f0c7e8969189f7add81c92cd9c7c/)
-- [Reddit, Twitter, Mastodon: where are we all supposed to go now? - The Verge](https://roytang.net/2023/07/cecc199270fd9445a76b3233531462ed/)
-- [(Youtube) The Undertaker and Mick Foley watch iconic Hell in a Cell Match: WWE Playback](https://roytang.net/2023/07/782a2f2a1ca649de42fa59ca428ae7bb/)
-- [Word Solitaire](https://roytang.net/2023/07/82cf85ebaf5084e989d6ec7ccf7ecafd/)
 
 [View all links](https://roytang.net/links)
 
