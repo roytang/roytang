@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 27](https://roytang.net/2023/07/2023-week-27/)
 - [Rings of Power + LOTR trilogy rewatch](https://roytang.net/2023/07/rop-lotr/)
 - [The Legend of Zelda: Tears of the Kingdom](https://roytang.net/2023/07/totk/)
 - [2023 Week 26 This Too Shall Pass](https://roytang.net/2023/07/2023-week-26/)
 - [2023 Week 25](https://roytang.net/2023/06/2023-week-25/)
-- [3DS Games Part 2](https://roytang.net/2023/06/3ds-games-2/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -37,9 +37,9 @@ Latest notes:
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/3c/da/3cda657c471879c3cfa81b898b810cd6.jpg)
-- ![](https://roytang.net/media/cache/a2/60/a260eacc913ee7c542024b154923702f.jpg)
-- ![](https://roytang.net/media/cache/e0/88/e0888b7f7a1e342aba8cced2a0784cc4.jpg)
+- ![](https://roytang.net/media/cache/a6/91/a691e8e5ea3ce73099ba719c9d195dca.jpg)
+- ![](https://roytang.net/media/cache/6a/6a/6a6a50c5debd7b0864f953d27d218c9f.jpg)
+- ![](https://roytang.net/media/cache/7a/d4/7ad4e6def8147d6f83590eb62ebf33e6.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
