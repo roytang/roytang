@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Reader&#x27;s Digest](https://roytang.net/2023/07/readers-digest/)
 - [As Long as There Is Love There Will Be Grief by Heidi Priebe](https://roytang.net/2023/07/as-long-as-there-is-love/)
 - [2023 Week 27](https://roytang.net/2023/07/2023-week-27/)
 - [Rings of Power + LOTR trilogy rewatch](https://roytang.net/2023/07/rop-lotr/)
 - [The Legend of Zelda: Tears of the Kingdom](https://roytang.net/2023/07/totk/)
-- [2023 Week 26 This Too Shall Pass](https://roytang.net/2023/07/2023-week-26/)
 
 [View all posts](https://roytang.net/blog)
 
