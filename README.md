@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [(Archived tweet) In 1990, the windshield of British Airways Flight 5390 came off at an altitude of 17,000 feet](https://roytang.net/2023/07/264209af488b4beac863b8ba75033a8d/)
+- [(Thread) Behind the scenes stories from Superman II (1980)](https://roytang.net/2023/07/a10765b5ea25d06f6b839f5c0e82a496/)
+- [(Thread) Why debating the willfully ignorant is a fool&#x27;s errand](https://roytang.net/2023/07/2d57b8dfc5ddd1a89afd4e73dbe4373e/)
+- [Pour Out Lesser Ideas to Get to Great Ones](https://roytang.net/2023/07/8318e6e30f5d713f740d6e6641f265e3/)
 - [Boredom is a pit stop - Austin Kleon](https://roytang.net/2023/07/c54737a33b402d5e8a8e3129671eb5ae/)
-- [The Three Lies of Capitalism](https://roytang.net/2023/07/3c061f0abe4183d3701682702ca883cc/)
-- [Talk to people. – Jakob Greenfeld – Experiments in Permissionless Entrepreneurship](https://roytang.net/2023/07/c5c69b8aaf00720f8efad802ecea32cf/)
-- [XML is the future - Bite code!](https://roytang.net/2023/07/d4b6c1be98217e1a70b4d56d91abba6a/)
-- [/u/spez is right about feudalism and that&#x27;s why reddit as we know it is doomed | maya.land](https://roytang.net/2023/07/0196cce311bd1a6bf709baca909838d5/)
 
 [View all links](https://roytang.net/links)
 
