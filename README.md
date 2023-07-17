@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Wiby - Search Engine for the Classic Web](https://roytang.net/2023/07/d00f0c0098ec07f928fe529da6290398/)
+- [I Was Wrong About Mastodon - Marcus Hutchins @ EscapingTech](https://roytang.net/2023/07/8325b2170977cb8c2dd3e98c5c08527c/)
 - [(Archived tweet) In 1990, the windshield of British Airways Flight 5390 came off at an altitude of 17,000 feet](https://roytang.net/2023/07/264209af488b4beac863b8ba75033a8d/)
 - [(Thread) Behind the scenes stories from Superman II (1980)](https://roytang.net/2023/07/a10765b5ea25d06f6b839f5c0e82a496/)
 - [(Thread) Why debating the willfully ignorant is a fool&#x27;s errand](https://roytang.net/2023/07/2d57b8dfc5ddd1a89afd4e73dbe4373e/)
-- [Pour Out Lesser Ideas to Get to Great Ones](https://roytang.net/2023/07/8318e6e30f5d713f740d6e6641f265e3/)
-- [Boredom is a pit stop - Austin Kleon](https://roytang.net/2023/07/c54737a33b402d5e8a8e3129671eb5ae/)
 
 [View all links](https://roytang.net/links)
 
