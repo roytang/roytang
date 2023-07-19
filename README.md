@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [Read Something Wonderful](https://roytang.net/2023/07/cde3db89e9485e2868339a839e1daebc/)
-- [(Archived thread) Why modern movies use CGI for things that don&#x27;t need to be CGI](https://roytang.net/2023/07/c8386ad44f78d01b3d88573f2adee8da/)
-- [Broadsheet - by Chase McCoy](https://roytang.net/2023/07/51b638c18df821e84b338eb293b26174/)
-- [Wiby - Search Engine for the Classic Web](https://roytang.net/2023/07/d00f0c0098ec07f928fe529da6290398/)
-- [I Was Wrong About Mastodon - Marcus Hutchins @ EscapingTech](https://roytang.net/2023/07/8325b2170977cb8c2dd3e98c5c08527c/)
+- [‘The Simpsons’ Is Good Again](https://roytang.net/2023/07/ee1c21678ac675e55358a155d6b2fe59/)
+- [(Youtube) Analyzing the Aiming in Zelda TOTK](https://roytang.net/2023/07/9a13144c5c5ca378f3f656c0cc57b127/)
+- [Publish Your Drafts - Max Countryman](https://roytang.net/2023/07/00ce5783cc96181c57b5419018bb379e/)
+- [Think your thoughts – Adam Keys is typing](https://roytang.net/2023/07/9edeed81b87918c8883e71494a27e0fd/)
+- [The Anti-Capitalist Web - Jim Nielsen’s Blog](https://roytang.net/2023/07/e9de9bf3b99947ea3596da1ce9c18a98/)
 
 [View all links](https://roytang.net/links)
 
