@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Government Bureaucracy Rants](https://roytang.net/2023/07/bureaucracy/)
 - [2023 Week 28](https://roytang.net/2023/07/2023-week-28/)
 - [TV: The Blacklist](https://roytang.net/2023/07/the-blacklist/)
 - [Books: Moving Pictures by Terry Pratchett (Discworld #10)](https://roytang.net/2023/07/moving-pictures/)
 - [Reader&#x27;s Digest](https://roytang.net/2023/07/readers-digest/)
-- [As Long as There Is Love There Will Be Grief by Heidi Priebe](https://roytang.net/2023/07/as-long-as-there-is-love/)
 
 [View all posts](https://roytang.net/blog)
 
