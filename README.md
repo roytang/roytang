@@ -6,21 +6,21 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 29](https://roytang.net/2023/07/2023-week-29/)
 - [Government Bureaucracy Rants](https://roytang.net/2023/07/bureaucracy/)
 - [2023 Week 28](https://roytang.net/2023/07/2023-week-28/)
 - [TV: The Blacklist](https://roytang.net/2023/07/the-blacklist/)
 - [Books: Moving Pictures by Terry Pratchett (Discworld #10)](https://roytang.net/2023/07/moving-pictures/)
-- [Reader&#x27;s Digest](https://roytang.net/2023/07/readers-digest/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
+- [(Youtube) &quot;Bring Me To Life&quot; by Evanescence [OTAMATONE COVER]](https://roytang.net/2023/07/0285f90fb93bb21773c0199ac5d21ecb/)
 - [‘The Simpsons’ Is Good Again](https://roytang.net/2023/07/ee1c21678ac675e55358a155d6b2fe59/)
 - [(Youtube) Analyzing the Aiming in Zelda TOTK](https://roytang.net/2023/07/9a13144c5c5ca378f3f656c0cc57b127/)
 - [Publish Your Drafts - Max Countryman](https://roytang.net/2023/07/00ce5783cc96181c57b5419018bb379e/)
 - [Think your thoughts – Adam Keys is typing](https://roytang.net/2023/07/9edeed81b87918c8883e71494a27e0fd/)
-- [The Anti-Capitalist Web - Jim Nielsen’s Blog](https://roytang.net/2023/07/e9de9bf3b99947ea3596da1ce9c18a98/)
 
 [View all links](https://roytang.net/links)
 
