@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 25, 2023, 1:18 a.m. ](https://roytang.net/2023/07/110770201417191771/): What does it mean when something is called a &quot;zero interest rate phenomenon&quot;?
 - [July 25, 2023, 12:43 a.m. Movies: Soul (2020)](https://roytang.net/2023/07/soul-2020/): Watched the first half of this with my niece about a month ago and finally decided to finish it today. I had zero idea what this film was about and thought it would be about jazz and music and such, but it turned out to be about life and death and living and inspiration and purpose. It&#x27;s okay and the ending is kinda sweet but it feels a bit average for a Pixar film.
 - [July 25, 2023, 12:42 a.m. Movies: Puss in Boots: The Last Wish (2022)](https://roytang.net/2023/07/puss-in-boots-the-last-wish-2022/): Watched the first half of this with my niece a couple of months ago, finally decided to finish it today. Kind of by-the-numbers plot, but it&#x27;s a fun adventure with clever adaptations of classic fairy tales (as we&#x27;ve come to expect from the Shrek franchise) + some truly vibrant, fantastic and unique animations that more than make up for it.
 - [July 24, 2023, 12:51 p.m. ](https://roytang.net/2023/07/110767260944923128/): Read non-fiction to raise your floor.Read fiction to raise your ceiling. via Eric Stromberg (https://twitter.com/ericstromberg/status/1257032975738384385)
 - [July 23, 2023, 11:55 p.m. ](https://roytang.net/2023/07/110764212717451306/): @fury I started to write a response with some suggestions, but then thought it might be better as a blog post lol some quick thoughts though: - if you&#x27;re having trouble putting thoughts into words, it might just be a matter of practice and you might want to just dive into it without thinking too much about getting things perfect or expressing yourself well, just write and get the practice in [23:56] https://indieweb.social/@fury&quot; class=&quot;u-url mention&quot;&gt;@fury - a lot of the &quot;work&quot; in blogging happens even before you sit down to write. for me i often let ideas collect and simmer
-- [July 23, 2023, 5:21 p.m. ](https://roytang.net/2023/07/110762663445495965/): Strange New Worlds x Lower Decks was so good! Looking forward to the new Lower Decks season in September! #startrek #tv
 
 [View all notes](https://roytang.net/notes)
 
