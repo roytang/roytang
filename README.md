@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [My jeans’ metadata may outlive the company that sold them – Eric Bailey](https://roytang.net/2023/07/e07e1f64bceb7e4c5b7b2714a7211224/)
 - [(Youtube) &quot;Bring Me To Life&quot; by Evanescence [OTAMATONE COVER]](https://roytang.net/2023/07/0285f90fb93bb21773c0199ac5d21ecb/)
 - [‘The Simpsons’ Is Good Again](https://roytang.net/2023/07/ee1c21678ac675e55358a155d6b2fe59/)
 - [(Youtube) Analyzing the Aiming in Zelda TOTK](https://roytang.net/2023/07/9a13144c5c5ca378f3f656c0cc57b127/)
 - [Publish Your Drafts - Max Countryman](https://roytang.net/2023/07/00ce5783cc96181c57b5419018bb379e/)
-- [Think your thoughts – Adam Keys is typing](https://roytang.net/2023/07/9edeed81b87918c8883e71494a27e0fd/)
 
 [View all links](https://roytang.net/links)
 
