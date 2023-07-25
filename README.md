@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Baloney Detection Kit: Carl Sagan’s Rules for Bullshit-Busting and Critical Thinking – The Marginalian](https://roytang.net/2023/07/50ee01f3f8af1b2f53f93fb54991dd0d/)
 - [My jeans’ metadata may outlive the company that sold them – Eric Bailey](https://roytang.net/2023/07/e07e1f64bceb7e4c5b7b2714a7211224/)
 - [(Youtube) &quot;Bring Me To Life&quot; by Evanescence [OTAMATONE COVER]](https://roytang.net/2023/07/0285f90fb93bb21773c0199ac5d21ecb/)
 - [‘The Simpsons’ Is Good Again](https://roytang.net/2023/07/ee1c21678ac675e55358a155d6b2fe59/)
 - [(Youtube) Analyzing the Aiming in Zelda TOTK](https://roytang.net/2023/07/9a13144c5c5ca378f3f656c0cc57b127/)
-- [Publish Your Drafts - Max Countryman](https://roytang.net/2023/07/00ce5783cc96181c57b5419018bb379e/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [July 26, 2023, 12:06 a.m. ](https://roytang.net/2023/07/110775579997807543/): Two years ago, July 26, 2021: Hidlyn Diaz wins first Olympic gold medal for the PH Yesterday, July 25, 2023: Filipinas get their first win in the FIFA Women&#x27;s World Cup, the first ever win for the PH in the world cup, male or female #sports #philippines
 - [July 25, 2023, 11:38 p.m. ](https://roytang.net/2023/07/110775469763067461/): When I saw the streets being painted with different colors I thought it was some late pride month thing, turns out it was just capitalism (Click photos to view full-size)
 - [July 25, 2023, 1:18 a.m. ](https://roytang.net/2023/07/110770201417191771/): What does it mean when something is called a &quot;zero interest rate phenomenon&quot;?
 - [July 25, 2023, 12:43 a.m. Movies: Soul (2020)](https://roytang.net/2023/07/soul-2020/): Watched the first half of this with my niece about a month ago and finally decided to finish it today. I had zero idea what this film was about and thought it would be about jazz and music and such, but it turned out to be about life and death and living and inspiration and purpose. It&#x27;s okay and the ending is kinda sweet but it feels a bit average for a Pixar film.
 - [July 25, 2023, 12:42 a.m. Movies: Puss in Boots: The Last Wish (2022)](https://roytang.net/2023/07/puss-in-boots-the-last-wish-2022/): Watched the first half of this with my niece a couple of months ago, finally decided to finish it today. Kind of by-the-numbers plot, but it&#x27;s a fun adventure with clever adaptations of classic fairy tales (as we&#x27;ve come to expect from the Shrek franchise) + some truly vibrant, fantastic and unique animations that more than make up for it.
-- [July 24, 2023, 12:51 p.m. ](https://roytang.net/2023/07/110767260944923128/): Read non-fiction to raise your floor.Read fiction to raise your ceiling. via Eric Stromberg (https://twitter.com/ericstromberg/status/1257032975738384385)
 
 [View all notes](https://roytang.net/notes)
 
