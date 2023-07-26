@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Reading Well - by Simon Sarris - The Map is Mostly Water](https://roytang.net/2023/07/fd8cb089a26f1b32a248dc3243d5ad97/)
 - [The Baloney Detection Kit: Carl Sagan’s Rules for Bullshit-Busting and Critical Thinking – The Marginalian](https://roytang.net/2023/07/50ee01f3f8af1b2f53f93fb54991dd0d/)
 - [My jeans’ metadata may outlive the company that sold them – Eric Bailey](https://roytang.net/2023/07/e07e1f64bceb7e4c5b7b2714a7211224/)
 - [(Youtube) &quot;Bring Me To Life&quot; by Evanescence [OTAMATONE COVER]](https://roytang.net/2023/07/0285f90fb93bb21773c0199ac5d21ecb/)
 - [‘The Simpsons’ Is Good Again](https://roytang.net/2023/07/ee1c21678ac675e55358a155d6b2fe59/)
-- [(Youtube) Analyzing the Aiming in Zelda TOTK](https://roytang.net/2023/07/9a13144c5c5ca378f3f656c0cc57b127/)
 
 [View all links](https://roytang.net/links)
 
