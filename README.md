@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Apple already shipped attestation on the web, and we barely noticed | HTTP Toolkit](https://roytang.net/2023/07/9ea62a16628867654a586ef475f8a13f/)
 - [Nobody cares about your blog.](https://roytang.net/2023/07/b0eac77ddc8f199bafbedf52c302ad52/)
 - [Reading Well - by Simon Sarris - The Map is Mostly Water](https://roytang.net/2023/07/fd8cb089a26f1b32a248dc3243d5ad97/)
 - [The Baloney Detection Kit: Carl Sagan’s Rules for Bullshit-Busting and Critical Thinking – The Marginalian](https://roytang.net/2023/07/50ee01f3f8af1b2f53f93fb54991dd0d/)
 - [My jeans’ metadata may outlive the company that sold them – Eric Bailey](https://roytang.net/2023/07/e07e1f64bceb7e4c5b7b2714a7211224/)
-- [(Youtube) &quot;Bring Me To Life&quot; by Evanescence [OTAMATONE COVER]](https://roytang.net/2023/07/0285f90fb93bb21773c0199ac5d21ecb/)
 
 [View all links](https://roytang.net/links)
 
