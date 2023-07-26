@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Manga Update](https://roytang.net/2023/07/2023-manga-update/)
 - [State of the Nation 2023](https://roytang.net/2023/07/sona2023/)
 - [2023 Week 29](https://roytang.net/2023/07/2023-week-29/)
 - [Government Bureaucracy Rants](https://roytang.net/2023/07/bureaucracy/)
 - [2023 Week 28](https://roytang.net/2023/07/2023-week-28/)
-- [TV: The Blacklist](https://roytang.net/2023/07/the-blacklist/)
 
 [View all posts](https://roytang.net/blog)
 
