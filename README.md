@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Mastodon is easy and fun except when it isn’t - Erin Kissane&#x27;s small internet website](https://roytang.net/2023/07/3478c664be69b1945a29291edc915ecc/)
 - [How to Write a Book in Three Days: Lessons from Michael Moorcock | Wet Asphalt](https://roytang.net/2023/07/eec1788aebc3b6813198e58fafe0c314/)
 - [How to build a better search engine than Google - The Verge](https://roytang.net/2023/07/55a6d7c6ccbf988971306990d4a59cbf/)
 - [Apple already shipped attestation on the web, and we barely noticed | HTTP Toolkit](https://roytang.net/2023/07/9ea62a16628867654a586ef475f8a13f/)
 - [Nobody cares about your blog.](https://roytang.net/2023/07/b0eac77ddc8f199bafbedf52c302ad52/)
-- [Reading Well - by Simon Sarris - The Map is Mostly Water](https://roytang.net/2023/07/fd8cb089a26f1b32a248dc3243d5ad97/)
 
 [View all links](https://roytang.net/links)
 
