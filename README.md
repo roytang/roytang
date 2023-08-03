@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 3, 2023, 7:09 p.m. ](https://roytang.net/2023/08/110825372228487230/): @jepoy where did you buy it from?
 - [July 28, 2023, 3:05 p.m. PopQuiz 7th Anniversary: The Last Seven Years](https://roytang.net/2023/07/popquiz-seven-years-later/): Last night (Thursday) was PQ&#x27;s 7th anniversary quiz; each round features pop culture questions from one of the past seven years (or two years for the pandemic). This quiz also had a gimmick where for each question, the teams would vote (by raising some cards) whether the question should be about &quot;Movies&quot;, &quot;TV/Streaming&quot;, &quot;Music&quot; or &quot;People, Events and Things&quot; of the appropriate era. We could have done better if only people didn&#x27;t keep choosing Music lol Rounds were: 2016 - 5pts 2017 - 5pts 2018 - 2pts 2019 - 6pts (x2 for power-up) 2020-2021 (pandemic years) - 6pts 2022-present -
 - [July 26, 2023, 12:06 a.m. ](https://roytang.net/2023/07/110775579997807543/): Two years ago, July 26, 2021: Hidlyn Diaz wins first Olympic gold medal for the PH Yesterday, July 25, 2023: Filipinas get their first win in the FIFA Women&#x27;s World Cup, the first ever win for the PH in the world cup, male or female #sports #philippines
 - [July 25, 2023, 11:38 p.m. ](https://roytang.net/2023/07/110775469763067461/): When I saw the streets being painted with different colors I thought it was some late pride month thing, turns out it was just capitalism (Click photos to view full-size)
 - [July 25, 2023, 1:18 a.m. ](https://roytang.net/2023/07/110770201417191771/): What does it mean when something is called a &quot;zero interest rate phenomenon&quot;?
-- [July 25, 2023, 12:43 a.m. Movies: Soul (2020)](https://roytang.net/2023/07/soul-2020/): Watched the first half of this with my niece about a month ago and finally decided to finish it today. I had zero idea what this film was about and thought it would be about jazz and music and such, but it turned out to be about life and death and living and inspiration and purpose. It&#x27;s okay and the ending is kinda sweet but it feels a bit average for a Pixar film.
 
 [View all notes](https://roytang.net/notes)
 
