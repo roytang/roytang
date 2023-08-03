@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Whence and Whither the Web: Some Thoughts on Reclaim Open](https://roytang.net/2023/08/f6ceb255c2cde8d946326c175b04eb37/)
 - [Just normal web things.](https://roytang.net/2023/08/145ff2230330ac3328c9f36850553d0e/)
 - [Internet Search Tips · Gwern.net](https://roytang.net/2023/08/1607beb5099150df73199f8183db7e80/)
 - [Splitting the Web](https://roytang.net/2023/08/ed5cdf776d460e011e03be003771a56a/)
 - [Mastodon is easy and fun except when it isn’t - Erin Kissane&#x27;s small internet website](https://roytang.net/2023/07/3478c664be69b1945a29291edc915ecc/)
-- [How to Write a Book in Three Days: Lessons from Michael Moorcock | Wet Asphalt](https://roytang.net/2023/07/eec1788aebc3b6813198e58fafe0c314/)
 
 [View all links](https://roytang.net/links)
 
