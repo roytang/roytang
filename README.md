@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 31](https://roytang.net/2023/08/2023-week-31/)
 - [What To Do When Your Phone Is Stolen](https://roytang.net/2023/08/what-do-phone-stolen/)
 - [2023 Week 30](https://roytang.net/2023/07/2023-week-30/)
 - [Books: Gideon the Ninth by Tamsyn Muir](https://roytang.net/2023/07/gideon-the-ninth/)
 - [My Phone Was Stolen](https://roytang.net/2023/07/stolen-phone/)
-- [TV: Secret Invasion](https://roytang.net/2023/07/secret-invasion-tv/)
 
 [View all posts](https://roytang.net/blog)
 
