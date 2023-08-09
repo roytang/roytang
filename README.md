@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Some tactics for writing in public](https://roytang.net/2023/08/dcc9683a0a33424126f87191801bdf46/)
 - [Patrick Weaver - A Blog Post With Every HTML Element](https://roytang.net/2023/08/f5b8b9c807981e6e9d6fb0f0b9fadbf7/)
 - [Whence and Whither the Web: Some Thoughts on Reclaim Open](https://roytang.net/2023/08/f6ceb255c2cde8d946326c175b04eb37/)
 - [Just normal web things.](https://roytang.net/2023/08/145ff2230330ac3328c9f36850553d0e/)
 - [Internet Search Tips · Gwern.net](https://roytang.net/2023/08/1607beb5099150df73199f8183db7e80/)
-- [Splitting the Web](https://roytang.net/2023/08/ed5cdf776d460e011e03be003771a56a/)
 
 [View all links](https://roytang.net/links)
 
