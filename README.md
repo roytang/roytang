@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Pulling my site from Google over AI training – Tracy Durnell](https://roytang.net/2023/08/5cb26f2dec3191c908cf8322eafd6d92/)
 - [The Word “Outrage” Technically Doesn’t Include “Out” or “Rage” – Useless Etymology](https://roytang.net/2023/08/adb8b43a3062e3a92f59bf195925ec20/)
 - [Don’t check the clock! 15 ways to get back to sleep when you wake at 3am | Sleep | The Guardian](https://roytang.net/2023/08/ff81f35a456eb439860f79ac25d7693b/)
 - [Learn In Public](https://roytang.net/2023/08/bd0c28edfbdf8a64c1fa81540af2a1cc/)
 - [Some tactics for writing in public](https://roytang.net/2023/08/dcc9683a0a33424126f87191801bdf46/)
-- [Patrick Weaver - A Blog Post With Every HTML Element](https://roytang.net/2023/08/f5b8b9c807981e6e9d6fb0f0b9fadbf7/)
 
 [View all links](https://roytang.net/links)
 
