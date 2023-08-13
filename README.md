@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Word “Outrage” Technically Doesn’t Include “Out” or “Rage” – Useless Etymology](https://roytang.net/2023/08/adb8b43a3062e3a92f59bf195925ec20/)
+- [Don’t check the clock! 15 ways to get back to sleep when you wake at 3am | Sleep | The Guardian](https://roytang.net/2023/08/ff81f35a456eb439860f79ac25d7693b/)
+- [Learn In Public](https://roytang.net/2023/08/bd0c28edfbdf8a64c1fa81540af2a1cc/)
 - [Some tactics for writing in public](https://roytang.net/2023/08/dcc9683a0a33424126f87191801bdf46/)
 - [Patrick Weaver - A Blog Post With Every HTML Element](https://roytang.net/2023/08/f5b8b9c807981e6e9d6fb0f0b9fadbf7/)
-- [Whence and Whither the Web: Some Thoughts on Reclaim Open](https://roytang.net/2023/08/f6ceb255c2cde8d946326c175b04eb37/)
-- [Just normal web things.](https://roytang.net/2023/08/145ff2230330ac3328c9f36850553d0e/)
-- [Internet Search Tips · Gwern.net](https://roytang.net/2023/08/1607beb5099150df73199f8183db7e80/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
-- [Aug. 19, 2023, 11:14 p.m. Geekfight: Shun the Nonbeliever](https://roytang.net/2023/08/geekfight-nonbeliever/): We attended the first game of the new Geekfight league at Moon Rabbit. The theme was &quot;myths and magic&quot; and it was a very challenging low-scoring game. Weapons and Artifacts - 3pts (x2 for joker) Spellcraft - 3pts Creatures and Constructs - 2pts Stage Magicians - 2pts Pantheons - 5pts Wielders of Magic - 5pts We counted 23pts total for us, but they had us at 25pts. There were a couple of questions where I thought they didn&#x27;t count our answer because it wasn&#x27;t exactly what was asked, but I guess they counted it? We ended up tied for 2nd
 - [Aug. 12, 2023, 12:01 a.m. ](https://roytang.net/2023/08/jvqwiz5/): Wait, dont you just sort by upgradeable and the upgradeable one will be at the top of the list?
 - [Aug. 11, 2023, 10:04 p.m. ](https://roytang.net/2023/08/15o9ubc/): Posted on r/MarvelUnlimited: West Coast Avengers #83-88 Are they not on the app or I’m just bad at searching? Why would they be missing? There were also 3 earlier nonsequential issues listed under “Avengers West Coast” which was also annoying
 - [Aug. 10, 2023, 11:44 p.m. ](https://roytang.net/2023/08/jvll02q/): I think they should introduce a new paper-accurate format that is &quot;all the paper cards in arena&quot;, including the fetches and cards like counterspell and lightning bolt. It would be wild. Also, it would have the added benefit of cutting off all the whining about &quot;Alchemy in Historic&quot; (people would just find something new to whine about, but at least it would be new!)
 - [Aug. 10, 2023, 9:11 p.m. Movies: Hidden Strike (2023)](https://roytang.net/2023/08/hidden-strike-2023/): Kinda fun, and Cena and Jacky have a bit of chemistry going but the plot is all over the place and I don&#x27;t even think they accomplished anything of use in the end? (except maybe vengeance?)
+- [Aug. 9, 2023, 11:14 p.m. Geekfight: Shun the Nonbeliever](https://roytang.net/2023/08/geekfight-nonbeliever/): We attended the first game of the new Geekfight league at Moon Rabbit. The theme was &quot;myths and magic&quot; and it was a very challenging low-scoring game. Weapons and Artifacts - 3pts (x2 for joker) Spellcraft - 3pts Creatures and Constructs - 2pts Stage Magicians - 2pts Pantheons - 5pts Wielders of Magic - 5pts We counted 23pts total for us, but they had us at 25pts. There were a couple of questions where I thought they didn&#x27;t count our answer because it wasn&#x27;t exactly what was asked, but I guess they counted it? We ended up tied for 2nd
 
 [View all notes](https://roytang.net/notes)
 
