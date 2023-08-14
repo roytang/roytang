@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Kurt Vonnegut and farting around](https://roytang.net/2023/08/vonnegut/)
 - [2023 Week 32](https://roytang.net/2023/08/2023-week-32/)
 - [Strange New Worlds S2](https://roytang.net/2023/08/strange-new-worlds-s2/)
 - [Forty Five](https://roytang.net/2023/08/forty-five/)
 - [2023 Week 31](https://roytang.net/2023/08/2023-week-31/)
-- [What To Do When Your Phone Is Stolen](https://roytang.net/2023/08/what-do-phone-stolen/)
 
 [View all posts](https://roytang.net/blog)
 
