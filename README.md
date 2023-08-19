@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [My Lord of the Rings Tales of Middle Earth Limited Recap](https://roytang.net/2023/08/mtgltr-limited-recap/)
 - [Stolen Phone Post Mortem](https://roytang.net/2023/08/stolen-phone-post-mortem/)
 - [How to Read a Blog](https://roytang.net/2023/08/reading-blogs/)
 - [Kurt Vonnegut and farting around](https://roytang.net/2023/08/vonnegut/)
 - [2023 Week 32](https://roytang.net/2023/08/2023-week-32/)
-- [Strange New Worlds S2](https://roytang.net/2023/08/strange-new-worlds-s2/)
 
 [View all posts](https://roytang.net/blog)
 
