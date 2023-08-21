@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 21, 2023, 11:58 p.m. Movies: Young Frankenstein (1974)](https://roytang.net/2023/08/young-frankenstein-1974/): My dad wanted to see this so I ended up watching it too. I remember seeing bits and pieces of this from when I was young, like the lead wanting his last name to be pronounced differently. There are a lot of wink wink bawdy jokes that I wouldn&#x27;t have gotten as a kid though. Good for a few laughs. The monster was Everybody Loves Raymond&#x27;s dad!
 - [Aug. 19, 2023, 4:15 p.m. ](https://roytang.net/2023/08/110915282758385711/): @mtgtriviabot ej hajjaj
 - [Aug. 18, 2023, 7:19 p.m. ](https://roytang.net/2023/08/110910344421724356/): @mtgtriviabot Putrid Imp
 - [Aug. 16, 2023, 11:19 p.m. GeekFight: Hobby Stadium Select!](https://roytang.net/2023/08/geekfight-select/): Pokemon - 0pts Wrestling - 1pt Magic the Gathering - 7pts (x2 for joker!) NBA - 5pts Harry Potter - 4/5pts (not sure) One Piece - 6pts I originally didn&#x27;t want to go to this one because the categories seemed quite hard, as evidenced by our terrible first two rounds, but somehow we managed to stage a comeback and to finish tied for first place at 31pts! Event Page
 - [Aug. 15, 2023, 11:34 p.m. Movies: Heart of Stone (2023)](https://roytang.net/2023/08/heart-of-stone-2023/): My mom&#x27;s review: I didn&#x27;t really understand, but I liked the action. Gal Gadot is so good! (I think she meant the character is hypercompetent.)The film obviously goes for the Mission Impossible vibe with the action sequences and set pieces, though the story here is a bit like the opposite of Dead Reckoning. The plot here was a bit rough around the edges but the action was good and I enjoyed it more than I thought I would. And honestly, I think Gal Gadot&#x27;s acting is starting to get a bit better.
-- [Aug. 12, 2023, 12:01 a.m. ](https://roytang.net/2023/08/jvqwiz5/): Wait, dont you just sort by upgradeable and the upgradeable one will be at the top of the list?
 
 [View all notes](https://roytang.net/notes)
 
