@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [New Phone Loadout](https://roytang.net/2023/08/new-phone-loadout/)
 - [2023 Week 33](https://roytang.net/2023/08/2023-week-33/)
 - [My Lord of the Rings Tales of Middle Earth Limited Recap](https://roytang.net/2023/08/mtgltr-limited-recap/)
 - [Stolen Phone Post Mortem](https://roytang.net/2023/08/stolen-phone-post-mortem/)
 - [How to Read a Blog](https://roytang.net/2023/08/reading-blogs/)
-- [Kurt Vonnegut and farting around](https://roytang.net/2023/08/vonnegut/)
 
 [View all posts](https://roytang.net/blog)
 
