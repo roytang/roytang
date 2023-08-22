@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The ideal viewport doesn’t exist](https://roytang.net/2023/08/54324b2735bca9c136d8d263547ee446/)
 - [Why Bill Watterson Vanished](https://roytang.net/2023/08/8b2c44d667570e31f6b73b860f0f7a95/)
 - [Winnie Lim » what does it mean to live well](https://roytang.net/2023/08/f388274d38c0a59e23c69b16bcef89f8/)
 - [“We’re All Just Temporarily Abled” - Jim Nielsen’s Blog](https://roytang.net/2023/08/2330dd9decd18acd685c3c72473fcdf7/)
 - [My Reading Philosophy in 17 Guidelines – Tracy Durnell](https://roytang.net/2023/08/9230b482363a4f62e9a3c8eca9e5806c/)
-- [Pulling my site from Google over AI training – Tracy Durnell](https://roytang.net/2023/08/5cb26f2dec3191c908cf8322eafd6d92/)
 
 [View all links](https://roytang.net/links)
 
