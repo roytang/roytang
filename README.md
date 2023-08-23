@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 23, 2023, 3:09 p.m. ](https://roytang.net/2023/08/110937674859658795/): @mtgtriviabot firemane angel
 - [Aug. 23, 2023, 1:09 a.m. ](https://roytang.net/2023/08/110934372688142808/): @jk this is already how the web works
 - [Aug. 23, 2023, 12:34 a.m. Movies: Street Kings (2008)](https://roytang.net/2023/08/street-kings-2008/): Watched this one just because it was in the NF top 10. Action and suspense were fine, but it&#x27;s hard to be supportive or sympathetic towards the protags when everyone is a dirty cop. Mastermind was kind of obvious early on. House and Sgt Jeffords are here!
 - [Aug. 22, 2023, 12:56 a.m. ](https://roytang.net/2023/08/15xd8r5/): Posted on r/comicbooks: I&#x27;ve had this Daredevil image saved for a while, is it from an actual comic?!?
 - [Aug. 21, 2023, 11:58 p.m. Movies: Young Frankenstein (1974)](https://roytang.net/2023/08/young-frankenstein-1974/): My dad wanted to see this so I ended up watching it too. I remember seeing bits and pieces of this from when I was young, like the lead wanting his last name to be pronounced differently. There are a lot of wink wink bawdy jokes that I wouldn&#x27;t have gotten as a kid though. Good for a few laughs. The monster was Everybody Loves Raymond&#x27;s dad!
-- [Aug. 19, 2023, 4:15 p.m. ](https://roytang.net/2023/08/110915282758385711/): @mtgtriviabot ej hajjaj
 
 [View all notes](https://roytang.net/notes)
 
