@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [GitHub - mendel5/alternative-front-ends: Overview of alternative open source front-ends for popular internet platforms (e.g. YouTube, Twitter, etc.)](https://roytang.net/2023/08/8f1c3cc0eb04a4a62ee3f48b26de27bd/)
 - [The ideal viewport doesn’t exist](https://roytang.net/2023/08/54324b2735bca9c136d8d263547ee446/)
 - [Why Bill Watterson Vanished](https://roytang.net/2023/08/8b2c44d667570e31f6b73b860f0f7a95/)
 - [Winnie Lim » what does it mean to live well](https://roytang.net/2023/08/f388274d38c0a59e23c69b16bcef89f8/)
 - [“We’re All Just Temporarily Abled” - Jim Nielsen’s Blog](https://roytang.net/2023/08/2330dd9decd18acd685c3c72473fcdf7/)
-- [My Reading Philosophy in 17 Guidelines – Tracy Durnell](https://roytang.net/2023/08/9230b482363a4f62e9a3c8eca9e5806c/)
 
 [View all links](https://roytang.net/links)
 
