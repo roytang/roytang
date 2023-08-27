@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Middle-earth: Shadow of War](https://roytang.net/2023/08/shadow-of-war/)
 - [2023 Week 34](https://roytang.net/2023/08/2023-week-34/)
 - [The Complete Marvel Run part 5: Avengers v1 (1963), West Coast Avengers and others](https://roytang.net/2023/08/marvel-run-5-avengers-etc/)
 - [New Phone Loadout](https://roytang.net/2023/08/new-phone-loadout/)
 - [2023 Week 33](https://roytang.net/2023/08/2023-week-33/)
-- [My Lord of the Rings Tales of Middle Earth Limited Recap](https://roytang.net/2023/08/mtgltr-limited-recap/)
 
 [View all posts](https://roytang.net/blog)
 
