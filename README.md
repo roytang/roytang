@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 30, 2023, 2:33 p.m. ](https://roytang.net/2023/08/110977167315397852/): Sometimes I wonder about the engineers who work on scummy privacy-invading data-mining backend systems that are used to trick people into spending more money. What thoughts go through their minds when they are the ones shopping online, seeing ads, etc
 - [Aug. 30, 2023, 11:03 a.m. ](https://roytang.net/2023/08/110976343403205975/): @mtgtriviabot seal of fire
 - [Aug. 23, 2023, 11:52 p.m. Movies: Lupin the Third: The Castle of Cagliostro (1979)](https://roytang.net/2023/08/lupin-the-third-the-castle-of-cagliostro-1979/): I haven&#x27;t actually seen a lot of Lupin III, I mostly watched this because it was Miyazaki&#x27;s directorial debut. As such I didn&#x27;t expect much but it was a fun, enjoyable and well-animated romp.
 - [Aug. 23, 2023, 3:09 p.m. ](https://roytang.net/2023/08/110937674859658795/): @mtgtriviabot firemane angel
 - [Aug. 23, 2023, 1:09 a.m. ](https://roytang.net/2023/08/110934372688142808/): @jk this is already how the web works
-- [Aug. 23, 2023, 12:34 a.m. Movies: Street Kings (2008)](https://roytang.net/2023/08/street-kings-2008/): Watched this one just because it was in the NF top 10. Action and suspense were fine, but it&#x27;s hard to be supportive or sympathetic towards the protags when everyone is a dirty cop. Mastermind was kind of obvious early on. House and Sgt Jeffords are here!
 
 [View all notes](https://roytang.net/notes)
 
