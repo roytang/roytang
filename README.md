@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [What is a &#x27;Zero Interest Rate Phenomenon&#x27;?](https://roytang.net/2023/08/zero-interest-rate-phenomenon/)
 - [Fast Food Consumption](https://roytang.net/2023/08/fast-food-consumption/)
 - [Middle-earth: Shadow of War](https://roytang.net/2023/08/shadow-of-war/)
 - [2023 Week 34](https://roytang.net/2023/08/2023-week-34/)
 - [The Complete Marvel Run part 5: Avengers v1 (1963), West Coast Avengers and others](https://roytang.net/2023/08/marvel-run-5-avengers-etc/)
-- [New Phone Loadout](https://roytang.net/2023/08/new-phone-loadout/)
 
 [View all posts](https://roytang.net/blog)
 
