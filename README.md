@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Energy makes time | everything changes](https://roytang.net/2023/09/173d70c5b387fabb87385e6c6ad51bf4/)
 - [The end of the Googleverse - How Google made the world go viral - The Verge](https://roytang.net/2023/08/aea2af8da8c4b2455cd9c2fcd827ec10/)
 - [Edith Sampson — Figures of Speech](https://roytang.net/2023/08/cc1ebb436bc68e170e7d506d5f6ff4a5/)
 - [GitHub - mendel5/alternative-front-ends: Overview of alternative open source front-ends for popular internet platforms (e.g. YouTube, Twitter, etc.)](https://roytang.net/2023/08/8f1c3cc0eb04a4a62ee3f48b26de27bd/)
 - [The ideal viewport doesn’t exist](https://roytang.net/2023/08/54324b2735bca9c136d8d263547ee446/)
-- [Why Bill Watterson Vanished](https://roytang.net/2023/08/8b2c44d667570e31f6b73b860f0f7a95/)
 
 [View all links](https://roytang.net/links)
 
