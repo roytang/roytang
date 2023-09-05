@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [One Piece s1 (2023)](https://roytang.net/2023/09/one-piece/)
 - [2023 Week 35](https://roytang.net/2023/09/2023-week-35/)
 - [What is a &#x27;Zero Interest Rate Phenomenon&#x27;?](https://roytang.net/2023/08/zero-interest-rate-phenomenon/)
 - [Fast Food Consumption](https://roytang.net/2023/08/fast-food-consumption/)
 - [Middle-earth: Shadow of War](https://roytang.net/2023/08/shadow-of-war/)
-- [2023 Week 34](https://roytang.net/2023/08/2023-week-34/)
 
 [View all posts](https://roytang.net/blog)
 
