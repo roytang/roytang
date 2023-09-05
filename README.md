@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 5, 2023, 1:44 p.m. ](https://roytang.net/2023/09/111010951087709858/): Somehow managed to hit infinite 10 mins before the season end. Second time as F2P! #MarvelSnap (Click photos to view full-size)
 - [Aug. 31, 2023, 10:30 p.m. ](https://roytang.net/2023/08/110984705940028058/): @mtgtriviabot ghitu firebreather
 - [Aug. 30, 2023, 2:33 p.m. ](https://roytang.net/2023/08/110977167315397852/): Sometimes I wonder about the engineers who work on scummy privacy-invading data-mining backend systems that are used to trick people into spending more money. What thoughts go through their minds when they are the ones shopping online, seeing ads, etc
 - [Aug. 30, 2023, 11:03 a.m. ](https://roytang.net/2023/08/110976343403205975/): @mtgtriviabot seal of fire
 - [Aug. 23, 2023, 11:52 p.m. Movies: Lupin the Third: The Castle of Cagliostro (1979)](https://roytang.net/2023/08/lupin-the-third-the-castle-of-cagliostro-1979/): I haven&#x27;t actually seen a lot of Lupin III, I mostly watched this because it was Miyazaki&#x27;s directorial debut. As such I didn&#x27;t expect much but it was a fun, enjoyable and well-animated romp.
-- [Aug. 23, 2023, 3:09 p.m. ](https://roytang.net/2023/08/110937674859658795/): @mtgtriviabot firemane angel
 
 [View all notes](https://roytang.net/notes)
 
