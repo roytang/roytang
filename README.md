@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Mobile Phones of Doctor Who – The Motherlode of Props – Terence Eden’s Blog](https://roytang.net/2023/09/17557b0daeb214b6d9a1a83695d6803a/)
+- [The Mystery of the Bloomfield Bridge](https://roytang.net/2023/09/71fbf628a661e5e273edeb61ea57b8bf/)
 - [I Blame the W3C&#x27;s HTML Standard for Ordered Lists](https://roytang.net/2023/09/a4ed41d82518fecb4715298fec29c969/)
 - [Educational Sensational Inspirational Foundational](https://roytang.net/2023/09/f71134f5c4849e018ddb3aa62526a828/)
 - [Energy makes time | everything changes](https://roytang.net/2023/09/173d70c5b387fabb87385e6c6ad51bf4/)
-- [The end of the Googleverse - How Google made the world go viral - The Verge](https://roytang.net/2023/08/aea2af8da8c4b2455cd9c2fcd827ec10/)
-- [Edith Sampson — Figures of Speech](https://roytang.net/2023/08/cc1ebb436bc68e170e7d506d5f6ff4a5/)
 
 [View all links](https://roytang.net/links)
 
