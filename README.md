@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 9, 2023, 9:08 p.m. ](https://roytang.net/2023/09/111035343737635880/): We came home from the hospital today, While I was there I managed to pick up my apple pencil for the first time in months and do some doodles of our room #procreate #sketchbook (Click photos to view full-size)
 - [Sept. 8, 2023, 11:06 p.m. ](https://roytang.net/2023/09/111030145639840063/): @mtgtriviabot quicksilver dagger
 - [Sept. 5, 2023, 1:44 p.m. ](https://roytang.net/2023/09/111010951087709858/): Somehow managed to hit infinite 10 mins before the season end. Second time as F2P! #MarvelSnap (Click photos to view full-size)
 - [Aug. 31, 2023, 10:30 p.m. ](https://roytang.net/2023/08/110984705940028058/): @mtgtriviabot ghitu firebreather
 - [Aug. 30, 2023, 2:33 p.m. ](https://roytang.net/2023/08/110977167315397852/): Sometimes I wonder about the engineers who work on scummy privacy-invading data-mining backend systems that are used to trick people into spending more money. What thoughts go through their minds when they are the ones shopping online, seeing ads, etc
-- [Aug. 30, 2023, 11:03 a.m. ](https://roytang.net/2023/08/110976343403205975/): @mtgtriviabot seal of fire
 
 [View all notes](https://roytang.net/notes)
 
