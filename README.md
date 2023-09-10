@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 36](https://roytang.net/2023/09/2023-week-36/)
 - [It’s Lonely at the Centre of the Earth by Zoe Thorogood](https://roytang.net/2023/09/its-lonely/)
 - [One Piece s1 (2023)](https://roytang.net/2023/09/one-piece/)
 - [2023 Week 35](https://roytang.net/2023/09/2023-week-35/)
 - [What is a &#x27;Zero Interest Rate Phenomenon&#x27;?](https://roytang.net/2023/08/zero-interest-rate-phenomenon/)
-- [Fast Food Consumption](https://roytang.net/2023/08/fast-food-consumption/)
 
 [View all posts](https://roytang.net/blog)
 
