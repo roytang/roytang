@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Rediscovering the Old Internet Vibe — Noisy Deadlines](https://roytang.net/2023/09/3e50c56ed19ca7bb20b9c9ca87d80c54/)
+- [Does anyone think Twitter gets *better* from here?](https://roytang.net/2023/09/b06806e2b6138ea4ed5eb64b45474b7b/)
 - [The Mobile Phones of Doctor Who – The Motherlode of Props – Terence Eden’s Blog](https://roytang.net/2023/09/17557b0daeb214b6d9a1a83695d6803a/)
 - [The Mystery of the Bloomfield Bridge](https://roytang.net/2023/09/71fbf628a661e5e273edeb61ea57b8bf/)
 - [I Blame the W3C&#x27;s HTML Standard for Ordered Lists](https://roytang.net/2023/09/a4ed41d82518fecb4715298fec29c969/)
-- [Educational Sensational Inspirational Foundational](https://roytang.net/2023/09/f71134f5c4849e018ddb3aa62526a828/)
-- [Energy makes time | everything changes](https://roytang.net/2023/09/173d70c5b387fabb87385e6c6ad51bf4/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [Sept. 11, 2023, 10:35 p.m. ](https://roytang.net/2023/09/111047010694586246/): Almost forgot to log the #mtgarenastats email for #MTGLTR that I got a couple of days ago. This was a very low-yield set for me especially in terms of boosters opened since I did not play much limited for this season. Hopefully we do much better with Wilds of Eldraine! #mtg #magicarena (Click photos to view full-size)
 - [Sept. 11, 2023, 9:56 p.m. ](https://roytang.net/2023/09/111046857453396502/): TIL that there is a footnotes syntax for markdown and i did not have to implement footnotes myself lol
 - [Sept. 11, 2023, 6:58 p.m. ](https://roytang.net/2023/09/111046157188574443/): Diving blindly into wilds of eldraine draft https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgwoe
 - [Sept. 10, 2023, 12:10 a.m. ](https://roytang.net/2023/09/111036061649982412/): Finally managed to play some Wilds of Eldraine! As usual, I start off with a sealed first to get a feel for the set, and happily our very first sealed got us a trophy! #mtg #mtgwoe #magicarena (Click photos to view full-size)
 - [Sept. 9, 2023, 9:08 p.m. ](https://roytang.net/2023/09/111035343737635880/): We came home from the hospital today, While I was there I managed to pick up my apple pencil for the first time in months and do some doodles of our room #procreate #sketchbook (Click photos to view full-size)
-- [Sept. 8, 2023, 11:06 p.m. ](https://roytang.net/2023/09/111030145639840063/): @mtgtriviabot quicksilver dagger
 
 [View all notes](https://roytang.net/notes)
 
