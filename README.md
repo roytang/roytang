@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 11, 2023, 9:56 p.m. ](https://roytang.net/2023/09/111046857453396502/): TIL that there is a footnotes syntax for markdown and i did not have to implement footnotes myself lol
 - [Sept. 11, 2023, 6:58 p.m. ](https://roytang.net/2023/09/111046157188574443/): Diving blindly into wilds of eldraine draft https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgwoe
 - [Sept. 10, 2023, 12:10 a.m. ](https://roytang.net/2023/09/111036061649982412/): Finally managed to play some Wilds of Eldraine! As usual, I start off with a sealed first to get a feel for the set, and happily our very first sealed got us a trophy! #mtg #mtgwoe #magicarena (Click photos to view full-size)
 - [Sept. 9, 2023, 9:08 p.m. ](https://roytang.net/2023/09/111035343737635880/): We came home from the hospital today, While I was there I managed to pick up my apple pencil for the first time in months and do some doodles of our room #procreate #sketchbook (Click photos to view full-size)
 - [Sept. 8, 2023, 11:06 p.m. ](https://roytang.net/2023/09/111030145639840063/): @mtgtriviabot quicksilver dagger
-- [Sept. 5, 2023, 1:44 p.m. ](https://roytang.net/2023/09/111010951087709858/): Somehow managed to hit infinite 10 mins before the season end. Second time as F2P! #MarvelSnap (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
