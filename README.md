@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Star Wars Rebels](https://roytang.net/2023/09/star-wars-rebels/)
 - [Saving Time by Jenny Odell](https://roytang.net/2023/09/saving-time/)
 - [2023 Week 36](https://roytang.net/2023/09/2023-week-36/)
 - [It’s Lonely at the Centre of the Earth by Zoe Thorogood](https://roytang.net/2023/09/its-lonely/)
 - [One Piece s1 (2023)](https://roytang.net/2023/09/one-piece/)
-- [2023 Week 35](https://roytang.net/2023/09/2023-week-35/)
 
 [View all posts](https://roytang.net/blog)
 
