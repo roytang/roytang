@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Willingham Sends Fables Into the Public Domain](https://roytang.net/2023/09/333aac58d2a16e4ab5562670bae99366/)
 - [100 things I know - by Mari Andrew - Out of the Blue](https://roytang.net/2023/09/b950b72f142bd5ce4e404fb818a1e7d5/)
 - [Rediscovering the Old Internet Vibe — Noisy Deadlines](https://roytang.net/2023/09/3e50c56ed19ca7bb20b9c9ca87d80c54/)
 - [Does anyone think Twitter gets *better* from here?](https://roytang.net/2023/09/b06806e2b6138ea4ed5eb64b45474b7b/)
 - [The Mobile Phones of Doctor Who – The Motherlode of Props – Terence Eden’s Blog](https://roytang.net/2023/09/17557b0daeb214b6d9a1a83695d6803a/)
-- [The Mystery of the Bloomfield Bridge](https://roytang.net/2023/09/71fbf628a661e5e273edeb61ea57b8bf/)
 
 [View all links](https://roytang.net/links)
 
