@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Eight marvelous and melancholy things I&#x27;ve learned about creativity - The Oatmeal](https://roytang.net/2023/09/b79234b11a34d579ab49ff17a104f5a4/)
 - [Pluralistic: Bill Willingham puts his graphic novel series “Fables” into the public domain (15 Sept 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/09/7a0ce60b14200ac5fae5a7061f3ef123/)
 - [What Newton really meant | Daniel Hoek » IAI TV](https://roytang.net/2023/09/00387631506fa7ccc82838f6bd56c33a/)
 - [Willingham Sends Fables Into the Public Domain](https://roytang.net/2023/09/333aac58d2a16e4ab5562670bae99366/)
 - [100 things I know - by Mari Andrew - Out of the Blue](https://roytang.net/2023/09/b950b72f142bd5ce4e404fb818a1e7d5/)
-- [Rediscovering the Old Internet Vibe — Noisy Deadlines](https://roytang.net/2023/09/3e50c56ed19ca7bb20b9c9ca87d80c54/)
 
 [View all links](https://roytang.net/links)
 
