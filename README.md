@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Daily Web Games and similar things](https://roytang.net/2023/09/daily-puzzle-games/)
 - [2023 Week 37](https://roytang.net/2023/09/2023-week-37/)
 - [On Note-Taking](https://roytang.net/2023/09/note-taking/)
 - [How We Used to Watch Movies](https://roytang.net/2023/09/watch-movies/)
 - [Moving on from Fitbit](https://roytang.net/2023/09/moving-on-fitbit/)
-- [Star Wars Rebels](https://roytang.net/2023/09/star-wars-rebels/)
 
 [View all posts](https://roytang.net/blog)
 
