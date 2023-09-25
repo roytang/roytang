@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Puwera Usog, Tao Po, and Tabi Po: The Curious History of Three Filipino Phrases](https://roytang.net/2023/09/42f028dedc719dd32ee78c132b9c6deb/)
+- [Pluralistic: Apple fucked us on right to repair (again) (22 Sept 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/09/8684ea3aa2b9f6cac17a79be86f1f697/)
 - [I&#x27;m a Spotless Giraffe. | Ben Myers](https://roytang.net/2023/09/99bb34f90a39113dc83122d7dfdd6db2/)
 - [Eight marvelous and melancholy things I&#x27;ve learned about creativity - The Oatmeal](https://roytang.net/2023/09/b79234b11a34d579ab49ff17a104f5a4/)
 - [Pluralistic: Bill Willingham puts his graphic novel series “Fables” into the public domain (15 Sept 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/09/7a0ce60b14200ac5fae5a7061f3ef123/)
-- [What Newton really meant | Daniel Hoek » IAI TV](https://roytang.net/2023/09/00387631506fa7ccc82838f6bd56c33a/)
-- [Willingham Sends Fables Into the Public Domain](https://roytang.net/2023/09/333aac58d2a16e4ab5562670bae99366/)
 
 [View all links](https://roytang.net/links)
 
