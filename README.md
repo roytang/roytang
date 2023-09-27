@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 28, 2023, 1:55 a.m. ](https://roytang.net/2023/09/111138396148470522/): @alcinnz text and url are mismatched
 - [Sept. 25, 2023, 7:36 p.m. ](https://roytang.net/2023/09/111125580589075910/): Streaming some Wilds of Eldraine quick drafts again: https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgwoe [2023-09-27 12:29] Second set of quick drafts did a bit better than the first, but not by much. Finished 2-3 and 4-3. WU continues to be terrible for me.YT: https://www.youtube.com/watch?v=hwOE70_lGmM (Click photos to view full-size)
 - [Sept. 24, 2023, 7:05 a.m. ](https://roytang.net/2023/09/111116966832365984/): I have opted in to Mastodon search!
 - [Sept. 19, 2023, 7:25 p.m. ](https://roytang.net/2023/09/111091563210893739/): Quick drafting Wilds of Eldraine! https://www.twitch.tv/twitchyroy #twitch #magicarena #mtg #mtgwoe [2023-09-20 13:11] Last night&#x27;s two quick draft decks looked good, but only got to 2-3 each.=/ As a friend pointed out during the stream it is highly likely I am drafting too quickly!YT: https://www.youtube.com/watch?v=h2PBg_ug1Y8 (Click photos to view full-size)
 - [Sept. 18, 2023, 11:02 p.m. Movies: The Italian Job (2003)](https://roytang.net/2023/09/the-italian-job-2003/): For some reason I came into this thinking it was about stealing cars? Some good driving scenes though. An entertaining heist movie; I love the ones that have elaborate heist plans that have to be adjusted at the last minute. Having Charlie and Stella end up together seemed unnecessary though.
-- [Sept. 17, 2023, 4:35 p.m. ](https://roytang.net/2023/09/111079568713413791/): Had enough gems for 2 tries at this weekend&#x27;s Arena Open, but unfortunately we did not do well =/ First run went 5-3 and 2nd run went 3-3. Second run was obviously a waste of gems, but first run felt good and the deck was sweet but we got two losses from Gruff Triplets and the third loss because I was a bit too aggressive. Better luck next time! #mtg #mtgwoe #magicarena (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
