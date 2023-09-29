@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 30, 2023, 6:34 a.m. Movies: Air (2023)](https://roytang.net/2023/09/air-2023/): Surprisingly good, for a two-hour Nike ad.
 - [Sept. 30, 2023, 12:10 a.m. Movies: Man on Fire (2004)](https://roytang.net/2023/09/man-on-fire-2004/): The director loves doing these exposition/atmospheric scenes with a lot of strobing lights and it&#x27;s super annoying. The film is very dark and intense, but Denzel&#x27;s character is very methodical and specific in his vengeance, never doing it out of sadism, just enough to extract the information he needs. I mostly watched this because I heard Denzel and Dakota are reuniting 20 years later in Equalizer 3 lol
 - [Sept. 30, 2023, 12:08 a.m. Movies: 47 Ronin (2013)](https://roytang.net/2023/09/47-ronin-2013/): I was so distracted at the start of the film because one of the characters is named &quot;Oishi&quot;, which means &quot;delicious&quot;?!? I guess it&#x27;s a different pronunciation but still.Found out later it was based on an actual Japanese historical story and that makes inserting a white guy into the story and making them all speak English even more of a travesty lol.That being said, I did enjoy the fight scenes and the final raid at the end.
 - [Sept. 28, 2023, 3:04 a.m. ](https://roytang.net/2023/09/111138666200388561/): Even 1970s Marvel knew the dangers of AI-generated content and deepfakes! Daredevil #135, 1976 #ai #comics (Click photos to view full-size)
 - [Sept. 28, 2023, 1:55 a.m. ](https://roytang.net/2023/09/111138396148470522/): @alcinnz text and url are mismatched
-- [Sept. 25, 2023, 7:36 p.m. ](https://roytang.net/2023/09/111125580589075910/): Streaming some Wilds of Eldraine quick drafts again: https://www.twitch.tv/twitchyroy #mtg #magicarena #twitch #mtgwoe [2023-09-27 12:29] Second set of quick drafts did a bit better than the first, but not by much. Finished 2-3 and 4-3. WU continues to be terrible for me.YT: https://www.youtube.com/watch?v=hwOE70_lGmM (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
