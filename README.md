@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 39: Covid, Again](https://roytang.net/2023/10/2023-week-39/)
 - [The AI Ouroboros](https://roytang.net/2023/09/ai-ouroboros/)
 - [2023 Week 38](https://roytang.net/2023/09/2023-week-38/)
 - [Daily Web Games and similar things](https://roytang.net/2023/09/daily-puzzle-games/)
 - [2023 Week 37](https://roytang.net/2023/09/2023-week-37/)
-- [On Note-Taking](https://roytang.net/2023/09/note-taking/)
 
 [View all posts](https://roytang.net/blog)
 
