@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Making a Website is for Everyone - Jim Nielsen’s Blog](https://roytang.net/2023/10/1275a212c1684afa9c92a737c41257b4/)
 - [The future trend around not having social traffic at scale](https://roytang.net/2023/10/a1d82071b5292d31df862ff16ed959c9/)
 - [&lt;/&gt; htmx ~ The #ViewSource Affordance](https://roytang.net/2023/10/7c6ca79114bbab40155978284a86b150/)
 - [I Wrote This For You: The Light That Shines When Things End](https://roytang.net/2023/09/31ca057d5dafc6f40f08fc6126be1673/)
 - [Puwera Usog, Tao Po, and Tabi Po: The Curious History of Three Filipino Phrases](https://roytang.net/2023/09/42f028dedc719dd32ee78c132b9c6deb/)
-- [Pluralistic: Apple fucked us on right to repair (again) (22 Sept 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/09/8684ea3aa2b9f6cac17a79be86f1f697/)
 
 [View all links](https://roytang.net/links)
 
