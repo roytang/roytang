@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 4, 2023, 3:38 p.m. ](https://roytang.net/2023/10/111175604744090498/): Inktober day 4: Dodge The shading here is a mess! #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 3, 2023, 8:55 a.m. ](https://roytang.net/2023/10/111168359080639736/): Inktober Day 3: Path Did not come out as well as I&#x27;d hoped. Doing lots of tiny details is always hard on my hands #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 2, 2023, 7:39 p.m. Movies: Fantastic Four (2015)](https://roytang.net/2023/10/fantastic-four-2015/): Way too serious and missing the heart that made the 2005 film work well enough to get a sequel. I do like the cast and the fact that the military industrial complex tries to take advantage of the kids with these powers, feels very realistic. Given that, the ending/epilogue came out of nowhere and made no sense given the rest of the movie; I guess it was part of the reported reshoots?Also yet another attempt to have Doom be a metal-skinned weirdo with unexplained powers. Just once I&#x27;d like to have him just be a horribly scarred and smart yet
 - [Oct. 2, 2023, 10:01 a.m. ](https://roytang.net/2023/10/111162954145502594/): Inktober day 2: Spiders #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 1, 2023, 1:24 p.m. ](https://roytang.net/2023/10/111158090753294904/): Doing this again apparently, let&#x27;s see if I can keep it up. Inktober day 1: Dream #inktober #sketchbook (Click photos to view full-size)
-- [Sept. 30, 2023, 6:34 a.m. Movies: Air (2023)](https://roytang.net/2023/09/air-2023/): Surprisingly good, for a two-hour Nike ad.
 
 [View all notes](https://roytang.net/notes)
 
