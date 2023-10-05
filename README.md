@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 5, 2023, 11:04 p.m. Movies: Blue Beetle (2023)](https://roytang.net/2023/10/blue-beetle-2023/): This one was okay, had a lot of heart, though I feel like we see the &quot;family&quot; theme in superhero films a bit too often. I was kind of expecting some kind of involvement from Beetle&#x27;s alien origins, but I guess that can be saved for sequels, if we get any.
 - [Oct. 5, 2023, 12:54 p.m. ](https://roytang.net/2023/10/111180621566633312/): Inktober day 5: Map #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 4, 2023, 11:24 p.m. Movies: Transformers: Rise of the Beasts (2023)](https://roytang.net/2023/10/transformers-rise-of-the-beasts-2023/): Slightly better than I expected it to be, probably in the upper half for the live-action series overall. They are at least getting better at having the different robots distinguishable from each other (mostly through more prominent metal coloring on each one), though the entire movie went by without telling us the names of Scourge&#x27;s two goons. Big messy CGI fight at the end though.Wikipedia says this one is supposed to be both a sequel to Bumblebee (2018) and a prequel to Transformers (2007), but there&#x27;s no way that makes sense continuity-wise.
 - [Oct. 4, 2023, 3:38 p.m. ](https://roytang.net/2023/10/111175604744090498/): Inktober day 4: Dodge The shading here is a mess! #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 3, 2023, 8:55 a.m. ](https://roytang.net/2023/10/111168359080639736/): Inktober Day 3: Path Did not come out as well as I&#x27;d hoped. Doing lots of tiny details is always hard on my hands #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 2, 2023, 7:39 p.m. Movies: Fantastic Four (2015)](https://roytang.net/2023/10/fantastic-four-2015/): Way too serious and missing the heart that made the 2005 film work well enough to get a sequel. I do like the cast and the fact that the military industrial complex tries to take advantage of the kids with these powers, feels very realistic. Given that, the ending/epilogue came out of nowhere and made no sense given the rest of the movie; I guess it was part of the reported reshoots?Also yet another attempt to have Doom be a metal-skinned weirdo with unexplained powers. Just once I&#x27;d like to have him just be a horribly scarred and smart yet
 
 [View all notes](https://roytang.net/notes)
 
