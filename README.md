@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Star Wars Ahsoka](https://roytang.net/2023/10/ahsoka/)
 - [2023 Week 39: Covid, Again](https://roytang.net/2023/10/2023-week-39/)
 - [The AI Ouroboros](https://roytang.net/2023/09/ai-ouroboros/)
 - [2023 Week 38](https://roytang.net/2023/09/2023-week-38/)
 - [Daily Web Games and similar things](https://roytang.net/2023/09/daily-puzzle-games/)
-- [2023 Week 37](https://roytang.net/2023/09/2023-week-37/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -37,9 +37,9 @@ Latest notes:
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/a6/91/a691e8e5ea3ce73099ba719c9d195dca.jpg)
-- ![](https://roytang.net/media/cache/6a/6a/6a6a50c5debd7b0864f953d27d218c9f.jpg)
-- ![](https://roytang.net/media/cache/7a/d4/7ad4e6def8147d6f83590eb62ebf33e6.jpg)
+- ![](https://roytang.net/media/cache/bd/c7/bdc7969eeafaf054a98e25b137aeea44.jpg)
+- ![](https://roytang.net/media/cache/a1/1a/a11a26230ef310e13b4a1e2c5be92f65.jpg)
+- ![](https://roytang.net/media/cache/c8/12/c812fddc1e45c64b156c9d27c34e331d.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
