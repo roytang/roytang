@@ -6,11 +6,11 @@ Visit the site: ![https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 40: A Week of Isolation](https://roytang.net/2023/10/2023-week-40/)
 - [Star Wars Ahsoka](https://roytang.net/2023/10/ahsoka/)
 - [2023 Week 39: Covid, Again](https://roytang.net/2023/10/2023-week-39/)
 - [The AI Ouroboros](https://roytang.net/2023/09/ai-ouroboros/)
 - [2023 Week 38](https://roytang.net/2023/09/2023-week-38/)
-- [Daily Web Games and similar things](https://roytang.net/2023/09/daily-puzzle-games/)
 
 [View all posts](https://roytang.net/blog)
 
