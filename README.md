@@ -37,9 +37,9 @@ Latest notes:
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/bd/c7/bdc7969eeafaf054a98e25b137aeea44.jpg)
-- ![](https://roytang.net/media/cache/a1/1a/a11a26230ef310e13b4a1e2c5be92f65.jpg)
-- ![](https://roytang.net/media/cache/c8/12/c812fddc1e45c64b156c9d27c34e331d.jpg)
+- ![](https://roytang.net/media/cache/a6/91/a691e8e5ea3ce73099ba719c9d195dca.jpg)
+- ![](https://roytang.net/media/cache/6a/6a/6a6a50c5debd7b0864f953d27d218c9f.jpg)
+- ![](https://roytang.net/media/cache/7a/d4/7ad4e6def8147d6f83590eb62ebf33e6.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
