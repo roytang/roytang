@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 11, 2023, 7:41 a.m. ](https://roytang.net/2023/10/111213364435999644/): Inktober day 11: Wander #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 10, 2023, 11:47 p.m. Movies: Tenet (2020)](https://roytang.net/2023/10/tenet-2020/): Enjoyed this one but it was a bit hard on the brain especially around the middle. Pretty good action and the plot mindbending to say the least. It wasn&#x27;t that bad if you don&#x27;t spend too much time trying to plot out all the timelines and puzzle over the loopholes but I suspect that plot was still way too complicated for the mass market audience and that Nolan lucked out with the pandemic happening as it did to lower box office expectations.
 - [Oct. 10, 2023, 8:54 p.m. Fiddling around with my RSS feeds today](https://roytang.net/2023/10/75e906a03fa80cddf1a205c785f3ab01/): Apologies if weird things happen to your feed reader
 - [Oct. 10, 2023, 4:08 p.m. ](https://roytang.net/2023/10/111209698546912123/): Inktober day 10: Fortune #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 10, 2023, 12:21 a.m. ](https://roytang.net/2023/10/111205972361708929/): Inktober day 9: Bounce #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 8, 2023, 3:49 p.m. ](https://roytang.net/2023/10/111198296964283587/): Inktober day 8: Toad #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
