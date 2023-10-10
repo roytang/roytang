@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 10, 2023, 8:54 p.m. Fiddling around with my RSS feeds today](https://roytang.net/2023/10/75e906a03fa80cddf1a205c785f3ab01/): Apologies if weird things happen to your feed reader
 - [Oct. 10, 2023, 4:08 p.m. ](https://roytang.net/2023/10/111209698546912123/): Inktober day 10: Fortune #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 10, 2023, 12:21 a.m. ](https://roytang.net/2023/10/111205972361708929/): Inktober day 9: Bounce #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 8, 2023, 3:49 p.m. ](https://roytang.net/2023/10/111198296964283587/): Inktober day 8: Toad #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 7, 2023, 1:21 p.m. ](https://roytang.net/2023/10/111192053751173326/): Inktober day 7: Drip #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 6, 2023, 4:14 p.m. ](https://roytang.net/2023/10/111187072548344685/): Inktober day 6: Golden #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
