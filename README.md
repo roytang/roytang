@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [What happened to blogging for the hell of it? | wiwi blog](https://roytang.net/2023/10/5264957daea325782b2c14f10c5cf3a7/)
 - [More Thoughtful Reading &amp; Writing on the Web - Tantek](https://roytang.net/2023/10/bb1272f6e0d35521258345995d726fbd/)
 - [This is not the future I wanted](https://roytang.net/2023/10/491a37c96c763a3c6ff3f3026d7d8003/)
 - [Return to Office Is Bullshit And Everyone Knows It - Dhole Moments](https://roytang.net/2023/10/22968388ee2bdc16bdedc64d0a1684ff/)
 - [Making a Website is for Everyone - Jim Nielsen’s Blog](https://roytang.net/2023/10/1275a212c1684afa9c92a737c41257b4/)
-- [The future trend around not having social traffic at scale](https://roytang.net/2023/10/a1d82071b5292d31df862ff16ed959c9/)
 
 [View all links](https://roytang.net/links)
 
