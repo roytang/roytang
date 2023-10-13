@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [GrabTaxi Fares](https://roytang.net/2023/10/grabtaxi/)
 - [Celeste](https://roytang.net/2023/10/celeste/)
 - [2023 Week 40: A Week of Isolation](https://roytang.net/2023/10/2023-week-40/)
 - [Star Wars Ahsoka](https://roytang.net/2023/10/ahsoka/)
 - [2023 Week 39: Covid, Again](https://roytang.net/2023/10/2023-week-39/)
-- [The AI Ouroboros](https://roytang.net/2023/09/ai-ouroboros/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -27,10 +27,10 @@ Latest shared links:
 Latest notes:
 
 - [Oct. 13, 2023, midnight ](https://roytang.net/2023/10/111222878909708952/): Inktober day 13: Rise #inktober #inktober2023 #sketchbook (Click photos to view full-size)
+- [Oct. 12, 2023, 11:28 p.m. Popquiz Magic Mystics](https://roytang.net/2023/10/popquiz-magic-mystics/): We hadn&#x27;t attended PopQuiz in a couple of months, but the categories for this one looked good so went for it. Attendance was low though, only 3 teams! Wizarding World / Harry Potter - 4pts Magic the Gathering - 9pts (x2 for joker. Hard carry!) Lord of the Rings - 8pts (x2 for successful ace) Game of Thrones - 6pts Discworld - 6pts (went surprisingly well considering I had only read 1/4 of the books Dungeons and Dragons - 6pts I was worried after round 1 because both of the opposing teams used their jokers and did well while it
 - [Oct. 12, 2023, 12:06 a.m. ](https://roytang.net/2023/10/111217239402255535/): Inktober day 12: Spicy #inktober #inktober2023 #sketchbook (Click photos to view full-size)
+- [Oct. 11, 2023, 11:14 p.m. Geekfight: Noisy / Standing](https://roytang.net/2023/10/geekfight-noisy-standing/): This was game 3 of the current Geekfight League, themed as &quot;back to school&quot;. (The trivia team sent representatives to game 2 which was Taylor Swift themed, but I did not attend as I had nothing to contribute. The team won that one though!) Geography - 3pts (not unexpected) Languages - 6pts Math - 7pts (x2 for joker) MAPEH - 4pts Science - 5pts History - 2pts (also unsurprising!) I was worried we wouldn&#x27;t make it, but it turned out to be another low-scoring game and we tied for first! That means we retain our position as league leader!
 - [Oct. 11, 2023, 7:41 a.m. ](https://roytang.net/2023/10/111213364435999644/): Inktober day 11: Wander #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 10, 2023, 11:47 p.m. Movies: Tenet (2020)](https://roytang.net/2023/10/tenet-2020/): Enjoyed this one but it was a bit hard on the brain especially around the middle. Pretty good action and the plot mindbending to say the least. It wasn&#x27;t that bad if you don&#x27;t spend too much time trying to plot out all the timelines and puzzle over the loopholes but I suspect that plot was still way too complicated for the mass market audience and that Nolan lucked out with the pandemic happening as it did to lower box office expectations.
-- [Oct. 10, 2023, 8:54 p.m. Fiddling around with my RSS feeds today](https://roytang.net/2023/10/75e906a03fa80cddf1a205c785f3ab01/): Apologies if weird things happen to your feed reader
 
 [View all notes](https://roytang.net/notes)
 
