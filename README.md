@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 17, 2023, 10:24 a.m. ](https://roytang.net/2023/10/111247980155626741/): I regret not bringing my Switch to this laboratory queue. When I got here around 30+ mins ago they were proxessing P95. Now they are processing P105. Gonna be here til after lunchtime at this rate. (Click photos to view full-size)
 - [Oct. 16, 2023, 1:06 p.m. ](https://roytang.net/2023/10/111242954765318385/): Wilds of Eldraine quick drafts came back to Arena last week, so I decided to do a couple of them to end the season. Since there was a season reset I was at silver and winning is a lot easier at the lower ranks. First QD (WB) went 7-1 while the second QD (BGr) went 7-2. Overall I think this puts WOE as my winningest limited format on Arena to date! It&#x27;s a good place to stop and start saving up for the next set! #mtg #mtgwoe #magicarena (Click photos to view full-size)
 - [Oct. 16, 2023, 12:52 a.m. ](https://roytang.net/2023/10/111240070083513108/): Inktober day 16 Angel #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 15, 2023, midnight ](https://roytang.net/2023/10/111234201154224142/): Inktober day 15: Dagger The proportions here are terrible lol #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 14, 2023, 12:32 a.m. ](https://roytang.net/2023/10/111228665938430296/): Inktober day 14: Castle #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 14, 2023, 12:18 a.m. ](https://roytang.net/2023/10/111228610330972210/): Occasionally I&#x27;ll spot some spammy urls accessed on my server with chinese text and URLs related to buying backlinks. (Sample shown in screenshot - no alt-text because I don&#x27;t want to type out those spammy URLs) This is not a valid tag on my website. Why do they do this? What benefit does it get them? That text they send doesn&#x27;t appear on my website in any shape or form, and accessing these urls doesn&#x27;t change that! There are 200+ such hits on my access log for the current day! (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
