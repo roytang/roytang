@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 19, 2023, 8:35 p.m. ](https://roytang.net/2023/10/111261709358438305/): @jepoy they really need to announce these things way ahead of time
 - [Oct. 19, 2023, 7:08 p.m. ](https://roytang.net/2023/10/111261366575622446/): Inktober day 19 Plump #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 18, 2023, 2:13 p.m. ](https://roytang.net/2023/10/111254544987880395/): Inktober day 18 Saddle #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 17, 2023, 10:07 p.m. ](https://roytang.net/2023/10/111250745780811386/): Inktober day 17 Demon #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 17, 2023, 2:14 p.m. ](https://roytang.net/2023/10/111248886724866794/): @jikodesu im looking forward to the metro manila subway in X years mostly because it should make getting to BGC way easier for commuters!
-- [Oct. 17, 2023, 10:24 a.m. ](https://roytang.net/2023/10/111247980155626741/): I regret not bringing my Switch to this laboratory queue. When I got here around 30+ mins ago they were proxessing P95. Now they are processing P105. Gonna be here til after lunchtime at this rate. (Click photos to view full-size) [11:44] My queue number got called after around 2hrs
 
 [View all notes](https://roytang.net/notes)
 
