@@ -26,21 +26,21 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 20, 2023, 11:49 p.m. ](https://roytang.net/2023/10/111268132125301305/): Inktober day 20 Frost #inktober #inktober2023 #sketchbook (Click photos to view full-size)
+- [Oct. 20, 2023, 11:11 p.m. Movies: The Equalizer (2014)](https://roytang.net/2023/10/the-equalizer-2014/): I initially thought this one would be like John Wick: fast, intense and action-packed. Instead it turned out to be slow, deliberate, methodical and tense, much like the title character. Pretty good actually.
 - [Oct. 20, 2023, 3:15 p.m. ](https://roytang.net/2023/10/111266113625904427/): Super Mario Wonder has arrived! #gaming #mario (Click photos to view full-size)
 - [Oct. 19, 2023, 8:35 p.m. ](https://roytang.net/2023/10/111261709358438305/): @jepoy they really need to announce these things way ahead of time
 - [Oct. 19, 2023, 7:08 p.m. ](https://roytang.net/2023/10/111261366575622446/): Inktober day 19 Plump #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 18, 2023, 2:13 p.m. ](https://roytang.net/2023/10/111254544987880395/): Inktober day 18 Saddle #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 17, 2023, 10:07 p.m. ](https://roytang.net/2023/10/111250745780811386/): Inktober day 17 Demon #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
+- ![](https://roytang.net/media/cache/04/dc/04dcca649399c8e3671af78b4cbea7a5.jpg)
 - ![](https://roytang.net/media/cache/3a/e6/3ae61d6a8e7d43cdfd4f12b19b1452ca.jpg)
 - ![](https://roytang.net/media/cache/ea/40/ea404b52d11b01a518996e7f40aa7189.jpg)
 - ![](https://roytang.net/media/cache/f3/ba/f3baa58ead00146a51a22e8722fb279b.jpg)
-- ![](https://roytang.net/media/cache/ab/c0/abc005142eda34179912de849075a42b.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
