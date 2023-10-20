@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 20, 2023, 3:15 p.m. ](https://roytang.net/2023/10/111266113625904427/): Super Mario Wonder has arrived! #gaming #mario (Click photos to view full-size)
 - [Oct. 19, 2023, 8:35 p.m. ](https://roytang.net/2023/10/111261709358438305/): @jepoy they really need to announce these things way ahead of time
 - [Oct. 19, 2023, 7:08 p.m. ](https://roytang.net/2023/10/111261366575622446/): Inktober day 19 Plump #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 18, 2023, 2:13 p.m. ](https://roytang.net/2023/10/111254544987880395/): Inktober day 18 Saddle #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 17, 2023, 10:07 p.m. ](https://roytang.net/2023/10/111250745780811386/): Inktober day 17 Demon #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 17, 2023, 2:14 p.m. ](https://roytang.net/2023/10/111248886724866794/): @jikodesu im looking forward to the metro manila subway in X years mostly because it should make getting to BGC way easier for commuters!
 
 [View all notes](https://roytang.net/notes)
 
