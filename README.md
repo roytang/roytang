@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 42](https://roytang.net/2023/10/2023-week-42/)
 - [2023 Week 41](https://roytang.net/2023/10/2023-week-41/)
 - [On Social Media, Lurkers, Introverts, and Blogging](https://roytang.net/2023/10/social-media-lurkers-introverts-blogging/)
 - [GrabTaxi Fares](https://roytang.net/2023/10/grabtaxi/)
 - [Celeste](https://roytang.net/2023/10/celeste/)
-- [2023 Week 40: A Week of Isolation](https://roytang.net/2023/10/2023-week-40/)
 
 [View all posts](https://roytang.net/blog)
 
