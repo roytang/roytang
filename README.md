@@ -26,21 +26,21 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 23, 2023, 11:26 p.m. ](https://roytang.net/2023/10/111285030475803371/): Inktober catchup (kinda rushed) Day 22 Scratchy Day 23 Celestial Day 24 Shallow #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 22, 2023, 6:58 p.m. ](https://roytang.net/2023/10/111278314224600873/): Inktober day 21 Chains #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 20, 2023, 11:49 p.m. ](https://roytang.net/2023/10/111268132125301305/): Inktober day 20 Frost #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 20, 2023, 11:11 p.m. Movies: The Equalizer (2014)](https://roytang.net/2023/10/the-equalizer-2014/): I initially thought this one would be like John Wick: fast, intense and action-packed. Instead it turned out to be slow, deliberate, methodical and tense, much like the title character. Pretty good actually.
 - [Oct. 20, 2023, 3:15 p.m. ](https://roytang.net/2023/10/111266113625904427/): Super Mario Wonder has arrived! #gaming #mario (Click photos to view full-size)
-- [Oct. 19, 2023, 8:35 p.m. ](https://roytang.net/2023/10/111261709358438305/): @jepoy they really need to announce these things way ahead of time
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
+- ![](https://roytang.net/media/cache/26/55/2655fe1cd9c454c976f8599c717a777e.jpg)
+- ![](https://roytang.net/media/cache/81/a5/81a5d8345b7963669cec6841d1ebbcf5.jpg)
+- ![](https://roytang.net/media/cache/48/ab/48ab86d70ed7c8f2c6271224caed23be.jpg)
 - ![](https://roytang.net/media/cache/ba/99/ba99a24e06efd9a981a35697f9931bb4.jpg)
-- ![](https://roytang.net/media/cache/04/dc/04dcca649399c8e3671af78b4cbea7a5.jpg)
-- ![](https://roytang.net/media/cache/3a/e6/3ae61d6a8e7d43cdfd4f12b19b1452ca.jpg)
-- ![](https://roytang.net/media/cache/ea/40/ea404b52d11b01a518996e7f40aa7189.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
