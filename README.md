@@ -16,31 +16,31 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Internet Artifacts](https://roytang.net/2023/10/e087b824d8e9251430366a8aa51f219d/)
+- [It&#x27;s 2023, here is why your web design sucks.](https://roytang.net/2023/10/f4a9d3b0b574371256585c13658da98e/)
 - [André Staltz - Google shattered human connection](https://roytang.net/2023/10/2aa653713379a95b3c018f080c0e51eb/)
 - [Going off-script - Drew DeVault](https://roytang.net/2023/10/90eaa65434a961b5a7085836f946ca45/)
 - [What happened to blogging for the hell of it? | wiwi blog](https://roytang.net/2023/10/5264957daea325782b2c14f10c5cf3a7/)
-- [More Thoughtful Reading &amp; Writing on the Web - Tantek](https://roytang.net/2023/10/bb1272f6e0d35521258345995d726fbd/)
-- [This is not the future I wanted](https://roytang.net/2023/10/491a37c96c763a3c6ff3f3026d7d8003/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [Oct. 27, 2023, 3:51 p.m. ](https://roytang.net/2023/10/111305889191849140/): Inktober catchup (I am having a harder time staying motivated as we hit the last few days) Day 25 Dangerous (&quot;Let&#x27;s get...&quot;)Day 26 Remove (IDK what he is remvoing)Day 27 BeastDay 28 Sparkle #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 23, 2023, 11:26 p.m. ](https://roytang.net/2023/10/111285030475803371/): Inktober catchup (kinda rushed) Day 22 Scratchy Day 23 Celestial Day 24 Shallow #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 22, 2023, 6:58 p.m. ](https://roytang.net/2023/10/111278314224600873/): Inktober day 21 Chains #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 20, 2023, 11:49 p.m. ](https://roytang.net/2023/10/111268132125301305/): Inktober day 20 Frost #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 20, 2023, 11:11 p.m. Movies: The Equalizer (2014)](https://roytang.net/2023/10/the-equalizer-2014/): I initially thought this one would be like John Wick: fast, intense and action-packed. Instead it turned out to be slow, deliberate, methodical and tense, much like the title character. Pretty good actually.
-- [Oct. 20, 2023, 3:15 p.m. ](https://roytang.net/2023/10/111266113625904427/): Super Mario Wonder has arrived! #gaming #mario (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/26/55/2655fe1cd9c454c976f8599c717a777e.jpg)
-- ![](https://roytang.net/media/cache/81/a5/81a5d8345b7963669cec6841d1ebbcf5.jpg)
-- ![](https://roytang.net/media/cache/48/ab/48ab86d70ed7c8f2c6271224caed23be.jpg)
-- ![](https://roytang.net/media/cache/ba/99/ba99a24e06efd9a981a35697f9931bb4.jpg)
+- ![](https://roytang.net/media/cache/1b/ff/1bff7a7ea5cfe2f7bb3400ab078a005a.jpg)
+- ![](https://roytang.net/media/cache/f9/55/f955a4322c59ff84b72ebf57950a26b2.jpg)
+- ![](https://roytang.net/media/cache/f5/68/f568651154776f143f80f74efc4e29a3.jpg)
+- ![](https://roytang.net/media/cache/d7/6a/d76a53b117d5cf49556b0e233af13c95.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
