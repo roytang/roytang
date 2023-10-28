@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Moxie Marlinspike &gt;&gt; Blog &gt;&gt; Career Advice](https://roytang.net/2023/10/437f642305850099cb4c2fad4e239947/)
 - [Separating Fact from Fiction on Social Media in Times of Conflict - bellingcat](https://roytang.net/2023/10/3ecc8680516b1abb938f340a4cb36cd3/)
 - [Internet Artifacts](https://roytang.net/2023/10/e087b824d8e9251430366a8aa51f219d/)
 - [It&#x27;s 2023, here is why your web design sucks.](https://roytang.net/2023/10/f4a9d3b0b574371256585c13658da98e/)
 - [André Staltz - Google shattered human connection](https://roytang.net/2023/10/2aa653713379a95b3c018f080c0e51eb/)
-- [Going off-script - Drew DeVault](https://roytang.net/2023/10/90eaa65434a961b5a7085836f946ca45/)
 
 [View all links](https://roytang.net/links)
 
