@@ -26,17 +26,18 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 29, 2023, 8:24 a.m. ](https://roytang.net/2023/10/111315457534348052/): Inktober Day 29 Massive #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 27, 2023, 3:51 p.m. ](https://roytang.net/2023/10/111305889191849140/): Inktober catchup (I am having a harder time staying motivated as we hit the last few days) Day 25 Dangerous (&quot;Let&#x27;s get...&quot;)Day 26 Remove (IDK what he is remvoing)Day 27 BeastDay 28 Sparkle #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 23, 2023, 11:26 p.m. ](https://roytang.net/2023/10/111285030475803371/): Inktober catchup (kinda rushed) Day 22 Scratchy Day 23 Celestial Day 24 Shallow #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 22, 2023, 6:58 p.m. ](https://roytang.net/2023/10/111278314224600873/): Inktober day 21 Chains #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 20, 2023, 11:49 p.m. ](https://roytang.net/2023/10/111268132125301305/): Inktober day 20 Frost #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 20, 2023, 11:11 p.m. Movies: The Equalizer (2014)](https://roytang.net/2023/10/the-equalizer-2014/): I initially thought this one would be like John Wick: fast, intense and action-packed. Instead it turned out to be slow, deliberate, methodical and tense, much like the title character. Pretty good actually.
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
+- ![](https://roytang.net/media/cache/3c/7d/3c7d410c1cd355b7897272dd51e3b61a.jpg)
 - ![](https://roytang.net/media/cache/1b/ff/1bff7a7ea5cfe2f7bb3400ab078a005a.jpg)
 - ![](https://roytang.net/media/cache/f9/55/f955a4322c59ff84b72ebf57950a26b2.jpg)
 - ![](https://roytang.net/media/cache/f5/68/f568651154776f143f80f74efc4e29a3.jpg)
