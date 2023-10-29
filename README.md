@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 43](https://roytang.net/2023/10/2023-week-43/)
 - [2023 Week 42](https://roytang.net/2023/10/2023-week-42/)
 - [2023 Week 41](https://roytang.net/2023/10/2023-week-41/)
 - [On Social Media, Lurkers, Introverts, and Blogging](https://roytang.net/2023/10/social-media-lurkers-introverts-blogging/)
 - [GrabTaxi Fares](https://roytang.net/2023/10/grabtaxi/)
-- [Celeste](https://roytang.net/2023/10/celeste/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -28,9 +28,9 @@ Latest notes:
 
 - [Oct. 29, 2023, 8:24 a.m. ](https://roytang.net/2023/10/111315457534348052/): Inktober Day 29 Massive #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 27, 2023, 3:51 p.m. ](https://roytang.net/2023/10/111305889191849140/): Inktober catchup (I am having a harder time staying motivated as we hit the last few days) Day 25 Dangerous (&quot;Let&#x27;s get...&quot;)Day 26 Remove (IDK what he is remvoing)Day 27 BeastDay 28 Sparkle #inktober #inktober2023 #sketchbook (Click photos to view full-size)
+- [Oct. 25, 2023, 11:27 p.m. Geekfight: All This Happened, More or Less](https://roytang.net/2023/10/geekfight-league-4/): We attended game 4 of the current Geekfight League, themed as &quot;stories and tales&quot;. Songs - 6pts (x2 for joker) Edgar Allan Poe - 5pts Memoirs / Biographies - 4pts Jane Austen - 3pts Theology - 3pts Folklore - 3pts The scores were very tight and we lost out on first place by a mere one point!! This was still good enough to keep us comfortably in the lead for the league though. Hoping we do better next time!
 - [Oct. 23, 2023, 11:26 p.m. ](https://roytang.net/2023/10/111285030475803371/): Inktober catchup (kinda rushed) Day 22 Scratchy Day 23 Celestial Day 24 Shallow #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 22, 2023, 6:58 p.m. ](https://roytang.net/2023/10/111278314224600873/): Inktober day 21 Chains #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 20, 2023, 11:49 p.m. ](https://roytang.net/2023/10/111268132125301305/): Inktober day 20 Frost #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
