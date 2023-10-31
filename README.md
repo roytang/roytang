@@ -26,23 +26,21 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 1, 2023, 12:13 a.m. ](https://roytang.net/2023/11/111330514005305058/): Inktober Day 31 Fire INKTOBER COMPLETE! #inktober #inktober2023 #sketchbook (Click photos to view full-size) [00:33] All sketches at https://roytang.net/photos/tagged/inktober2023/ (Click photos to view full-size)
 - [Oct. 31, 2023, 11:42 p.m. Movies: A Haunting in Venice (2023)](https://roytang.net/2023/10/a-haunting-in-venice-2023/): Clever of Disney+ to have this out on Halloween, it was an appropriate time to watch.I think I enjoyed this one the most out of Branagh&#x27;s 3 Poirot films so far, certainly better than Nile. I haven&#x27;t read the book it was based on, although I read that it was a loose adaptation. Good use of camera work to portray the more &quot;supernatural&quot; elements of the case. Decent performances, though I often have trouble taking Tina Fey seriously. I kind of suspected the final culprit but couldn&#x27;t explain why, though in hindsight the case might have been solveable, had one
 - [Oct. 30, 2023, 10:25 p.m. ](https://roytang.net/2023/10/111324425081407655/): Inktober Day 30 Rush #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 29, 2023, 8:24 a.m. ](https://roytang.net/2023/10/111315457534348052/): Inktober Day 29 Massive #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 27, 2023, 3:51 p.m. ](https://roytang.net/2023/10/111305889191849140/): Inktober catchup (I am having a harder time staying motivated as we hit the last few days) Day 25 Dangerous (&quot;Let&#x27;s get...&quot;)Day 26 Remove (IDK what he is remvoing)Day 27 BeastDay 28 Sparkle #inktober #inktober2023 #sketchbook (Click photos to view full-size)
-- [Oct. 25, 2023, 11:27 p.m. Geekfight: All This Happened, More or Less](https://roytang.net/2023/10/geekfight-league-4/): We attended game 4 of the current Geekfight League, themed as &quot;stories and tales&quot;. Songs - 6pts (x2 for joker) Edgar Allan Poe - 5pts Memoirs / Biographies - 4pts Jane Austen - 3pts Theology - 3pts Folklore - 3pts The scores were very tight and we lost out on first place by a mere one point!! This was still good enough to keep us comfortably in the lead for the league though. Hoping we do better next time!
 
 [View all notes](https://roytang.net/notes)
 
 Latest sketches:
 
 
+- ![](https://roytang.net/media/cache/c3/52/c3524701d7d18fa2b6b280d4437c7ba1.jpg)
+- ![](https://roytang.net/media/cache/b8/6e/b86e3f7c5db451a5bf40260cdf52e2c0.jpg)
 - ![](https://roytang.net/media/cache/09/11/09119bc377da2a1bf7e9d18251a6b7a6.jpg)
 - ![](https://roytang.net/media/cache/3c/7d/3c7d410c1cd355b7897272dd51e3b61a.jpg)
-- ![](https://roytang.net/media/cache/1b/ff/1bff7a7ea5cfe2f7bb3400ab078a005a.jpg)
-- ![](https://roytang.net/media/cache/f9/55/f955a4322c59ff84b72ebf57950a26b2.jpg)
-- ![](https://roytang.net/media/cache/f5/68/f568651154776f143f80f74efc4e29a3.jpg)
-- ![](https://roytang.net/media/cache/d7/6a/d76a53b117d5cf49556b0e233af13c95.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
