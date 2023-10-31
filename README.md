@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 31, 2023, 11:42 p.m. Movies: A Haunting in Venice (2023)](https://roytang.net/2023/10/a-haunting-in-venice-2023/): Clever of Disney+ to have this out on Halloween, it was an appropriate time to watch.I think I enjoyed this one the most out of Branagh&#x27;s 3 Poirot films so far, certainly better than Nile. I haven&#x27;t read the book it was based on, although I read that it was a loose adaptation. Good use of camera work to portray the more &quot;supernatural&quot; elements of the case. Decent performances, though I often have trouble taking Tina Fey seriously. I kind of suspected the final culprit but couldn&#x27;t explain why, though in hindsight the case might have been solveable, had one
 - [Oct. 30, 2023, 10:25 p.m. ](https://roytang.net/2023/10/111324425081407655/): Inktober Day 30 Rush #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 29, 2023, 8:24 a.m. ](https://roytang.net/2023/10/111315457534348052/): Inktober Day 29 Massive #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 27, 2023, 3:51 p.m. ](https://roytang.net/2023/10/111305889191849140/): Inktober catchup (I am having a harder time staying motivated as we hit the last few days) Day 25 Dangerous (&quot;Let&#x27;s get...&quot;)Day 26 Remove (IDK what he is remvoing)Day 27 BeastDay 28 Sparkle #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 - [Oct. 25, 2023, 11:27 p.m. Geekfight: All This Happened, More or Less](https://roytang.net/2023/10/geekfight-league-4/): We attended game 4 of the current Geekfight League, themed as &quot;stories and tales&quot;. Songs - 6pts (x2 for joker) Edgar Allan Poe - 5pts Memoirs / Biographies - 4pts Jane Austen - 3pts Theology - 3pts Folklore - 3pts The scores were very tight and we lost out on first place by a mere one point!! This was still good enough to keep us comfortably in the lead for the league though. Hoping we do better next time!
-- [Oct. 23, 2023, 11:26 p.m. ](https://roytang.net/2023/10/111285030475803371/): Inktober catchup (kinda rushed) Day 22 Scratchy Day 23 Celestial Day 24 Shallow #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
