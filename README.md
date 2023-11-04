@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Oct 2023 TV Reviews: Lower Decks, Superman and Harley Quinn](https://roytang.net/2023/11/oct2023-tv-lower-decks-superman-harley/)
 - [Growth and Techno-Optimism](https://roytang.net/2023/10/growth/)
 - [My Wilds of Eldraine Limited Recap](https://roytang.net/2023/10/mtgwoe-limited-recap/)
 - [2023 Week 43](https://roytang.net/2023/10/2023-week-43/)
 - [2023 Week 42](https://roytang.net/2023/10/2023-week-42/)
-- [2023 Week 41](https://roytang.net/2023/10/2023-week-41/)
 
 [View all posts](https://roytang.net/blog)
 
