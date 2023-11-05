@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 44](https://roytang.net/2023/11/2023-week-44/)
 - [Oct 2023 TV Reviews: Lower Decks, Superman and Harley Quinn](https://roytang.net/2023/11/oct2023-tv-lower-decks-superman-harley/)
 - [Growth and Techno-Optimism](https://roytang.net/2023/10/growth/)
 - [My Wilds of Eldraine Limited Recap](https://roytang.net/2023/10/mtgwoe-limited-recap/)
 - [2023 Week 43](https://roytang.net/2023/10/2023-week-43/)
-- [2023 Week 42](https://roytang.net/2023/10/2023-week-42/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -28,7 +28,7 @@ Latest notes:
 
 - [Nov. 4, 2023, 4:01 p.m. ](https://roytang.net/2023/11/111351226290526313/): Is there a way I can figure out the exact time a specific Mastodon server received a particular message/toot/mention from another server? (I have an account on the receiving server)
 - [Nov. 1, 2023, 7:43 a.m. ](https://roytang.net/2023/11/111332281464991970/): We are ready for Mortal Kombat (Click photos to view full-size)
-- [Nov. 1, 2023, 12:13 a.m. ](https://roytang.net/2023/11/111330514005305058/): Inktober Day 31 Fire INKTOBER COMPLETE! #inktober #inktober2023 #sketchbook (Click photos to view full-size) [00:33] All sketches at https://roytang.net/photos/tagged/inktober2023/ (Click photos to view full-size)
+- [Nov. 1, 2023, 12:13 a.m. ](https://roytang.net/2023/11/111330514005305058/): Inktober Day 31 Fire INKTOBER COMPLETE! #inktober #inktober2023 #sketchbook (Click photos to view full-size) All sketches at https://roytang.net/photos/tagged/inktober2023/ (Click photos to view full-size)
 - [Oct. 31, 2023, 11:42 p.m. Movies: A Haunting in Venice (2023)](https://roytang.net/2023/10/a-haunting-in-venice-2023/): Clever of Disney+ to have this out on Halloween, it was an appropriate time to watch.I think I enjoyed this one the most out of Branagh&#x27;s 3 Poirot films so far, certainly better than Nile. I haven&#x27;t read the book it was based on, although I read that it was a loose adaptation. Good use of camera work to portray the more &quot;supernatural&quot; elements of the case. Decent performances, though I often have trouble taking Tina Fey seriously. I kind of suspected the final culprit but couldn&#x27;t explain why, though in hindsight the case might have been solveable, had one
 - [Oct. 30, 2023, 10:25 p.m. ](https://roytang.net/2023/10/111324425081407655/): Inktober Day 30 Rush #inktober #inktober2023 #sketchbook (Click photos to view full-size)
 
