@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Pluto](https://roytang.net/2023/11/pluto/)
 - [Old Folks and Tech](https://roytang.net/2023/11/old-folks-and-tech/)
 - [2023 Week 44](https://roytang.net/2023/11/2023-week-44/)
 - [Oct 2023 TV Reviews: Lower Decks, Superman and Harley Quinn](https://roytang.net/2023/11/oct2023-tv-lower-decks-superman-harley/)
 - [Growth and Techno-Optimism](https://roytang.net/2023/10/growth/)
-- [My Wilds of Eldraine Limited Recap](https://roytang.net/2023/10/mtgwoe-limited-recap/)
 
 [View all posts](https://roytang.net/blog)
 
