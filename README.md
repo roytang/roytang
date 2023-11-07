@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [As Good as HTML - Jim Nielsen’s Blog](https://roytang.net/2023/11/49a4d6621ff9748a8486871cf5782543/)
+- [Everything wrong with tech in 2023 (in no particular order) — Joan Westenberg](https://roytang.net/2023/11/9ef27e70cc56a082826a53bc270bd3cc/)
 - [((YouTube)) Christopher Nolan&#x27;s World of Practical Effects](https://roytang.net/2023/11/b8415a243ae3f358b0a6e930db9023ef/)
 - [(Youtube) Shōgun - Official Trailer | Hiroyuki Sanada, Cosmo Jarvis, Anna Sawai | FX](https://roytang.net/2023/11/f0576fcbe38850ab8cdbe3a598dfc7bb/)
 - [Did SEO experts ruin the internet or did Google? - The Verge](https://roytang.net/2023/11/f95dda4e8b27f6d4374e930f07a632ab/)
-- [Pushing for a lower dev estimate is like negotiating better weather with a meteorologist](https://roytang.net/2023/10/55bddacff0d7dd7ad732da1840712ed9/)
-- [Moxie Marlinspike &gt;&gt; Blog &gt;&gt; Career Advice](https://roytang.net/2023/10/437f642305850099cb4c2fad4e239947/)
 
 [View all links](https://roytang.net/links)
 
