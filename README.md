@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [MCU Reviews: Loki S2 / The Marvels](https://roytang.net/2023/11/loki-s2-marvels/)
 - [Words](https://roytang.net/2023/11/words/)
 - [Pluto](https://roytang.net/2023/11/pluto/)
 - [Old Folks and Tech](https://roytang.net/2023/11/old-folks-and-tech/)
 - [2023 Week 44](https://roytang.net/2023/11/2023-week-44/)
-- [Oct 2023 TV Reviews: Lower Decks, Superman and Harley Quinn](https://roytang.net/2023/11/oct2023-tv-lower-decks-superman-harley/)
 
 [View all posts](https://roytang.net/blog)
 
