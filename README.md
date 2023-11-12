@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Something Pretty Right: A History of Visual Basic | Retool](https://roytang.net/2023/11/8aea7f2bb3b189a68c54856dbdd105c5/)
+- [On Writing For Yourself In Public | Brain Baking](https://roytang.net/2023/11/5015fee127fd8ea2f2b6a66b6a7794fe/)
 - [Ambiguous, Unusual Couplings - How do we come together in a changing world?](https://roytang.net/2023/11/5acbc30171a8a0fe13a00cf36e3fcf11/)
 - [A case for the polycrisis, explained - Vox](https://roytang.net/2023/11/fa8fae6db5f931d3e220865ab8ca97ac/)
 - [As Good as HTML - Jim Nielsen’s Blog](https://roytang.net/2023/11/49a4d6621ff9748a8486871cf5782543/)
-- [Everything wrong with tech in 2023 (in no particular order) — Joan Westenberg](https://roytang.net/2023/11/9ef27e70cc56a082826a53bc270bd3cc/)
-- [((YouTube)) Christopher Nolan&#x27;s World of Practical Effects](https://roytang.net/2023/11/b8415a243ae3f358b0a6e930db9023ef/)
 
 [View all links](https://roytang.net/links)
 
