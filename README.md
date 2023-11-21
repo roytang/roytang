@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Super Mario Bros. Wonder](https://roytang.net/2023/11/mario-wonder/)
 - [The August-September Bug](https://roytang.net/2023/11/august-september-bug/)
 - [2023 Week 46](https://roytang.net/2023/11/2023-week-46/)
 - [Blog Anniversaries](https://roytang.net/2023/11/blog-anniversaries/)
 - [2023 Week 45](https://roytang.net/2023/11/2023-week-45/)
-- [MCU Reviews: Loki S2 / The Marvels](https://roytang.net/2023/11/loki-s2-marvels/)
 
 [View all posts](https://roytang.net/blog)
 
