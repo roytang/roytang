@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Wayback Machine Bookmarklet](https://roytang.net/2023/11/57649cb49f3fe44691aea51f6187992c/)
 - [Ben Werdmuller: There&#x27;s no money in free software](https://roytang.net/2023/11/ac6abf0f922838493ae2f2caf7b1bf3a/)
 - [Manifesto for posting online in 2023](https://roytang.net/2023/11/a826876ad2df8f650065e46869f72971/)
 - [Is My Toddler a Stochastic Parrot? | The New Yorker](https://roytang.net/2023/11/cd93a973726e84bcb0d047934c139461/)
 - [A Coder Considers the Waning Days of the Craft | The New Yorker](https://roytang.net/2023/11/44a71d8b9c8d57181f408ddd0d11e738/)
-- [30 Years of Writing on the Internet - Longreads](https://roytang.net/2023/11/a115bd90c5fd3c545080b1b32e1e1648/)
 
 [View all links](https://roytang.net/links)
 
