@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Complete Marvel Run part 6: Daredevil](https://roytang.net/2023/11/cmr-daredevil/)
 - [Everyday Carry](https://roytang.net/2023/11/everyday-carry/)
 - [2023 Week 47](https://roytang.net/2023/11/2023-week-47/)
 - [Youtube vs Adblockers, Apps vs the Open Web](https://roytang.net/2023/11/youtube-adblockers/)
 - [Super Mario Bros. Wonder](https://roytang.net/2023/11/mario-wonder/)
-- [The August-September Bug](https://roytang.net/2023/11/august-september-bug/)
 
 [View all posts](https://roytang.net/blog)
 
