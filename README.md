@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Why We&#x27;re Dropping Basecamp - Duke University Libraries Blogs](https://roytang.net/2023/12/24117e5b08418d70cf9657354b373064/)
+- [Hixie&#x27;s Natural Log: Reflecting on 18 years at Google](https://roytang.net/2023/12/1767af0e342a79b387ee661c5d7e8cb1/)
 - [Wayback Machine Bookmarklet](https://roytang.net/2023/11/57649cb49f3fe44691aea51f6187992c/)
 - [Ben Werdmuller: There&#x27;s no money in free software](https://roytang.net/2023/11/ac6abf0f922838493ae2f2caf7b1bf3a/)
 - [Manifesto for posting online in 2023](https://roytang.net/2023/11/a826876ad2df8f650065e46869f72971/)
-- [Is My Toddler a Stochastic Parrot? | The New Yorker](https://roytang.net/2023/11/cd93a973726e84bcb0d047934c139461/)
-- [A Coder Considers the Waning Days of the Craft | The New Yorker](https://roytang.net/2023/11/44a71d8b9c8d57181f408ddd0d11e738/)
 
 [View all links](https://roytang.net/links)
 
