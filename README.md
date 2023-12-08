@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Browsing the Eastern Side of the Personal Web](https://roytang.net/2023/12/00f25e9ad99c267e3bc5aa290a250916/)
 - [Neil Gaiman&#x27;s Radical Vision for the Future of the Internet - Cal Newport](https://roytang.net/2023/12/a0645497e08f19f9839d45edd2db1e51/)
 - [You don&#x27;t need JavaScript for that - HTMHell](https://roytang.net/2023/12/42956cb4bd47506173a8f26ad6bacff7/)
 - [Why We&#x27;re Dropping Basecamp - Duke University Libraries Blogs](https://roytang.net/2023/12/24117e5b08418d70cf9657354b373064/)
 - [Hixie&#x27;s Natural Log: Reflecting on 18 years at Google](https://roytang.net/2023/12/1767af0e342a79b387ee661c5d7e8cb1/)
-- [Wayback Machine Bookmarklet](https://roytang.net/2023/11/57649cb49f3fe44691aea51f6187992c/)
 
 [View all links](https://roytang.net/links)
 
