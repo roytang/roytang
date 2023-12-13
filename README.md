@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 13, 2023, 8:16 p.m. ](https://roytang.net/2023/12/111573059124863178/): It&#x27;s my first full year with PC Game Pass and apparently that means I get a 2023 recap! #gaming #2023recap (Click photos to view full-size)
 - [Dec. 12, 2023, 7:24 a.m. Twitch Recap](https://roytang.net/2023/12/twitch-recap/): My twitch activity this year has been roughly the same (or a bit lower) compared to last year.
 - [Dec. 12, 2023, 6:21 a.m. ](https://roytang.net/2023/12/111564113332035538/): @jefklak you mean by using the keyboard arrow keys, yeah? The prev/next nav doesn&#x27;t have that kind of keyboard support, even with the previous implementation, since it currently doesn&#x27;t use any JS. You can still tab to the buttons and Enter, but I understand that&#x27;s clunky. I was thinking of adding some progressive JS enhancement to support swipe left/right nav, so I could add the left/right arrow key support as well, but I&#x27;m not sure when I&#x27;ll get around to that. Thanks for the feedback!
 - [Dec. 10, 2023, 2:06 p.m. Reddit Recap 2023](https://roytang.net/2023/12/reddit-recap/): Reddit Recap continues to be a thing. I think this years stats are more or less the same as last year&#x27;s, except I spent 40% less time scrolling through reddit this year. Previously: 2022, 2021
 - [Dec. 5, 2023, 5:07 p.m. ](https://roytang.net/2023/12/111527017079592659/): It&#x27;s that time of the year again when companies pretend December isn&#x27;t part of the year, so here&#x27;s #Duolingo365 (Click photos to view full-size)
-- [Dec. 2, 2023, 11:50 p.m. Movies: Indiana Jones and the Dial of Destiny (2023)](https://roytang.net/2023/12/indiana-jones-and-the-dial-of-destiny-2023/): This was a fun ride, but I feel like too much of the movie is dedicated to the whole &quot;fighting Nazis&quot; side of Indy and could have used a bit more tomb-raiding and puzzle-solving.Fleabag&#x27;s character was ok, though I wish she and the kid got a bit more of a conclusion at the end of it all. Also, I found hilarious the canon explanation as to why Shia Lebouf is not in this film lol.That bit towards the end makes this one of the more fantastical Indy films, but not as much as Crystal Skull!
 
 [View all notes](https://roytang.net/notes)
 
