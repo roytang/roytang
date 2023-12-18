@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Default Apps](https://roytang.net/2023/12/default-apps/)
 - [2023 Week 50](https://roytang.net/2023/12/2023-week-50/)
 - [Khans of Tarkir Arena Open](https://roytang.net/2023/12/ktk-arena-open/)
 - [Baldur&#x27;s Gate 3](https://roytang.net/2023/12/bg3/)
 - [2023 Week 49 Running Out of Year](https://roytang.net/2023/12/2023-week-49/)
-- [TV Reviews: Blue Eye Samurai, Scrubs, Scott Pilgrim Takes Off](https://roytang.net/2023/12/tv-bes-scrubs-pilgrim/)
 
 [View all posts](https://roytang.net/blog)
 
