@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The great tweet archive](https://roytang.net/2023/12/80fb3034631f34ffbd7550946fa4e0a6/)
 - [How to fix the internet | MIT Technology Review](https://roytang.net/2023/12/5a75eb5ad83aa681eba64e75fea626c1/)
 - [Pipe Dreams: The life and times of Yahoo Pipes](https://roytang.net/2023/12/7635cc49175ab6bf2eb3a625d8bbe428/)
 - [Robin Rendle — I am a poem I am not software](https://roytang.net/2023/12/0ee0e764447c972cfc5562218916ccbd/)
 - [Why side projects are essential for creatives—and employers should embrace them | Jonas Downey](https://roytang.net/2023/12/548043306602c8729dc7a0574c7f3820/)
-- [52 things I learned in 2023. This year I worked on fascinating… | by Tom Whitwell | Magnetic Notes | Dec, 2023 | Medium](https://roytang.net/2023/12/3d615cf1ec7069efe2846739edb3bd4a/)
 
 [View all links](https://roytang.net/links)
 
