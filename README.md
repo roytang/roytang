@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 23, 2023, 12:23 a.m. ](https://roytang.net/2023/12/kehaygx/): This archived version seems complete: https://web.archive.org/web/20170606174805/http://www.hannahblumenreich.com/spidey-zine/yj5ax9rkwwntbct6wbkhyup5o11jfo
 - [Dec. 19, 2023, 3:01 p.m. ](https://roytang.net/2023/12/111605796533635333/): Steam year-end stats! #gaming #steam #2023recap (Click photos to view full-size)
 - [Dec. 14, 2023, 7:34 a.m. ](https://roytang.net/2023/12/111575726367894281/): I have yet another #2023Recap, this time for the Switch! (Click photos to view full-size)
 - [Dec. 13, 2023, 8:16 p.m. ](https://roytang.net/2023/12/111573059124863178/): It&#x27;s my first full year with PC Game Pass and apparently that means I get a 2023 recap! #gaming #2023recap (Click photos to view full-size)
 - [Dec. 12, 2023, 7:24 a.m. Twitch Recap](https://roytang.net/2023/12/twitch-recap/): My twitch activity this year has been roughly the same (or a bit lower) compared to last year.
-- [Dec. 12, 2023, 6:21 a.m. ](https://roytang.net/2023/12/111564113332035538/): @jefklak you mean by using the keyboard arrow keys, yeah? The prev/next nav doesn&#x27;t have that kind of keyboard support, even with the previous implementation, since it currently doesn&#x27;t use any JS. You can still tab to the buttons and Enter, but I understand that&#x27;s clunky. I was thinking of adding some progressive JS enhancement to support swipe left/right nav, so I could add the left/right arrow key support as well, but I&#x27;m not sure when I&#x27;ll get around to that. Thanks for the feedback!
 
 [View all notes](https://roytang.net/notes)
 
