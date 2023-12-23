@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Follow Friday #3 and 2023 Blogroll Update](https://roytang.net/2023/12/follow-friday-3/)
 - [Default Apps](https://roytang.net/2023/12/default-apps/)
 - [2023 Week 50](https://roytang.net/2023/12/2023-week-50/)
 - [Khans of Tarkir Arena Open](https://roytang.net/2023/12/ktk-arena-open/)
 - [Baldur&#x27;s Gate 3](https://roytang.net/2023/12/bg3/)
-- [2023 Week 49 Running Out of Year](https://roytang.net/2023/12/2023-week-49/)
 
 [View all posts](https://roytang.net/blog)
 
