@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 24, 2023, 11:32 p.m. ](https://roytang.net/2023/12/111636117088594965/): Obligatory #NocheBuena post. The spread includes Jollibee chicken+spag, McDo fries+nuggets, pork barbecue, seafood paella, lumpia, seafood hofan from Causeway, holiday ham, sliced quezo de bola (edam cheese), lechon bread, puto (Click photos to view full-size)
 - [Dec. 23, 2023, 12:23 a.m. ](https://roytang.net/2023/12/kehaygx/): This archived version seems complete: https://web.archive.org/web/20170606174805/http://www.hannahblumenreich.com/spidey-zine/yj5ax9rkwwntbct6wbkhyup5o11jfo
 - [Dec. 19, 2023, 3:01 p.m. ](https://roytang.net/2023/12/111605796533635333/): Steam year-end stats! #gaming #steam #2023recap (Click photos to view full-size)
 - [Dec. 14, 2023, 7:34 a.m. ](https://roytang.net/2023/12/111575726367894281/): I have yet another #2023Recap, this time for the Switch! (Click photos to view full-size)
 - [Dec. 13, 2023, 8:16 p.m. ](https://roytang.net/2023/12/111573059124863178/): It&#x27;s my first full year with PC Game Pass and apparently that means I get a 2023 recap! #gaming #2023recap (Click photos to view full-size)
-- [Dec. 12, 2023, 7:24 a.m. Twitch Recap](https://roytang.net/2023/12/twitch-recap/): My twitch activity this year has been roughly the same (or a bit lower) compared to last year.
 
 [View all notes](https://roytang.net/notes)
 
