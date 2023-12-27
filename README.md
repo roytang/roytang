@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 End of Year Linkdump](https://roytang.net/2023/12/2023-linkdump/)
 - [TV Reviews: Rick and Morty, Wheel of Time, Doctor Who, Spy X Family](https://roytang.net/2023/12/tv-rich-morty-wheel-of-time-doctor-who-spy-x/)
 - [2023 Week 51](https://roytang.net/2023/12/2023-week-51/)
 - [Sea of Stars](https://roytang.net/2023/12/sea-of-stars/)
 - [Follow Friday #3 and 2023 Blogroll Update](https://roytang.net/2023/12/follow-friday-3/)
-- [Default Apps](https://roytang.net/2023/12/default-apps/)
 
 [View all posts](https://roytang.net/blog)
 
