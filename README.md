@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 28, 2023, 11:25 p.m. ](https://roytang.net/2023/12/18swfh2/): Posted on r/comicbooks: Batman: Can anyone tell me where this was from? Or is it even really from an actual comic?
 - [Dec. 27, 2023, 4:54 a.m. Movies: The Creator (2023)](https://roytang.net/2023/12/the-creator-2023/): Visually stunning and some excellent set pieces in there and I liked the portrayal of near-future Asia being oppressed by the US military because honestly that doesn&#x27;t seem too implausible. The sci-fi plot is more of an allegory for discrimination/acceptance than for our current &quot;AI&quot; landscape. Washington was fine, but that kid&#x27;s performance was superb.
 - [Dec. 27, 2023, 4:51 a.m. Movies: They Cloned Tyrone (2023)](https://roytang.net/2023/12/they-cloned-tyrone-2023/): This felt like a cross between &quot;Blaxploitation&quot; films and conspiracy comedies like Hot Fuzz. The former is not really my jam, but I liked the latter part of it. Kind of weird and the conspiracy involved felt over-the-top-ridiculous. Great performances by John Boyega (first time seeing him outside of Star Wars), Teyonnah Parris (first time seeing her outside of MCU) and Jamie Foxx.
 - [Dec. 26, 2023, 10:56 p.m. ](https://roytang.net/2023/12/111647299570441458/): Spent an hour and a half this morning putting together a new gaming chair. I didn&#x27;t ask for this, but must admit it feels good to sit in #gaming (Click photos to view full-size)
 - [Dec. 26, 2023, 7:56 a.m. ](https://roytang.net/2023/12/111643760866620408/): Survey: What was your favorite movie of 2023?
-- [Dec. 24, 2023, 11:32 p.m. ](https://roytang.net/2023/12/111636117088594965/): Obligatory #NocheBuena post. The spread includes Jollibee chicken+spag, McDo fries+nuggets, pork barbecue, seafood paella, lumpia, seafood hofan from Causeway, holiday ham, sliced quezo de bola (edam cheese), lechon bread, puto (Click photos to view full-size)
 
 [View all notes](https://roytang.net/notes)
 
