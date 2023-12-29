@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Being Mortal](https://roytang.net/2023/12/being-mortal/)
 - [Books: Small Gods by Terry Pratchett (Discworld #13)](https://roytang.net/2023/12/small-gods/)
 - [2023 End of Year Linkdump](https://roytang.net/2023/12/2023-linkdump/)
 - [TV Reviews: Rick and Morty, Wheel of Time, Doctor Who, Spy X Family](https://roytang.net/2023/12/tv-rich-morty-wheel-of-time-doctor-who-spy-x/)
 - [2023 Week 51](https://roytang.net/2023/12/2023-week-51/)
-- [Sea of Stars](https://roytang.net/2023/12/sea-of-stars/)
 
 [View all posts](https://roytang.net/blog)
 
