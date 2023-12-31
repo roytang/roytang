@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Week 52 Happy New Year!](https://roytang.net/2023/12/2023-week-52/)
 - [Archive of New Year&#x27;s Eve Jokes and Comments](https://roytang.net/2023/12/nye-jokes/)
 - [Being Mortal](https://roytang.net/2023/12/being-mortal/)
 - [Books: Small Gods by Terry Pratchett (Discworld #13)](https://roytang.net/2023/12/small-gods/)
 - [2023 End of Year Linkdump](https://roytang.net/2023/12/2023-linkdump/)
-- [TV Reviews: Rick and Morty, Wheel of Time, Doctor Who, Spy X Family](https://roytang.net/2023/12/tv-rich-morty-wheel-of-time-doctor-who-spy-x/)
 
 [View all posts](https://roytang.net/blog)
 
