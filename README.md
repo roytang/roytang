@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 2, 2024, 11:57 p.m. Movies: 2 Fast 2 Furious (2003)](https://roytang.net/2024/01/2-fast-2-furious-2003/): For some reason I found this more enjoyable than the first one, despite still knowing nothing about cars and racing. Maybe having a clear-cut villain was more interesting? Was also surprised at no Vin Diesel in this one, since it feels like the later films are all about him. LOLed at the cutting edge early-2000s cgi
 - [Jan. 1, 2024, 12:40 a.m. ](https://roytang.net/2024/01/111676020480119501/): Obligatory #MediaNoche post. Happy new year! (Click photos to view full-size)
 - [Dec. 31, 2023, 11:10 a.m. Movies: The Fast and the Furious (2001)](https://roytang.net/2023/12/the-fast-and-the-furious-2001/): Never seen any of this series, but the first four are up on NF, so I figured why not? I am not big on cars or racing so the plot did not particularly appeal to me, but some of the racing/chase scenes were intense. You could easily sense Paul Walker actually being a cop from the very beginning (mostly because his insistence on getting into Dom&#x27;s good graces and not caring about what happens to his car makes no sense).
 - [Dec. 29, 2023, 6:53 p.m. ](https://roytang.net/2023/12/kfecprc/): Are they required to use these specific Isuzu jeepneys? Or can local shops produce models compliant with the modern requirements? Hopefully more affordable ones?
 - [Dec. 28, 2023, 11:25 p.m. ](https://roytang.net/2023/12/18swfh2/): Posted on r/comicbooks: Batman: Can anyone tell me where this was from? Or is it even really from an actual comic?
-- [Dec. 27, 2023, 4:54 a.m. Movies: The Creator (2023)](https://roytang.net/2023/12/the-creator-2023/): Visually stunning and some excellent set pieces in there and I liked the portrayal of near-future Asia being oppressed by the US military because honestly that doesn&#x27;t seem too implausible. The sci-fi plot is more of an allegory for discrimination/acceptance than for our current &quot;AI&quot; landscape. Washington was fine, but that kid&#x27;s performance was superb.
 
 [View all notes](https://roytang.net/notes)
 
