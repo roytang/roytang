@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2023 Year in Review](https://roytang.net/2024/01/2023-year-in-review/)
 - [2023 Week 52 Happy New Year!](https://roytang.net/2023/12/2023-week-52/)
 - [Archive of New Year&#x27;s Eve/Day Jokes and Comments](https://roytang.net/2023/12/nye-jokes/)
 - [Being Mortal](https://roytang.net/2023/12/being-mortal/)
 - [Books: Small Gods by Terry Pratchett (Discworld #13)](https://roytang.net/2023/12/small-gods/)
-- [2023 End of Year Linkdump](https://roytang.net/2023/12/2023-linkdump/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -47,7 +47,6 @@ Latest sketches:
 
 Elsewhere:
 
-- [Twitter](https://twitter.com/roytang)
 - [Mastodon](https://indieweb.social/@roytang)
 - [Twitch](https://twitch.tv/twitchyroy)
 - [LinkedIn](https://www.linkedin.com/in/roytang)
