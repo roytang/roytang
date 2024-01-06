@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [Pluralistic: 2024’s public domain is a banger (20 Dec 2023) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2023/12/9d9803277b41b2ce138359f28f37e97d/)
-- [They Want You To Forget What A Film Looks Like - Aftermath](https://roytang.net/2023/12/5a57088a6466118efa1332d508ab0e73/)
-- [2023 Movie Trailer Mashup - YouTube](https://roytang.net/2023/12/774f91328cb03c9359fb9797271b8bc7/)
-- [The great tweet archive](https://roytang.net/2023/12/80fb3034631f34ffbd7550946fa4e0a6/)
-- [How to fix the internet | MIT Technology Review](https://roytang.net/2023/12/5a75eb5ad83aa681eba64e75fea626c1/)
+- [Questionable Advice: “My boss says we don’t need any engineering managers. Is he right?” – charity.wtf](https://roytang.net/2024/01/5407768f4bacba4da3a0fc557354f72f/)
+- [How Big is YouTube? - Ethan Zuckerman](https://roytang.net/2024/01/bd3b1dee29c6d00d7df545761877bccb/)
+- [The Web is Fantastic • Robb Knight](https://roytang.net/2024/01/5b0c2fbcc4f1b7e9a22512912a2bdda7/)
+- [How bad are search results? Let&#x27;s compare Google, Bing, Marginalia, Kagi, Mwmbl, and ChatGPT](https://roytang.net/2024/01/4de8e502b556553110ace35c8d769432/)
+- [The Internet Is About to Get Weird Again](https://roytang.net/2024/01/48373a6a571caaa4529346ebe1158a18/)
 
 [View all links](https://roytang.net/links)
 
