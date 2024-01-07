@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-01-07: The New World Struggles To Be Born](https://roytang.net/2024/01/weeknotes-01-07/)
 - [Books/Games: Spelunky](https://roytang.net/2024/01/spelunky/)
 - [New Year&#x27;s Checklist 2024: Things I&#x27;m Looking Forward To](https://roytang.net/2024/01/2024-checklist/)
 - [2023 Year in Review](https://roytang.net/2024/01/2023-year-in-review/)
 - [2023 Week 52 Happy New Year!](https://roytang.net/2023/12/2023-week-52/)
-- [Archive of New Year&#x27;s Eve/Day Jokes and Comments](https://roytang.net/2023/12/nye-jokes/)
 
 [View all posts](https://roytang.net/blog)
 
