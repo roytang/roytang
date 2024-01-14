@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-01-14](https://roytang.net/2024/01/weeknotes-01-14/)
 - [MTG: My Lost Caverns of Ixalan Set Recap](https://roytang.net/2024/01/mtglci-set-recap/)
 - [Books: This Is How You Lose the Time War by Amal El-Mohtar and Max Gladstone](https://roytang.net/2024/01/how-you-lose-the-time-war/)
 - [Weeknotes 2024-01-07: The New World Struggles To Be Born](https://roytang.net/2024/01/weeknotes-01-07/)
 - [Books/Games: Spelunky](https://roytang.net/2024/01/spelunky/)
-- [New Year&#x27;s Checklist 2024: Things I&#x27;m Looking Forward To](https://roytang.net/2024/01/2024-checklist/)
 
 [View all posts](https://roytang.net/blog)
 
