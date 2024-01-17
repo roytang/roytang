@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 17, 2024, 11:22 a.m. ](https://roytang.net/2024/01/198ml84/): Posted on r/Philippines: I&#x27;m trying to remember an old Filipino movie from the 80s (or possibly early 90s) Baka may makatulong. I remember we watched it in the province; very rarely lang kami manood ng Filipino movie nuon. Some details I remember are: andun si Aiza may ninjas (?!?) or something similar meron isang scene na madilim sa gubat na may kalaban sila na &quot;alien&quot;/&quot;monster&quot;, but they used a Transformer toy to represent it. I remember this part kasi mahilig na ko sa Transformers toys nun so I recognized it (It was one of the G1 Predacons) The first two
 - [Jan. 1, 2024, 12:40 a.m. ](https://roytang.net/2024/01/111676020480119501/): Obligatory #MediaNoche post. Happy new year!
 - [Dec. 31, 2023, 11:10 a.m. Movies: The Fast and the Furious (2001)](https://roytang.net/2023/12/the-fast-and-the-furious-2001/): Never seen any of this series, but the first four are up on NF, so I figured why not? I am not big on cars or racing so the plot did not particularly appeal to me, but some of the racing/chase scenes were intense. You could easily sense Paul Walker actually being a cop from the very beginning (mostly because his insistence on getting into Dom&#x27;s good graces and not caring about what happens to his car makes no sense).
 - [Dec. 29, 2023, 6:53 p.m. ](https://roytang.net/2023/12/kfecprc/): Are they required to use these specific Isuzu jeepneys? Or can local shops produce models compliant with the modern requirements? Hopefully more affordable ones?
 - [Dec. 28, 2023, 11:25 p.m. ](https://roytang.net/2023/12/18swfh2/): Posted on r/comicbooks: Batman: Can anyone tell me where this was from? Or is it even really from an actual comic?
-- [Dec. 27, 2023, 4:54 a.m. Movies: The Creator (2023)](https://roytang.net/2023/12/the-creator-2023/): Visually stunning and some excellent set pieces in there and I liked the portrayal of near-future Asia being oppressed by the US military because honestly that doesn&#x27;t seem too implausible. The sci-fi plot is more of an allegory for discrimination/acceptance than for our current &quot;AI&quot; landscape. Washington was fine, but that kid&#x27;s performance was superb.
 
 [View all notes](https://roytang.net/notes)
 
