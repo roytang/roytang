@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Quiet Death of Ello&#x27;s Big Dreams - Waxy.org](https://roytang.net/2024/01/9aabe0094a119a95b0a063850748af38/)
 - [Where have all the websites gone?](https://roytang.net/2024/01/316b89fe27b623c88ff36506a9697ca5/)
 - [Where is all of the fediverse?](https://roytang.net/2024/01/f4a37dbb64a4a91cd2619afdf99ae289/)
 - [THE 25 BEST FILMS OF 2023: A Video Countdown on Vimeo](https://roytang.net/2024/01/afc42ddb5ce5dfd5e879abf3fa0abaa1/)
 - [How Google perfected the web - The Verge](https://roytang.net/2024/01/046a4aca53daed6d90feef63ba91bbca/)
-- [Questionable Advice: “My boss says we don’t need any engineering managers. Is he right?” – charity.wtf](https://roytang.net/2024/01/5407768f4bacba4da3a0fc557354f72f/)
 
 [View all links](https://roytang.net/links)
 
