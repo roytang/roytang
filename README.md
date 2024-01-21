@@ -6,21 +6,21 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-01-21](https://roytang.net/2024/01/weeknotes-01-21/)
 - [Things with RSS Feeds you might not have known about](https://roytang.net/2024/01/rss-things/)
 - [Weeknotes 2024-01-14](https://roytang.net/2024/01/weeknotes-01-14/)
 - [MTG: My Lost Caverns of Ixalan Set Recap](https://roytang.net/2024/01/mtglci-set-recap/)
 - [Books: This Is How You Lose the Time War by Amal El-Mohtar and Max Gladstone](https://roytang.net/2024/01/how-you-lose-the-time-war/)
-- [Weeknotes 2024-01-07: The New World Struggles To Be Born](https://roytang.net/2024/01/weeknotes-01-07/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
+- [Coming of Age at the Dawn of the Social Internet | The New Yorker](https://roytang.net/2024/01/a7cbe3e366953536eaeddfda69d5aa0e/)
 - [The Quiet Death of Ello&#x27;s Big Dreams - Waxy.org](https://roytang.net/2024/01/9aabe0094a119a95b0a063850748af38/)
 - [Where have all the websites gone?](https://roytang.net/2024/01/316b89fe27b623c88ff36506a9697ca5/)
 - [Where is all of the fediverse?](https://roytang.net/2024/01/f4a37dbb64a4a91cd2619afdf99ae289/)
 - [THE 25 BEST FILMS OF 2023: A Video Countdown on Vimeo](https://roytang.net/2024/01/afc42ddb5ce5dfd5e879abf3fa0abaa1/)
-- [How Google perfected the web - The Verge](https://roytang.net/2024/01/046a4aca53daed6d90feef63ba91bbca/)
 
 [View all links](https://roytang.net/links)
 
