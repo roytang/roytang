@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Books: Reaper Man by Terry Pratchett (Discworld #13)](https://roytang.net/2024/01/reaper-man/)
 - [2000s Manga](https://roytang.net/2024/01/2000s-manga/)
 - [Weeknotes 2024-01-21](https://roytang.net/2024/01/weeknotes-01-21/)
 - [Things with RSS Feeds you might not have known about](https://roytang.net/2024/01/rss-things/)
 - [Weeknotes 2024-01-14](https://roytang.net/2024/01/weeknotes-01-14/)
-- [MTG: My Lost Caverns of Ixalan Set Recap](https://roytang.net/2024/01/mtglci-set-recap/)
 
 [View all posts](https://roytang.net/blog)
 
