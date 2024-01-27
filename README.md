@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Running a Mastodon instance entirely free forever | Josh&#x27;s Cool Dev Blog](https://roytang.net/2024/01/94672576c0d247b930236d4ba3a33f61/)
 - [404 Media: We Need Your Email Address](https://roytang.net/2024/01/9bd60fd4f79cdb6478df1929e448aad0/)
 - [A unified theory of fucks | A Working Library](https://roytang.net/2024/01/89a325a547e57563456c0ce9f44fcd48/)
 - [Coming of Age at the Dawn of the Social Internet | The New Yorker](https://roytang.net/2024/01/a7cbe3e366953536eaeddfda69d5aa0e/)
 - [The Quiet Death of Ello&#x27;s Big Dreams - Waxy.org](https://roytang.net/2024/01/9aabe0094a119a95b0a063850748af38/)
-- [Where have all the websites gone?](https://roytang.net/2024/01/316b89fe27b623c88ff36506a9697ca5/)
 
 [View all links](https://roytang.net/links)
 
