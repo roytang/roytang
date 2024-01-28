@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-01-28](https://roytang.net/2024/01/weeknotes-01-28/)
 - [Books: Reaper Man by Terry Pratchett (Discworld #13)](https://roytang.net/2024/01/reaper-man/)
 - [2000s Manga](https://roytang.net/2024/01/2000s-manga/)
 - [Weeknotes 2024-01-21](https://roytang.net/2024/01/weeknotes-01-21/)
 - [Things with RSS Feeds you might not have known about](https://roytang.net/2024/01/rss-things/)
-- [Weeknotes 2024-01-14](https://roytang.net/2024/01/weeknotes-01-14/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 24, 2024, 11:28 p.m. Geekfight League Final](https://roytang.net/2024/01/geekfight-league-final/): This was the final game of the Geekfight League &quot;season 1&quot;, with a &quot;Star Trek&quot; theme. Kelvin Timeline - 3pts (x2 for Joker) George Takei - 3pts Music - 3pts Bridge Crew - 4pts Science - 4pts Why is Star Trek - 6pts We did so terribly. We actually finished 4th out of 5 teams! However, our league points lead was insurmountable, so we still finished first in the league! Our prize for this was a replice of Stormbringer, Thor&#x27;s axe from Endgame, which I had to bring home, earning me a funny look from a taxi driver! Event Page
 - [Jan. 17, 2024, 11:22 a.m. ](https://roytang.net/2024/01/198ml84/): Posted on r/Philippines: I&#x27;m trying to remember an old Filipino movie from the 80s (or possibly early 90s) Baka may makatulong. I remember we watched it in the province; very rarely lang kami manood ng Filipino movie nuon. Some details I remember are: andun si Aiza may ninjas (?!?) or something similar meron isang scene na madilim sa gubat na may kalaban sila na &quot;alien&quot;/&quot;monster&quot;, but they used a Transformer toy to represent it. I remember this part kasi mahilig na ko sa Transformers toys nun so I recognized it (It was one of the G1 Predacons) The first two
 - [Jan. 1, 2024, 12:40 a.m. ](https://roytang.net/2024/01/111676020480119501/): Obligatory #MediaNoche post. Happy new year!
 - [Dec. 31, 2023, 11:10 a.m. Movies: The Fast and the Furious (2001)](https://roytang.net/2023/12/the-fast-and-the-furious-2001/): Never seen any of this series, but the first four are up on NF, so I figured why not? I am not big on cars or racing so the plot did not particularly appeal to me, but some of the racing/chase scenes were intense. You could easily sense Paul Walker actually being a cop from the very beginning (mostly because his insistence on getting into Dom&#x27;s good graces and not caring about what happens to his car makes no sense).
 - [Dec. 29, 2023, 6:53 p.m. ](https://roytang.net/2023/12/kfecprc/): Are they required to use these specific Isuzu jeepneys? Or can local shops produce models compliant with the modern requirements? Hopefully more affordable ones?
-- [Dec. 28, 2023, 11:25 p.m. ](https://roytang.net/2023/12/18swfh2/): Posted on r/comicbooks: Batman: Can anyone tell me where this was from? Or is it even really from an actual comic?
 
 [View all notes](https://roytang.net/notes)
 
