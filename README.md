@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-02-04](https://roytang.net/2024/02/weeknotes-02-04/)
 - [Movies/TV Watched Jan 2024](https://roytang.net/2024/02/movies-tv-jan-2024/)
 - [Book Review: Calamity by Brandon Sanderson](https://roytang.net/2024/01/calamity/)
 - [Book Review: Firefight by Brandon Sanderson](https://roytang.net/2024/01/firefight/)
 - [Weeknotes 2024-01-28](https://roytang.net/2024/01/weeknotes-01-28/)
-- [Books: Reaper Man by Terry Pratchett (Discworld #13)](https://roytang.net/2024/01/reaper-man/)
 
 [View all posts](https://roytang.net/blog)
 
