@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Today’s YouTubers are repeating the mistakes of yesterday’s bloggers – A Whole Lotta Nothing](https://roytang.net/2024/02/883e88fa93f773fb749dc2222fc2c71b/)
+- [Why Don&#x27;t We Just Kill the Kid In the Omelas Hole by Isabel J. Kim : Clarkesworld Magazine – Science Fiction &amp; Fantasy](https://roytang.net/2024/02/725872fb552330b46823e903a741b9fc/)
+- [In Loving Memory of Square Checkbox @ tonsky.me](https://roytang.net/2024/02/2e65ee60098bf7e1fd1a5b5341ef9dca/)
 - [Running a Mastodon instance entirely free forever | Josh&#x27;s Cool Dev Blog](https://roytang.net/2024/01/94672576c0d247b930236d4ba3a33f61/)
 - [404 Media: We Need Your Email Address](https://roytang.net/2024/01/9bd60fd4f79cdb6478df1929e448aad0/)
-- [A unified theory of fucks | A Working Library](https://roytang.net/2024/01/89a325a547e57563456c0ce9f44fcd48/)
-- [Coming of Age at the Dawn of the Social Internet | The New Yorker](https://roytang.net/2024/01/a7cbe3e366953536eaeddfda69d5aa0e/)
-- [The Quiet Death of Ello&#x27;s Big Dreams - Waxy.org](https://roytang.net/2024/01/9aabe0094a119a95b0a063850748af38/)
 
 [View all links](https://roytang.net/links)
 
