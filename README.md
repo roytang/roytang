@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Fediverse Bridge, Bluesky, and Importing Comments](https://roytang.net/2024/02/fediverse-bluesky-comments/)
 - [Weeknotes 2024-02-011: Gong XI Fa Cai](https://roytang.net/2024/02/weeknotes-02-11/)
 - [Retro Game Review: Super Mario Land 2 (Game Boy)](https://roytang.net/2024/02/super-mario-land-2/)
 - [Weeknotes 2024-02-04](https://roytang.net/2024/02/weeknotes-02-04/)
 - [Movies/TV Watched Jan 2024](https://roytang.net/2024/02/movies-tv-jan-2024/)
-- [Book Review: Calamity by Brandon Sanderson](https://roytang.net/2024/01/calamity/)
 
 [View all posts](https://roytang.net/blog)
 
