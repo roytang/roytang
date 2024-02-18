@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [[this is aaronland] Wishful Thinking – A critical discussion of &quot;extended reality&quot; technologies in the cultural heritage sector](https://roytang.net/2024/02/cf62d71ac7348a9da7ea14a678665f56/)
+- [I f-word love the web・The Jolly Teapot](https://roytang.net/2024/02/c1b2d0e81f08aa6ba3b46af5d07c93de/)
 - [Write code for the web](https://roytang.net/2024/02/0cc8767a0d71373023625edc99f65477/)
 - [How to set your domain as your handle - Bluesky](https://roytang.net/2024/02/2a1acbed2c43cda28dfcd2b228f647dd/)
 - [Today’s YouTubers are repeating the mistakes of yesterday’s bloggers – A Whole Lotta Nothing](https://roytang.net/2024/02/883e88fa93f773fb749dc2222fc2c71b/)
-- [Why Don&#x27;t We Just Kill the Kid In the Omelas Hole by Isabel J. Kim : Clarkesworld Magazine – Science Fiction &amp; Fantasy](https://roytang.net/2024/02/725872fb552330b46823e903a741b9fc/)
-- [In Loving Memory of Square Checkbox @ tonsky.me](https://roytang.net/2024/02/2e65ee60098bf7e1fd1a5b5341ef9dca/)
 
 [View all links](https://roytang.net/links)
 
