@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [With the rise of AI, web crawlers are suddenly controversial - The Verge](https://roytang.net/2024/02/21532523a7fbce0380389b86ff7568dd/)
+- [I think about AI like I do Plastics.  | Apple Annie’s Microblog](https://roytang.net/2024/02/ce550c8d34a129e19e482fc6e0a33772/)
+- [The web is mostly links and forms | Go Make Things](https://roytang.net/2024/02/7f201cbbf81b989ade08428c5b3da5bf/)
+- [“‘AI’ is pretty much just shorthand for mediocre” — Piper Haywood](https://roytang.net/2024/02/8d8f72759fb5d9fa29173d405c98cfaa/)
 - [100 things you can do on your personal website | James&#x27; Coffee Blog](https://roytang.net/2024/02/2465cba6c9f712c8e0a51815cca3dd9e/)
-- [[this is aaronland] Wishful Thinking – A critical discussion of &quot;extended reality&quot; technologies in the cultural heritage sector](https://roytang.net/2024/02/cf62d71ac7348a9da7ea14a678665f56/)
-- [I f-word love the web・The Jolly Teapot](https://roytang.net/2024/02/c1b2d0e81f08aa6ba3b46af5d07c93de/)
-- [Write code for the web](https://roytang.net/2024/02/0cc8767a0d71373023625edc99f65477/)
-- [How to set your domain as your handle - Bluesky](https://roytang.net/2024/02/2a1acbed2c43cda28dfcd2b228f647dd/)
 
 [View all links](https://roytang.net/links)
 
