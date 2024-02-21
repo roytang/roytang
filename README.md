@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 22, 2024, 3:43 a.m. ](https://roytang.net/2024/02/111971178513928495/): @Sibshops yeah that&#x27;s what i assumed should happen, so IDK why Tusky is still showing me these
+- [Feb. 22, 2024, 3:36 a.m. ](https://roytang.net/2024/02/111971151235763302/): Do filters not work in Tusky? I added some filters to help with the latest version of the spam wave and the messages dont appear on the web version but are still shown in tusky&#x27;s notifications #tuskyapp #tusky
 - [Feb. 18, 2024, 12:36 p.m. ](https://roytang.net/2024/02/111950627425751034/): Finally got hit by the spam wave people are talking about now I dont feel left out
 - [Feb. 8, 2024, 11:17 p.m. Geekfight Hobby Stadium](https://roytang.net/2024/02/geekfight-hobby-stadium/): We attended Geekfight @ Hobby Stadium. Unfortunately, attendance was pretty low on this one, possibly due to the pre-long weekend traffic; the only other teams were a team of 2 and a team of 1, so it felt a bit like we were bullying them lol. We won this one. Hobby Stadium - 4pts (ROUND LEADER) MTG - 5pts x2 for joker (ROUND LEADER) WWE - 2pts Basketball - 4pts (ROUND LEADER) Pokemon - 1pts (tied for ROUND LEADER) Disney - 6pts (tied for ROUND LEADER) In addition to the usual winner prize, they gave away themed prizes for teams
 - [Feb. 8, 2024, 10:43 a.m. ](https://roytang.net/2024/02/1all8ms/): Posted on r/Stellaris: Haven&#x27;t played since 2020, have there been a lot of base game changes? Which DLC would be good to get? Thinking of giving it another go. I only have Utopia and Apocalypse. If I could only get one of the other available DLCs, which one would be most interesting?
-- [Jan. 28, 2024, 5:52 p.m. ](https://roytang.net/2024/01/111832960981175617/): @secretgeek unrelated (I have no knowledge of this subject), but I spent a few minutes jumping around your wiki, I think it&#x27;s neat!
-- [Jan. 24, 2024, 11:28 p.m. Geekfight League Final](https://roytang.net/2024/01/geekfight-league-final/): This was the final game of the Geekfight League &quot;season 1&quot;, with a &quot;Star Trek&quot; theme. Kelvin Timeline - 3pts (x2 for Joker) George Takei - 3pts Music - 3pts Bridge Crew - 4pts Science - 4pts Why is Star Trek - 6pts We did so terribly. We actually finished 4th out of 5 teams! However, our league points lead was insurmountable, so we still finished first in the league! Our prize for this was a replice of Stormbringer, Thor&#x27;s axe from Endgame, which I had to bring home, earning me a funny look from a taxi driver! Event Page
 
 [View all notes](https://roytang.net/notes)
 
