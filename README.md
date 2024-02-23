@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Persona 5 Tactica](https://roytang.net/2024/02/persona-5-tactica/)
 - [The Complete Marvel Run part 7: Doctor Strange](https://roytang.net/2024/02/cmr-doctor-strange/)
 - [Weeknotes 2024-02-18](https://roytang.net/2024/02/weeknotes-02-18/)
 - [Fediverse Bridge, Bluesky, and Importing Comments](https://roytang.net/2024/02/fediverse-bluesky-comments/)
 - [Weeknotes 2024-02-11: Gong XI Fa Cai](https://roytang.net/2024/02/weeknotes-02-11/)
-- [Retro Game Review: Super Mario Land 2 (Game Boy)](https://roytang.net/2024/02/super-mario-land-2/)
 
 [View all posts](https://roytang.net/blog)
 
