@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [cohost! - &quot;AI Is Already Better Than You&quot;](https://roytang.net/2024/03/79670a5f9b182b1503c6bba865823c08/)
 - [The Subversive Hyperlink - Jim Nielsen’s Blog](https://roytang.net/2024/02/21104eef93f659a3d311af834799aef7/)
 - [JavaScript Bloat in 2024 @ tonsky.me](https://roytang.net/2024/02/f29a6ee1ffde3971d3a7d3a34500f921/)
 - [How Google is killing independent sites like ours - HouseFresh](https://roytang.net/2024/02/ebd3c4ffd923f6c26b62727dc5fa8fd1/)
 - [With the rise of AI, web crawlers are suddenly controversial - The Verge](https://roytang.net/2024/02/21532523a7fbce0380389b86ff7568dd/)
-- [I think about AI like I do Plastics.  | Apple Annie’s Microblog](https://roytang.net/2024/02/ce550c8d34a129e19e482fc6e0a33772/)
 
 [View all links](https://roytang.net/links)
 
