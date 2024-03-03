@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-03-03 How Do They Keep Sneaking Past Us?](https://roytang.net/2024/03/weeknotes-03-03/)
 - [Weeknotes 2024-02-25](https://roytang.net/2024/02/weeknotes-02-25/)
 - [Persona 5 Tactica](https://roytang.net/2024/02/persona-5-tactica/)
 - [The Complete Marvel Run part 7: Doctor Strange](https://roytang.net/2024/02/cmr-doctor-strange/)
 - [Weeknotes 2024-02-18](https://roytang.net/2024/02/weeknotes-02-18/)
-- [Fediverse Bridge, Bluesky, and Importing Comments](https://roytang.net/2024/02/fediverse-bluesky-comments/)
 
 [View all posts](https://roytang.net/blog)
 
