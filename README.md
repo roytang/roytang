@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 8, 2024, 9:44 p.m. ](https://roytang.net/2024/03/112060366344106930/): Haven&#x27;t been to the QC circle in a while
 - [Feb. 28, 2024, 10:23 a.m. ](https://roytang.net/2024/02/112006724358484916/): @anniegreens https://tonsky.me/
 - [Feb. 24, 2024, 7:23 a.m. ](https://roytang.net/2024/02/111983368101089177/): Temporarily turning off notifs from non-followers because Tusky still keeps notifying me about spam messages despite the filters. Hopefully I can open it up again after a few days
 - [Feb. 22, 2024, 12:53 p.m. ](https://roytang.net/2024/02/111973342274002940/): Mastodon should also provide a filter to ignore mentions from newly created accounts (twitter had sth like this) and maybe even mentions where N or more people are tagged
 - [Feb. 22, 2024, 3:43 a.m. ](https://roytang.net/2024/02/111971178513928495/): @Sibshops yeah that&#x27;s what i assumed should happen, so IDK why Tusky is still showing me these
-- [Feb. 22, 2024, 3:36 a.m. ](https://roytang.net/2024/02/111971151235763302/): Do filters not work in Tusky? I added some filters to help with the latest version of the spam wave and the messages dont appear on the web version but are still shown in tusky&#x27;s notifications #tuskyapp #tusky [10:46] The spam notifs showed in metatext on ipados as well, so its not just a tusky thing apparently
 
 [View all notes](https://roytang.net/notes)
 
