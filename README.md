@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [An Android App That Does Nothing](https://roytang.net/2024/03/does-nothing/)
 - [Weeknotes 2024-03-10](https://roytang.net/2024/03/weeknotes-03-10/)
 - [Weeknotes 2024-03-03 How Do They Keep Sneaking Past Us?](https://roytang.net/2024/03/weeknotes-03-03/)
 - [Weeknotes 2024-02-25](https://roytang.net/2024/02/weeknotes-02-25/)
 - [Persona 5 Tactica](https://roytang.net/2024/02/persona-5-tactica/)
-- [The Complete Marvel Run part 7: Doctor Strange](https://roytang.net/2024/02/cmr-doctor-strange/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 11, 2024, 11:35 p.m. Disney/Pixar Movie Quiz Night @ Cinema 76](https://roytang.net/2024/03/cinema76-disney/): We attended a Disney/Pixar movie themed quiz night at a new venue (new for us), Cinema 76 Cafe. The venue was a combination of cafe + a small theatre were they screened a couple of movies a day. While this quiz still followed the usual whiteboard answer format as our other quiz nights, it was a bit more strict. Spelling/punctuation had to be accurate, and we had to put our phones into a white box they gave us while the rounds were ongoing! There were 4 regular rounds and 2 bonus rounds with I think 15 questions each. Round 1:
 - [March 10, 2024, 12:41 p.m. ](https://roytang.net/2024/03/112069554535261848/): In memory of Akira Toriyama: Dragon Ball opening theme PH version: https://www.youtube.com/watch?v=r5ioabxxm_M Dragon Ball Z opening theme PH version: https://www.youtube.com/watch?v=E5ChXjdLnPM (Both videos are in English)
 - [March 10, 2024, 12:06 p.m. ](https://roytang.net/2024/03/112069417205794988/): @ajroach42 this might depend on your region, but where I am there is a Shonen Jump app which has all the issues; first few chapters are free but you need a paid sub to read them all
 - [March 8, 2024, 9:44 p.m. ](https://roytang.net/2024/03/112060366344106930/): Haven&#x27;t been to the QC circle in a while
 - [Feb. 28, 2024, 10:23 a.m. ](https://roytang.net/2024/02/112006724358484916/): @anniegreens https://tonsky.me/
-- [Feb. 24, 2024, 7:23 a.m. ](https://roytang.net/2024/02/111983368101089177/): Temporarily turning off notifs from non-followers because Tusky still keeps notifying me about spam messages despite the filters. Hopefully I can open it up again after a few days
 
 [View all notes](https://roytang.net/notes)
 
