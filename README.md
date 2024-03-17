@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-03-17](https://roytang.net/2024/03/weeknotes-03-17/)
 - [An Android App That Does Nothing](https://roytang.net/2024/03/does-nothing/)
 - [Weeknotes 2024-03-10](https://roytang.net/2024/03/weeknotes-03-10/)
 - [Weeknotes 2024-03-03 How Do They Keep Sneaking Past Us?](https://roytang.net/2024/03/weeknotes-03-03/)
 - [Weeknotes 2024-02-25](https://roytang.net/2024/02/weeknotes-02-25/)
-- [Persona 5 Tactica](https://roytang.net/2024/02/persona-5-tactica/)
 
 [View all posts](https://roytang.net/blog)
 
