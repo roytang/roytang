@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Comics: Do A Powerbomb](https://roytang.net/2024/03/powerbomb/)
 - [User Agents](https://roytang.net/2024/03/user-agents/)
 - [Weeknotes 2024-03-17](https://roytang.net/2024/03/weeknotes-03-17/)
 - [An Android App That Does Nothing](https://roytang.net/2024/03/does-nothing/)
 - [Weeknotes 2024-03-10](https://roytang.net/2024/03/weeknotes-03-10/)
-- [Weeknotes 2024-03-03 How Do They Keep Sneaking Past Us?](https://roytang.net/2024/03/weeknotes-03-03/)
 
 [View all posts](https://roytang.net/blog)
 
