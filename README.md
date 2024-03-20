@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 20, 2024, 8:54 p.m. ](https://roytang.net/2024/03/112128116062049690/): @bozhkov Thanks, good to know, but I generally prefer web-based feed readers instead of client-based ones (so I can access anywhere), and in those cases rendering the entire web page can be problematic security wise
+- [March 20, 2024, 8:39 p.m. ](https://roytang.net/2024/03/112128055412962771/): I love RSS, but one thing I don&#x27;t like is that readers typically homogenize the appearance of posts from different sources, which is fine that&#x27;s how aggregators work. But I miss seeing the flair of individual websites so I often find myself clicking thru entries to see their site designs. I kind of want a stylesheet element in the RSS feeds and feed readers could have a toggle where you can view each feed&#x27;s entries with their custom styles. I understand how that could break things though.
 - [March 17, 2024, 12:22 p.m. ](https://roytang.net/2024/03/112109114270806968/): Every time my site gets a spike in resource usage it&#x27;s always some kind of SEO or AI crawler bot.
 - [March 11, 2024, 11:35 p.m. Disney/Pixar Movie Quiz Night @ Cinema 76](https://roytang.net/2024/03/cinema76-disney/): We attended a Disney/Pixar movie themed quiz night at a new venue (new for us), Cinema 76 Cafe. The venue was a combination of cafe + a small theatre were they screened a couple of movies a day. While this quiz still followed the usual whiteboard answer format as our other quiz nights, it was a bit more strict. Spelling/punctuation had to be accurate, and we had to put our phones into a white box they gave us while the rounds were ongoing! There were 4 regular rounds and 2 bonus rounds with I think 15 questions each. Round 1:
 - [March 10, 2024, 12:41 p.m. ](https://roytang.net/2024/03/112069554535261848/): In memory of Akira Toriyama: Dragon Ball opening theme PH version: https://www.youtube.com/watch?v=r5ioabxxm_M Dragon Ball Z opening theme PH version: https://www.youtube.com/watch?v=E5ChXjdLnPM (Both videos are in English)
-- [March 10, 2024, 12:06 p.m. ](https://roytang.net/2024/03/112069417205794988/): @ajroach42 this might depend on your region, but where I am there is a Shonen Jump app which has all the issues; first few chapters are free but you need a paid sub to read them all
-- [March 8, 2024, 9:44 p.m. ](https://roytang.net/2024/03/112060366344106930/): Haven&#x27;t been to the QC circle in a while
 
 [View all notes](https://roytang.net/notes)
 
