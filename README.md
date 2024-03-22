@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Hot take: It’s okay if we don’t consume all of the world’s information before we die — Keenan](https://roytang.net/2024/03/a1b35ffb61079c8db5569abac15a5689/)
+- [Are We Watching The Internet Die?](https://roytang.net/2024/03/c315b264b26fdc41bd5412ab711c868b/)
+- [A Society That Lost Focus](https://roytang.net/2024/03/9eb4b87393dea4aa3df3cb9ab075faf7/)
+- [Things that don&#x27;t work](https://roytang.net/2024/03/e71c82c10a71779502ce941c635e1b51/)
 - [Losing the imitation game](https://roytang.net/2024/03/35a20a00bf7a9d22d8dfb8b0596b921a/)
-- [Facing reality, whether it&#x27;s about Apple or the EU, is a core requirement for good management – Baldur Bjarnason](https://roytang.net/2024/03/266a47dc2e4eab3eb0e2c425bbf3463e/)
-- [More Files Please - Jim Nielsen’s Blog](https://roytang.net/2024/03/a2938073a54019c7a36be2fb1a8735e7/)
-- [Blogging is the medium of incomplete stories | James&#x27; Coffee Blog](https://roytang.net/2024/03/864ce2d90f72a4bd89e982f83ca817e5/)
-- [Interactivity of personal sites and webmentions | dead.garden](https://roytang.net/2024/03/f56ff5c6b6114b6b1a0c9ead5f338fec/)
 
 [View all links](https://roytang.net/links)
 
