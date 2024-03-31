@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-03-31 Easter? I hardly knew her!](https://roytang.net/2024/03/weeknotes-03-31/)
 - [Weeknotes 2024-03-24](https://roytang.net/2024/03/weeknotes-03-24/)
 - [Comics: Do A Powerbomb](https://roytang.net/2024/03/powerbomb/)
 - [User Agents](https://roytang.net/2024/03/user-agents/)
 - [Weeknotes 2024-03-17](https://roytang.net/2024/03/weeknotes-03-17/)
-- [An Android App That Does Nothing](https://roytang.net/2024/03/does-nothing/)
 
 [View all posts](https://roytang.net/blog)
 
