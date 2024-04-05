@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Tales of Arise](https://roytang.net/2024/04/tales-of-arise/)
 - [2024 Site Update](https://roytang.net/2024/04/2024-site-update/)
 - [Movies/TV Watched - Feb/Mar 2024](https://roytang.net/2024/04/movies-tv-feb-mar-2024/)
 - [Weeknotes 2024-03-31 Easter? I hardly knew her!](https://roytang.net/2024/03/weeknotes-03-31/)
 - [Weeknotes 2024-03-24](https://roytang.net/2024/03/weeknotes-03-24/)
-- [Comics: Do A Powerbomb](https://roytang.net/2024/03/powerbomb/)
 
 [View all posts](https://roytang.net/blog)
 
