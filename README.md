@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I am not a supplier | Musings about software](https://roytang.net/2024/04/7e8491af2353005342e852b34136f898/)
 - [Hot take: It’s okay if we don’t consume all of the world’s information before we die — Keenan](https://roytang.net/2024/03/a1b35ffb61079c8db5569abac15a5689/)
 - [Are We Watching The Internet Die?](https://roytang.net/2024/03/c315b264b26fdc41bd5412ab711c868b/)
 - [A Society That Lost Focus](https://roytang.net/2024/03/9eb4b87393dea4aa3df3cb9ab075faf7/)
 - [Things that don&#x27;t work](https://roytang.net/2024/03/e71c82c10a71779502ce941c635e1b51/)
-- [Losing the imitation game](https://roytang.net/2024/03/35a20a00bf7a9d22d8dfb8b0596b921a/)
 
 [View all links](https://roytang.net/links)
 
