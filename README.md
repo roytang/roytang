@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [NYC Chicken Shop Replaces Cashier With Woman in Philippines On Zoom](https://roytang.net/2024/04/77696cd587be55aedba6620b3cea1b8f/)
 - [Cap Watkins – The Sliding Scale of Giving a Fuck](https://roytang.net/2024/04/4a89cb4e5cafafd15e10a92b63c84178/)
 - [the biggest threat facing your team, whether you’re a game developer or a tech founder or a CEO, is not what you think | by Doc Burford | Mar, 2024 | Medium](https://roytang.net/2024/04/c9c63e84d28ba0fb12e9c9f546fc27d5/)
 - [Growth is a mind cancer – Manu](https://roytang.net/2024/04/779ff06eea062c887009ae931bd81855/)
 - [Why we prefer computers over consoles when introducing kids to gaming |  Bryan Braun - Frontend Developer](https://roytang.net/2024/04/cf1a11999b326ef8aaa822e259010768/)
-- [The one about the web developer job market – Baldur Bjarnason](https://roytang.net/2024/04/3c8ee18958aa6055e458350dfb121497/)
 
 [View all links](https://roytang.net/links)
 
