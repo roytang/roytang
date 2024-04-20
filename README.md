@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Boardgames: Thunder Road Vendetta, Arkham Horror LCG Innsmouth Conspiracy](https://roytang.net/2024/04/thunder-road-innsmouth/)
 - [Weeknotes 2024-04-14 Spring Cleaning](https://roytang.net/2024/04/weeknotes-04-14/)
 - [In The Neighborhood](https://roytang.net/2024/04/neighborhood/)
 - [Weeknotes 2024-04-07](https://roytang.net/2024/04/weeknotes-04-07/)
 - [Books: Interesting Times by Terry Pratchett (Discworld #17)](https://roytang.net/2024/04/interesting-times/)
-- [Tales of Arise](https://roytang.net/2024/04/tales-of-arise/)
 
 [View all posts](https://roytang.net/blog)
 
