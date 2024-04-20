@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Scrabble: Mattel launches new version of game which is &#x27;less competitive&#x27;](https://roytang.net/2024/04/1995e2faf7490b9abb829a76ca8403c3/)
+- [Making version noir](https://roytang.net/2024/04/d58823e062b6ae6b485653b98939852e/)
+- [We Need To Rewild The Internet](https://roytang.net/2024/04/f39f2f2176b89f9b91fcc4d5b75a906e/)
 - [NYC Chicken Shop Replaces Cashier With Woman in Philippines On Zoom](https://roytang.net/2024/04/77696cd587be55aedba6620b3cea1b8f/)
 - [Cap Watkins – The Sliding Scale of Giving a Fuck](https://roytang.net/2024/04/4a89cb4e5cafafd15e10a92b63c84178/)
-- [the biggest threat facing your team, whether you’re a game developer or a tech founder or a CEO, is not what you think | by Doc Burford | Mar, 2024 | Medium](https://roytang.net/2024/04/c9c63e84d28ba0fb12e9c9f546fc27d5/)
-- [Growth is a mind cancer – Manu](https://roytang.net/2024/04/779ff06eea062c887009ae931bd81855/)
-- [Why we prefer computers over consoles when introducing kids to gaming |  Bryan Braun - Frontend Developer](https://roytang.net/2024/04/cf1a11999b326ef8aaa822e259010768/)
 
 [View all links](https://roytang.net/links)
 
