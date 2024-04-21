@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Anxiety When Complaining](https://roytang.net/2024/04/anxiety-complaining/)
 - [Weeknotes 2024-04-21](https://roytang.net/2024/04/weeknotes-04-21/)
 - [Boardgames: Thunder Road Vendetta, Arkham Horror LCG Innsmouth Conspiracy](https://roytang.net/2024/04/thunder-road-innsmouth/)
 - [Weeknotes 2024-04-14 Spring Cleaning](https://roytang.net/2024/04/weeknotes-04-14/)
 - [In The Neighborhood](https://roytang.net/2024/04/neighborhood/)
-- [Weeknotes 2024-04-07](https://roytang.net/2024/04/weeknotes-04-07/)
 
 [View all posts](https://roytang.net/blog)
 
