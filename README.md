@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Man Who Killed Google Search](https://roytang.net/2024/04/47997720e29d706ec305721c512d2ab9/)
 - [NASA’s Voyager 1 Resumes Sending Engineering Updates to Earth – Voyager](https://roytang.net/2024/04/3b70e524761f5fd1c71bd2029a9ad2a5/)
 - [Stop Acting Like You&#x27;re Famous](https://roytang.net/2024/04/7e78375dbc02804a934c55099fa9ef2f/)
 - [I pray you&#x27;re born with gills](https://roytang.net/2024/04/28f0add841c8a492278520ea62e5306a/)
 - [Scrabble: Mattel launches new version of game which is &#x27;less competitive&#x27;](https://roytang.net/2024/04/1995e2faf7490b9abb829a76ca8403c3/)
-- [Making version noir](https://roytang.net/2024/04/d58823e062b6ae6b485653b98939852e/)
 
 [View all links](https://roytang.net/links)
 
