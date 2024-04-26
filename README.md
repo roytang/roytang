@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [MTG: My Murders at Karlov Manor Set Recap](https://roytang.net/2024/04/mtgmkm-set-recap/)
 - [Shogun (TV Show)](https://roytang.net/2024/04/shoguntv/)
 - [Anxiety When Complaining](https://roytang.net/2024/04/anxiety-complaining/)
 - [Weeknotes 2024-04-21](https://roytang.net/2024/04/weeknotes-04-21/)
 - [Boardgames: Thunder Road Vendetta, Arkham Horror LCG Innsmouth Conspiracy](https://roytang.net/2024/04/thunder-road-innsmouth/)
-- [Weeknotes 2024-04-14 Spring Cleaning](https://roytang.net/2024/04/weeknotes-04-14/)
 
 [View all posts](https://roytang.net/blog)
 
