@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [What Precious Things Does The Corporate World Steal From Us? — Ludicity](https://roytang.net/2024/05/89457b455347354b45b8dd26e13d0052/)
+- [Save the Web by Being Nice](https://roytang.net/2024/05/5d37993440386016ee59e147f86bdff0/)
 - [Passkeys: A Shattered Dream - Firstyear&#x27;s blog-a-log](https://roytang.net/2024/04/c06f751a01a831640b2157247859cff8/)
 - [The Man Who Killed Google Search](https://roytang.net/2024/04/47997720e29d706ec305721c512d2ab9/)
 - [NASA’s Voyager 1 Resumes Sending Engineering Updates to Earth – Voyager](https://roytang.net/2024/04/3b70e524761f5fd1c71bd2029a9ad2a5/)
-- [Stop Acting Like You&#x27;re Famous](https://roytang.net/2024/04/7e78375dbc02804a934c55099fa9ef2f/)
-- [I pray you&#x27;re born with gills](https://roytang.net/2024/04/28f0add841c8a492278520ea62e5306a/)
 
 [View all links](https://roytang.net/links)
 
