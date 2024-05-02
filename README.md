@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Back up everything: corps don’t care about your data but you should](https://roytang.net/2024/05/e496b8f0e429af90240f7f89300a757e/)
+- [Bill Gates, Man United and 20 other sites that ban linking to them – Malcolm Coles](https://roytang.net/2024/05/ea0933ee4488811126b87ae010fd4ad3/)
 - [What Precious Things Does The Corporate World Steal From Us? — Ludicity](https://roytang.net/2024/05/89457b455347354b45b8dd26e13d0052/)
 - [Save the Web by Being Nice](https://roytang.net/2024/05/5d37993440386016ee59e147f86bdff0/)
 - [Passkeys: A Shattered Dream - Firstyear&#x27;s blog-a-log](https://roytang.net/2024/04/c06f751a01a831640b2157247859cff8/)
-- [The Man Who Killed Google Search](https://roytang.net/2024/04/47997720e29d706ec305721c512d2ab9/)
-- [NASA’s Voyager 1 Resumes Sending Engineering Updates to Earth – Voyager](https://roytang.net/2024/04/3b70e524761f5fd1c71bd2029a9ad2a5/)
 
 [View all links](https://roytang.net/links)
 
