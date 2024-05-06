@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-05-05](https://roytang.net/2024/05/weeknotes-05-04/)
 - [Weeknotes 2024-04-28](https://roytang.net/2024/04/weeknotes-04-28/)
 - [MTG: My Murders at Karlov Manor Set Recap](https://roytang.net/2024/04/mtgmkm-set-recap/)
 - [Shogun (TV Show)](https://roytang.net/2024/04/shoguntv/)
 - [Anxiety When Complaining](https://roytang.net/2024/04/anxiety-complaining/)
-- [Weeknotes 2024-04-21](https://roytang.net/2024/04/weeknotes-04-21/)
 
 [View all posts](https://roytang.net/blog)
 
