@@ -6,21 +6,21 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Song Begins: Rare(?) PH Boardgame](https://roytang.net/2024/05/song-begins/)
 - [The Complete Marvel Run part 8: Guardians of the Galaxy](https://roytang.net/2024/05/cmr-gotg/)
 - [Weeknotes 2024-05-05](https://roytang.net/2024/05/weeknotes-05-04/)
 - [Weeknotes 2024-04-28](https://roytang.net/2024/04/weeknotes-04-28/)
 - [MTG: My Murders at Karlov Manor Set Recap](https://roytang.net/2024/04/mtgmkm-set-recap/)
-- [Shogun (TV Show)](https://roytang.net/2024/04/shoguntv/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
-- [](https://roytang.net/2024/05/1cmuseg/)
 - [Back up everything: corps don’t care about your data but you should](https://roytang.net/2024/05/e496b8f0e429af90240f7f89300a757e/)
 - [Bill Gates, Man United and 20 other sites that ban linking to them – Malcolm Coles](https://roytang.net/2024/05/ea0933ee4488811126b87ae010fd4ad3/)
 - [What Precious Things Does The Corporate World Steal From Us? — Ludicity](https://roytang.net/2024/05/89457b455347354b45b8dd26e13d0052/)
 - [Save the Web by Being Nice](https://roytang.net/2024/05/5d37993440386016ee59e147f86bdff0/)
+- [Passkeys: A Shattered Dream - Firstyear&#x27;s blog-a-log](https://roytang.net/2024/04/c06f751a01a831640b2157247859cff8/)
 
 [View all links](https://roytang.net/links)
 
