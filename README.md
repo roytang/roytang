@@ -8,7 +8,7 @@ Latest blog posts:
 
 - [The Song Begins: Rare(?) PH Boardgame](https://roytang.net/2024/05/song-begins/)
 - [The Complete Marvel Run part 8: Guardians of the Galaxy](https://roytang.net/2024/05/cmr-gotg/)
-- [Weeknotes 2024-05-05](https://roytang.net/2024/05/weeknotes-05-04/)
+- [Weeknotes 2024-05-05](https://roytang.net/2024/05/weeknotes-05-05/)
 - [Weeknotes 2024-04-28](https://roytang.net/2024/04/weeknotes-04-28/)
 - [MTG: My Murders at Karlov Manor Set Recap](https://roytang.net/2024/04/mtgmkm-set-recap/)
 
