@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Fallout (TV Show)](https://roytang.net/2024/05/fallout-tv-show/)
 - [Weeknotes 2024-05-12](https://roytang.net/2024/05/weeknotes-05-12/)
 - [The Song Begins: Rare(?) PH Boardgame](https://roytang.net/2024/05/song-begins/)
 - [The Complete Marvel Run part 8: Guardians of the Galaxy](https://roytang.net/2024/05/cmr-gotg/)
 - [Weeknotes 2024-05-05](https://roytang.net/2024/05/weeknotes-05-05/)
-- [Weeknotes 2024-04-28](https://roytang.net/2024/04/weeknotes-04-28/)
 
 [View all posts](https://roytang.net/blog)
 
