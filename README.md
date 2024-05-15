@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 15, 2024, 9:43 a.m. ](https://roytang.net/2024/05/112442565596456714/): Started playing Hades! https://www.youtube.com/watch?v=tXpsCEqaRUo
 - [May 9, 2024, 11:59 p.m. Don Conejos Quiz Night #2](https://roytang.net/2024/05/don-conejos-2/): We attended our second quiz night at Don Conejos (the first time was last month). They actually have these quiz nights weekly I think, but so far we have only attended when Jason is hosting. Some other person hosts on the other nights and so far we haven&#x27;t felt up to trying him out. The last time we attended a quiz night here it finished so late. Jason promised that this time we would start no later than 9pm (advertised time was 8pm), but we ended up having to wait for some other teams and still started close to 9pm.
 - [April 30, 2024, 7:54 p.m. ](https://roytang.net/2024/04/112360033562382944/): @lexfri you seem to have so many daily games, are you the only one crafting each puzzle? Must take a lot of time per day!
 - [April 23, 2024, 9:35 a.m. ](https://roytang.net/2024/04/l0trlzu/): but in paper it&#x27;s a real event where you get to meet and talk to people even if you go 0-3 This isn&#x27;t necessarily a positive for some people lol
 - [April 22, 2024, 10:44 p.m. ](https://roytang.net/2024/04/l0qxz40/): Resurrection of Magneto is not relevant to the main Fall of X story or any other titles until &gt;!Invincible Iron Man #17!&lt;, so you can just delay reading it until right before that issue.
-- [April 19, 2024, 7:18 a.m. Popquiz: Comedy Special](https://roytang.net/2024/04/popquiz-comedy/): I think this is our first time back at the Vault for the year? The quiz wasn&#x27;t as hard as I thought it would be, but we screwed up the Ace, using it on the one round where we missed the Ace question. If we had used it on any other round we would have won, but instead we ended up tied for third place (we won the tiebreak, which was to name people who had hosted the Oscars more than once!) Rounds were: TV comedies - 7pts Sketch/improv comedy - 9pts Funny movies - 10pts (x2 for powerup) Memes
 
 [View all notes](https://roytang.net/notes)
 
