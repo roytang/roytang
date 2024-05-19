@@ -6,21 +6,21 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-05-19](https://roytang.net/2024/05/weeknotes-05-19/)
 - [ShareOpenly](https://roytang.net/2024/05/shareopenly/)
 - [Fallout (TV Show)](https://roytang.net/2024/05/fallout-tv-show/)
 - [Weeknotes 2024-05-12](https://roytang.net/2024/05/weeknotes-05-12/)
 - [The Song Begins: Rare(?) PH Boardgame](https://roytang.net/2024/05/song-begins/)
-- [The Complete Marvel Run part 8: Guardians of the Galaxy](https://roytang.net/2024/05/cmr-gotg/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
+- [We Are the Curators of the Web - I am BARRY HESS](https://roytang.net/2024/05/2deac4bb6c0bce72895612ad4c91b6f0/)
+- [How DeviantArt died: A.I. and greed turned a once-thriving community into a ghost town.](https://roytang.net/2024/05/dbd72e4ab194d51135b0c3a6bb802cb7/)
+- [We can have a different web](https://roytang.net/2024/05/13e1d3a6bcfa60992e469a945b334db6/)
+- [AI isn&#x27;t useless. But is it worth it?](https://roytang.net/2024/05/997ac087acc16c16a6bb5ce729b21e25/)
 - [Back up everything: corps don’t care about your data but you should](https://roytang.net/2024/05/e496b8f0e429af90240f7f89300a757e/)
-- [Bill Gates, Man United and 20 other sites that ban linking to them – Malcolm Coles](https://roytang.net/2024/05/ea0933ee4488811126b87ae010fd4ad3/)
-- [What Precious Things Does The Corporate World Steal From Us? — Ludicity](https://roytang.net/2024/05/89457b455347354b45b8dd26e13d0052/)
-- [Save the Web by Being Nice](https://roytang.net/2024/05/5d37993440386016ee59e147f86bdff0/)
-- [Passkeys: A Shattered Dream - Firstyear&#x27;s blog-a-log](https://roytang.net/2024/04/c06f751a01a831640b2157247859cff8/)
 
 [View all links](https://roytang.net/links)
 
