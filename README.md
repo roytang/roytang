@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Creator Of &#x27;Magic: The Gathering&#x27; Knows Exactly Where It All Went Wrong | Defector](https://roytang.net/2024/05/7404c5dbd1183709c3b094c8dee4c564/)
 - [We Are the Curators of the Web - I am BARRY HESS](https://roytang.net/2024/05/2deac4bb6c0bce72895612ad4c91b6f0/)
 - [How DeviantArt died: A.I. and greed turned a once-thriving community into a ghost town.](https://roytang.net/2024/05/dbd72e4ab194d51135b0c3a6bb802cb7/)
 - [We can have a different web](https://roytang.net/2024/05/13e1d3a6bcfa60992e469a945b334db6/)
 - [AI isn&#x27;t useless. But is it worth it?](https://roytang.net/2024/05/997ac087acc16c16a6bb5ce729b21e25/)
-- [Back up everything: corps don’t care about your data but you should](https://roytang.net/2024/05/e496b8f0e429af90240f7f89300a757e/)
 
 [View all links](https://roytang.net/links)
 
