@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [&quot;AI&quot;/LLM Mediocrity](https://roytang.net/2024/05/ai-mediocrity/)
 - [Weeknotes 2024-05-19](https://roytang.net/2024/05/weeknotes-05-19/)
 - [ShareOpenly](https://roytang.net/2024/05/shareopenly/)
 - [Fallout (TV Show)](https://roytang.net/2024/05/fallout-tv-show/)
 - [Weeknotes 2024-05-12](https://roytang.net/2024/05/weeknotes-05-12/)
-- [The Song Begins: Rare(?) PH Boardgame](https://roytang.net/2024/05/song-begins/)
 
 [View all posts](https://roytang.net/blog)
 
