@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Heat Death of the Internet - takahē](https://roytang.net/2024/05/25f91615638896511b447b2a9c5d6577/)
 - [Brane Dump: &quot;Is This Project Still Maintained?&quot;](https://roytang.net/2024/05/1c519734fa75df887d11ade8d991bfe1/)
 - [The deskilling of web dev is harming the product but, more importantly, it&#x27;s damaging our health – this is why burnout happens – Baldur Bjarnason](https://roytang.net/2024/05/b74d04272fe8c35ca810d6f56f85d620/)
 - [Oh Hello Ana - I want it all but, it is impossible](https://roytang.net/2024/05/4820c3058164956736ebc629109d1995/)
 - [The Creator Of &#x27;Magic: The Gathering&#x27; Knows Exactly Where It All Went Wrong | Defector](https://roytang.net/2024/05/7404c5dbd1183709c3b094c8dee4c564/)
-- [We Are the Curators of the Web - I am BARRY HESS](https://roytang.net/2024/05/2deac4bb6c0bce72895612ad4c91b6f0/)
 
 [View all links](https://roytang.net/links)
 
