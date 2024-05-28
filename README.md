@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Sort the Court](https://roytang.net/2024/05/sort-the-court/)
 - [Weeknotes 2024-05-26](https://roytang.net/2024/05/weeknotes-05-26/)
 - [Is Google Killing The Web?](https://roytang.net/2024/05/google-vs-web/)
 - [&quot;AI&quot;/LLM Mediocrity](https://roytang.net/2024/05/ai-mediocrity/)
 - [Weeknotes 2024-05-19](https://roytang.net/2024/05/weeknotes-05-19/)
-- [ShareOpenly](https://roytang.net/2024/05/shareopenly/)
 
 [View all posts](https://roytang.net/blog)
 
