@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [X-Men 97 (season 1)](https://roytang.net/2024/05/xmen97/)
 - [Google&#x27;s LLM Hallucinations](https://roytang.net/2024/05/google-llm-hallucinations/)
 - [Sort the Court](https://roytang.net/2024/05/sort-the-court/)
 - [Weeknotes 2024-05-26](https://roytang.net/2024/05/weeknotes-05-26/)
 - [Is Google Killing The Web?](https://roytang.net/2024/05/google-vs-web/)
-- [&quot;AI&quot;/LLM Mediocrity](https://roytang.net/2024/05/ai-mediocrity/)
 
 [View all posts](https://roytang.net/blog)
 
