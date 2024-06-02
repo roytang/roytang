@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How to Live Forever by David Owen](https://roytang.net/2024/06/ba902665b805819e86f6c2bf9bc09eb9/)
+- [How social networks prey on our longing to be known](https://roytang.net/2024/06/d48ab8207bd24d66db05f1a8009de46a/)
 - [Heat Death of the Internet - takahē](https://roytang.net/2024/05/25f91615638896511b447b2a9c5d6577/)
 - [Brane Dump: &quot;Is This Project Still Maintained?&quot;](https://roytang.net/2024/05/1c519734fa75df887d11ade8d991bfe1/)
 - [The deskilling of web dev is harming the product but, more importantly, it&#x27;s damaging our health – this is why burnout happens – Baldur Bjarnason](https://roytang.net/2024/05/b74d04272fe8c35ca810d6f56f85d620/)
-- [Oh Hello Ana - I want it all but, it is impossible](https://roytang.net/2024/05/4820c3058164956736ebc629109d1995/)
-- [The Creator Of &#x27;Magic: The Gathering&#x27; Knows Exactly Where It All Went Wrong | Defector](https://roytang.net/2024/05/7404c5dbd1183709c3b094c8dee4c564/)
 
 [View all links](https://roytang.net/links)
 
