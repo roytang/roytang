@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Slam Dunk (anime, manga), The First Slam Dunk](https://roytang.net/2024/06/slam-dunk/)
 - [Weeknotes 2024-06-02](https://roytang.net/2024/06/weeknotes-06-02/)
 - [Movies Watched - Apr/May 2024](https://roytang.net/2024/06/movies-apr-may-2024/)
 - [Star Trek Discovery (season 5 and series recap)](https://roytang.net/2024/05/star-trek-discovery/)
 - [X-Men 97 (season 1)](https://roytang.net/2024/05/xmen97/)
-- [Google&#x27;s LLM Hallucinations](https://roytang.net/2024/05/google-llm-hallucinations/)
 
 [View all posts](https://roytang.net/blog)
 
