@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 6, 2024, 1:19 p.m. ](https://roytang.net/2024/06/l7bxycg/): Hwy is this being given the legacy numbering of Uncanny #700? Does the adjectiveless X-Men not get it&#x27;s own legacy numbering?
 - [May 22, 2024, 11:49 p.m. Batang 90s Quiz @ 225 Bistro](https://roytang.net/2024/05/225-bistro-90s-quiz/): I attended a quiz night at a new venue with a new host, with another trivia team this time. Some HS batchmates wanted to attend this Batang 90s quiz and I volunteered to come along, because I wanted to check out this trivia host, Trivia Down Tuesdays. The regular trivia team had attended one of their quizzes before, pre-pandemic, but it seemed like they had changed their style and format a lot recently so I wanted to check it out. And they now have quizzes every day of the week (they have multiple people doing the hosting) instead of just
 - [May 19, 2024, 7:25 p.m. ](https://roytang.net/2024/05/112467503584986613/): I remember reading sth on mastodon about companies generally losing money on ai investments, sth like 1 dollar earned for every 15 invested. I cant find where i read this, can anyone help?
 - [May 15, 2024, 9:43 a.m. ](https://roytang.net/2024/05/112442565596456714/): Started playing Hades! https://www.youtube.com/watch?v=tXpsCEqaRUo
 - [May 9, 2024, 11:59 p.m. Don Conejos Quiz Night #2](https://roytang.net/2024/05/don-conejos-2/): We attended our second quiz night at Don Conejos (the first time was last month). They actually have these quiz nights weekly I think, but so far we have only attended when Jason is hosting. Some other person hosts on the other nights and so far we haven&#x27;t felt up to trying him out. The last time we attended a quiz night here it finished so late. Jason promised that this time we would start no later than 9pm (advertised time was 8pm), but we ended up having to wait for some other teams and still started close to 9pm.
-- [April 30, 2024, 7:54 p.m. ](https://roytang.net/2024/04/112360033562382944/): @lexfri you seem to have so many daily games, are you the only one crafting each puzzle? Must take a lot of time per day!
 
 [View all notes](https://roytang.net/notes)
 
