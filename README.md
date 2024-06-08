@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Pluralistic: Linkrot (21 May 2024) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2024/06/ace797c18284eb7f5126cd3ab00b479d/)
+- [Ursula K. Le Guin on How to Become a Writer ‹ Literary  Hub](https://roytang.net/2024/06/4aeed3d203afea4525c4683dabfbe420/)
 - [How to Live Forever by David Owen](https://roytang.net/2024/06/ba902665b805819e86f6c2bf9bc09eb9/)
 - [How social networks prey on our longing to be known](https://roytang.net/2024/06/d48ab8207bd24d66db05f1a8009de46a/)
 - [Heat Death of the Internet - takahē](https://roytang.net/2024/05/25f91615638896511b447b2a9c5d6577/)
-- [Brane Dump: &quot;Is This Project Still Maintained?&quot;](https://roytang.net/2024/05/1c519734fa75df887d11ade8d991bfe1/)
-- [The deskilling of web dev is harming the product but, more importantly, it&#x27;s damaging our health – this is why burnout happens – Baldur Bjarnason](https://roytang.net/2024/05/b74d04272fe8c35ca810d6f56f85d620/)
 
 [View all links](https://roytang.net/links)
 
