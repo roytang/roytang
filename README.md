@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Generative AI is for the idea guys](https://roytang.net/2024/06/e6463a1b7d6d471c515d33477d85922a/)
+- [Modern WordPress - Yikes! – David Bushell – Freelance Web Design (UK)](https://roytang.net/2024/06/27bb385cc1615eb67116015f70ddcabb/)
 - [Pluralistic: Linkrot (21 May 2024) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2024/06/ace797c18284eb7f5126cd3ab00b479d/)
 - [Ursula K. Le Guin on How to Become a Writer ‹ Literary  Hub](https://roytang.net/2024/06/4aeed3d203afea4525c4683dabfbe420/)
 - [How to Live Forever by David Owen](https://roytang.net/2024/06/ba902665b805819e86f6c2bf9bc09eb9/)
-- [How social networks prey on our longing to be known](https://roytang.net/2024/06/d48ab8207bd24d66db05f1a8009de46a/)
-- [Heat Death of the Internet - takahē](https://roytang.net/2024/05/25f91615638896511b447b2a9c5d6577/)
 
 [View all links](https://roytang.net/links)
 
