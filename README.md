@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-06-09](https://roytang.net/2024/06/weeknotes-06-09/)
 - [Slam Dunk (anime, manga), The First Slam Dunk](https://roytang.net/2024/06/slam-dunk/)
 - [Weeknotes 2024-06-02](https://roytang.net/2024/06/weeknotes-06-02/)
 - [Movies Watched - Apr/May 2024](https://roytang.net/2024/06/movies-apr-may-2024/)
 - [Star Trek Discovery (season 5 and series recap)](https://roytang.net/2024/05/star-trek-discovery/)
-- [X-Men 97 (season 1)](https://roytang.net/2024/05/xmen97/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 6, 2024, 11:43 p.m. Don Conejos Quiz Night #3](https://roytang.net/2024/06/don-conejos-03/): We attended our third quiz night at Don Conejos. It was a rainy evening, and Jason was a bit late this time. This night&#x27;s categories and our scores were: &quot;Back to school&quot; -&gt; Fictional schools: 10pts &quot;Grey&#x27;s Anatomy&quot; -&gt; Human anatomy: 10pts &quot;Fowl territory&quot; -&gt; Chickens: 6pts &quot;Elementary&quot; -&gt; Sherlock Holmes: 9pts (x2 for joker) &quot;Mugging for the Camera&quot; -&gt; Celebrity Mug Shots (visual): 6pts &quot;How Things Work&quot; -&gt; Technology: 5pts &quot;He&#x27;s got it all&quot; -&gt; Brad Pitt: 8pts &quot;How Deep Is Your Love&quot; -&gt; Songs with &quot;Love&quot; in the title (audio): 14pts We did extremely well! We finished with
 - [June 6, 2024, 1:19 p.m. ](https://roytang.net/2024/06/l7bxycg/): Hwy is this being given the legacy numbering of Uncanny #700? Does the adjectiveless X-Men not get it&#x27;s own legacy numbering?
 - [May 22, 2024, 11:49 p.m. Batang 90s Quiz @ 225 Bistro](https://roytang.net/2024/05/225-bistro-90s-quiz/): I attended a quiz night at a new venue with a new host, with another trivia team this time. Some HS batchmates wanted to attend this Batang 90s quiz and I volunteered to come along, because I wanted to check out this trivia host, Trivia Down Tuesdays. The regular trivia team had attended one of their quizzes before, pre-pandemic, but it seemed like they had changed their style and format a lot recently so I wanted to check it out. And they now have quizzes every day of the week (they have multiple people doing the hosting) instead of just
 - [May 19, 2024, 7:25 p.m. ](https://roytang.net/2024/05/112467503584986613/): I remember reading sth on mastodon about companies generally losing money on ai investments, sth like 1 dollar earned for every 15 invested. I cant find where i read this, can anyone help?
 - [May 15, 2024, 9:43 a.m. ](https://roytang.net/2024/05/112442565596456714/): Started playing Hades! https://www.youtube.com/watch?v=tXpsCEqaRUo
-- [May 9, 2024, 11:59 p.m. Don Conejos Quiz Night #2](https://roytang.net/2024/05/don-conejos-2/): We attended our second quiz night at Don Conejos (the first time was last month). They actually have these quiz nights weekly I think, but so far we have only attended when Jason is hosting. Some other person hosts on the other nights and so far we haven&#x27;t felt up to trying him out. The last time we attended a quiz night here it finished so late. Jason promised that this time we would start no later than 9pm (advertised time was 8pm), but we ended up having to wait for some other teams and still started close to 9pm.
 
 [View all notes](https://roytang.net/notes)
 
