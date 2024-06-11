@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [AI Is a False God | The Walrus](https://roytang.net/2024/06/96097b03338847a788258dd1fa6f7c3b/)
+- [Retailers Hate That You Buy Big Things on Your Laptop](https://roytang.net/2024/06/13407ece39d6d9707a18ab2a84430342/)
 - [I’ll never stop blogging: it’s an itch I have to scratch – and I don’t care if it’s an outdated format | Simon Reynolds | The Guardian](https://roytang.net/2024/06/16fbf3b7e176de1a21399b3c6c035ce4/)
 - [Generative AI is for the idea guys](https://roytang.net/2024/06/e6463a1b7d6d471c515d33477d85922a/)
 - [Modern WordPress - Yikes! – David Bushell – Freelance Web Design (UK)](https://roytang.net/2024/06/27bb385cc1615eb67116015f70ddcabb/)
-- [Pluralistic: Linkrot (21 May 2024) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2024/06/ace797c18284eb7f5126cd3ab00b479d/)
-- [Ursula K. Le Guin on How to Become a Writer ‹ Literary  Hub](https://roytang.net/2024/06/4aeed3d203afea4525c4683dabfbe420/)
 
 [View all links](https://roytang.net/links)
 
