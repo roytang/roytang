@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Notes on Apple TV Plus, streamer business models, and the Foundation series – Baldur Bjarnason](https://roytang.net/2024/06/073c05969293af6674a5302207c789bf/)
 - [Your brain does not process information and it is not a computer | Aeon Essays](https://roytang.net/2024/06/059aff00ef2b1c8d4be9c5014b651f01/)
 - [AI Is a False God | The Walrus](https://roytang.net/2024/06/96097b03338847a788258dd1fa6f7c3b/)
 - [Retailers Hate That You Buy Big Things on Your Laptop](https://roytang.net/2024/06/13407ece39d6d9707a18ab2a84430342/)
 - [I’ll never stop blogging: it’s an itch I have to scratch – and I don’t care if it’s an outdated format | Simon Reynolds | The Guardian](https://roytang.net/2024/06/16fbf3b7e176de1a21399b3c6c035ce4/)
-- [Generative AI is for the idea guys](https://roytang.net/2024/06/e6463a1b7d6d471c515d33477d85922a/)
 
 [View all links](https://roytang.net/links)
 
