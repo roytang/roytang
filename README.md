@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-06-16](https://roytang.net/2024/06/weeknotes-06-16/)
 - [Google Timeline and Microsoft Recall](https://roytang.net/2024/06/google-timeline-microsoft-recall/)
 - [Weeknotes 2024-06-09](https://roytang.net/2024/06/weeknotes-06-09/)
 - [Slam Dunk (anime, manga), The First Slam Dunk](https://roytang.net/2024/06/slam-dunk/)
 - [Weeknotes 2024-06-02](https://roytang.net/2024/06/weeknotes-06-02/)
-- [Movies Watched - Apr/May 2024](https://roytang.net/2024/06/movies-apr-may-2024/)
 
 [View all posts](https://roytang.net/blog)
 
