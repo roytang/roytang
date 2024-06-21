@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Pentagon ran secret anti-vax campaign to undermine China during pandemic](https://roytang.net/2024/06/d7f7f5f18726eddf7c40a556f370f948/)
 - [There&#x27;s something rotten in the kingdom of Wordpress – Baldur Bjarnason](https://roytang.net/2024/06/fac2b2a3fe4f1e20edb6ee1bd1c5a190/)
 - [Notes on Apple TV Plus, streamer business models, and the Foundation series – Baldur Bjarnason](https://roytang.net/2024/06/073c05969293af6674a5302207c789bf/)
 - [Your brain does not process information and it is not a computer | Aeon Essays](https://roytang.net/2024/06/059aff00ef2b1c8d4be9c5014b651f01/)
 - [AI Is a False God | The Walrus](https://roytang.net/2024/06/96097b03338847a788258dd1fa6f7c3b/)
-- [Retailers Hate That You Buy Big Things on Your Laptop](https://roytang.net/2024/06/13407ece39d6d9707a18ab2a84430342/)
 
 [View all links](https://roytang.net/links)
 
