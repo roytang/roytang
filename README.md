@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How Can We Bear to Throw Anything Away? - YouTube](https://roytang.net/2024/06/69a6850afc8e8277bcd96edb6bf3c07b/)
+- [Mozilla&#x27;s Original Sin](https://roytang.net/2024/06/5e49718d2376566ba33735282e2fc542/)
 - [I Will Fucking Piledrive You If You Mention AI Again — Ludicity](https://roytang.net/2024/06/ebd1c479e1217b2f1b668781dc6ed484/)
 - [Indie Wiki Buddy](https://roytang.net/2024/06/40c2ddfa1acabbd932d299e125b6235a/)
 - [A Few Lessons from Roger Federer’s Dartmouth Commencement Speech](https://roytang.net/2024/06/a7167489fc8a0d45f58ece320db39b96/)
-- [Pentagon ran secret anti-vax campaign to undermine China during pandemic](https://roytang.net/2024/06/d7f7f5f18726eddf7c40a556f370f948/)
-- [There&#x27;s something rotten in the kingdom of Wordpress – Baldur Bjarnason](https://roytang.net/2024/06/fac2b2a3fe4f1e20edb6ee1bd1c5a190/)
 
 [View all links](https://roytang.net/links)
 
