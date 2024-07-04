@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Games: Civilization IV](https://roytang.net/2024/07/civ6/)
 - [MTG: My Outlaws of Thunder Junction Set Recap](https://roytang.net/2024/07/mtgotj-set-recap/)
 - [Weeknotes 2024-06-30](https://roytang.net/2024/06/weeknotes-06-30/)
 - [The Complete Marvel Run part 9: Jessica Jones](https://roytang.net/2024/06/cmr-jessica-jones/)
 - [Weeknotes 2024-06-23](https://roytang.net/2024/06/weeknotes-06-23/)
-- [User Agents, Bots and Scrapers](https://roytang.net/2024/06/bots-scrapers/)
 
 [View all posts](https://roytang.net/blog)
 
