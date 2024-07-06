@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Expanding Dark Forest and Generative AI](https://roytang.net/2024/07/2015ada4ef3d0b7b7a8583d6efb34f83/)
 - [A Eulogy for DevOps](https://roytang.net/2024/06/7d402e43185a4a688a5ddfed9c5a84bf/)
 - [I Have a Terrible Memory. Am I Better Off That Way?](https://roytang.net/2024/06/ee5dd334dd298c6b4614f8c9b4465bd7/)
 - [How Can We Bear to Throw Anything Away? - YouTube](https://roytang.net/2024/06/69a6850afc8e8277bcd96edb6bf3c07b/)
 - [Mozilla&#x27;s Original Sin](https://roytang.net/2024/06/5e49718d2376566ba33735282e2fc542/)
-- [I Will Fucking Piledrive You If You Mention AI Again — Ludicity](https://roytang.net/2024/06/ebd1c479e1217b2f1b668781dc6ed484/)
 
 [View all links](https://roytang.net/links)
 
