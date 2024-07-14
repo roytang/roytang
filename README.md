@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [It’s not about nostalgia, it’s about human connection • rscottjones](https://roytang.net/2024/07/97ddea7f70109f51db955457768aaa8f/)
+- [How it feels to get an AI email from a friend](https://roytang.net/2024/07/672d8bfc3d80845385ae07fd40bcbe01/)
+- [Coldplay - Fix You (Glastonbury 2024) - YouTube](https://roytang.net/2024/07/2c3456a7a6923edcfe78bbb5142e8b90/)
+- [Has Facebook Stopped Trying?](https://roytang.net/2024/07/277b29fcaee8032d9b3acd0afbfeffa7/)
 - [Inside the tiny chip that powers Montreal subway tickets](https://roytang.net/2024/07/aeed7515617200429ef4ea0cfcff0cc6/)
-- [fastcompany.com - What the internet looked like in 1994](https://roytang.net/2024/07/ca602b6ba33eceda064545793eb251c3/)
-- [Obvious travel advice](https://roytang.net/2024/07/3436d954e2da3693a0497008a5bada35/)
-- [Kelly Sue DeConnick&#x27;s Tips for Writing (Ultimate... | Digital Baubles](https://roytang.net/2024/07/689fcad65defc37e36f21b38caa6bc3c/)
-- [Adactio: Journal—Wallfacing](https://roytang.net/2024/07/7b231855d0241f353cc608f521fd9e6b/)
 
 [View all links](https://roytang.net/links)
 
