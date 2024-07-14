@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Inside the tiny chip that powers Montreal subway tickets](https://roytang.net/2024/07/aeed7515617200429ef4ea0cfcff0cc6/)
 - [fastcompany.com - What the internet looked like in 1994](https://roytang.net/2024/07/ca602b6ba33eceda064545793eb251c3/)
 - [Obvious travel advice](https://roytang.net/2024/07/3436d954e2da3693a0497008a5bada35/)
 - [Kelly Sue DeConnick&#x27;s Tips for Writing (Ultimate... | Digital Baubles](https://roytang.net/2024/07/689fcad65defc37e36f21b38caa6bc3c/)
 - [Adactio: Journal—Wallfacing](https://roytang.net/2024/07/7b231855d0241f353cc608f521fd9e6b/)
-- [The Expanding Dark Forest and Generative AI](https://roytang.net/2024/07/2015ada4ef3d0b7b7a8583d6efb34f83/)
 
 [View all links](https://roytang.net/links)
 
