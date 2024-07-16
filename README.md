@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Douglas Adams on How We See Technology](https://roytang.net/2024/07/adams-technology/)
 - [Weeknotes 2024-07-14](https://roytang.net/2024/07/weeknotes-07-14/)
 - [Weeknotes 2024-07-07](https://roytang.net/2024/07/weeknotes-07-07/)
 - [The Complete Marvel Run part 10: Luke Cage](https://roytang.net/2024/07/cmr-luke-cage/)
 - [Games: Civilization VI](https://roytang.net/2024/07/civ6/)
-- [MTG: My Outlaws of Thunder Junction Set Recap](https://roytang.net/2024/07/mtgotj-set-recap/)
 
 [View all posts](https://roytang.net/blog)
 
