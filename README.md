@@ -6,21 +6,21 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-07-21](https://roytang.net/2024/07/weeknotes-07-21/)
 - [The Complete Marvel Run part 11: Iron Fist](https://roytang.net/2024/07/cmr-iron-fist/)
 - [Douglas Adams on How We See Technology](https://roytang.net/2024/07/adams-technology/)
 - [Weeknotes 2024-07-14](https://roytang.net/2024/07/weeknotes-07-14/)
 - [Weeknotes 2024-07-07](https://roytang.net/2024/07/weeknotes-07-07/)
-- [The Complete Marvel Run part 10: Luke Cage](https://roytang.net/2024/07/cmr-luke-cage/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
+- [“But he does good work.” | by Violet Blue ® | Medium](https://roytang.net/2024/07/29a3e6e8e32bfb8eec307db3e0feac30/)
 - [DC and Marvel comic book continuity doesn’t matter, and I can prove it - Polygon](https://roytang.net/2024/07/aef30c4e975e6563ee1a557ca8493acf/)
 - [It’s not about nostalgia, it’s about human connection • rscottjones](https://roytang.net/2024/07/97ddea7f70109f51db955457768aaa8f/)
 - [How it feels to get an AI email from a friend](https://roytang.net/2024/07/672d8bfc3d80845385ae07fd40bcbe01/)
 - [Coldplay - Fix You (Glastonbury 2024) - YouTube](https://roytang.net/2024/07/2c3456a7a6923edcfe78bbb5142e8b90/)
-- [Has Facebook Stopped Trying?](https://roytang.net/2024/07/277b29fcaee8032d9b3acd0afbfeffa7/)
 
 [View all links](https://roytang.net/links)
 
