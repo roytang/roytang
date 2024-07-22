@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Teaching my 6yo Nephew to Play Videogames](https://roytang.net/2024/07/6yogamer/)
 - [Weeknotes 2024-07-21](https://roytang.net/2024/07/weeknotes-07-21/)
 - [The Complete Marvel Run part 11: Iron Fist](https://roytang.net/2024/07/cmr-iron-fist/)
 - [Douglas Adams on How We See Technology](https://roytang.net/2024/07/adams-technology/)
 - [Weeknotes 2024-07-14](https://roytang.net/2024/07/weeknotes-07-14/)
-- [Weeknotes 2024-07-07](https://roytang.net/2024/07/weeknotes-07-07/)
 
 [View all posts](https://roytang.net/blog)
 
