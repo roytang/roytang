@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-07-28](https://roytang.net/2024/07/weeknotes-07-28/)
 - [Hades](https://roytang.net/2024/07/hades/)
 - [MTG: My Modern Horizons 3 Set Recap](https://roytang.net/2024/07/mtgmh3-set-recap/)
 - [Teaching my 6yo Nephew to Play Videogames](https://roytang.net/2024/07/6yogamer/)
 - [Weeknotes 2024-07-21](https://roytang.net/2024/07/weeknotes-07-21/)
-- [The Complete Marvel Run part 11: Iron Fist](https://roytang.net/2024/07/cmr-iron-fist/)
 
 [View all posts](https://roytang.net/blog)
 
