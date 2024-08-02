@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Books: The Wind-Up Bird Chronicle by Haruki Murakami](https://roytang.net/2024/08/wind-up-bird/)
 - [Movies/TV Watched - Jun/Jul 2024](https://roytang.net/2024/08/movies-tv-jun-jul-2024/)
 - [Weeknotes 2024-07-28](https://roytang.net/2024/07/weeknotes-07-28/)
 - [Hades](https://roytang.net/2024/07/hades/)
 - [MTG: My Modern Horizons 3 Set Recap](https://roytang.net/2024/07/mtgmh3-set-recap/)
-- [Teaching my 6yo Nephew to Play Videogames](https://roytang.net/2024/07/6yogamer/)
 
 [View all posts](https://roytang.net/blog)
 
