@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Robert J. Sawyer  » Blog Archive   » WordStar for DOS 7.0 Archive](https://roytang.net/2024/08/fc5773f580a2118e4c5587f004f883e6/)
 - [Meet AdVon, the AI-Powered Content Monster Infecting the Media Industry](https://roytang.net/2024/08/8a1b3f4b4e1c8f0625b52671cf87366d/)
 - [I watched Nvidia&#x27;s Computex 2024 keynote and it made my blood run cold | TechRadar](https://roytang.net/2024/08/1735c0a6a613008aae9f9482aed61332/)
 - [“But he does good work.” | by Violet Blue ® | Medium](https://roytang.net/2024/07/29a3e6e8e32bfb8eec307db3e0feac30/)
 - [DC and Marvel comic book continuity doesn’t matter, and I can prove it - Polygon](https://roytang.net/2024/07/aef30c4e975e6563ee1a557ca8493acf/)
-- [It’s not about nostalgia, it’s about human connection • rscottjones](https://roytang.net/2024/07/97ddea7f70109f51db955457768aaa8f/)
 
 [View all links](https://roytang.net/links)
 
