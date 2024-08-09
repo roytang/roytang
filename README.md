@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Forty-Six](https://roytang.net/2024/08/forty-six/)
 - [Weeknotes 2024-08-04](https://roytang.net/2024/08/weeknotes-08-04/)
 - [The Complete Marvel Run part 12: Heroes for Hire](https://roytang.net/2024/08/cmr-heroes-for-hire/)
 - [Books: The Wind-Up Bird Chronicle by Haruki Murakami](https://roytang.net/2024/08/wind-up-bird/)
 - [Movies/TV Watched - Jun/Jul 2024](https://roytang.net/2024/08/movies-tv-jun-jul-2024/)
-- [Weeknotes 2024-07-28](https://roytang.net/2024/07/weeknotes-07-28/)
 
 [View all posts](https://roytang.net/blog)
 
