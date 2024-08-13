@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Books: All of the Marvels by Douglas Wolk](https://roytang.net/2024/08/all-the-marvels/)
 - [Weeknotes 2024-08-11](https://roytang.net/2024/08/weeknotes-08-11/)
 - [Forty-Six](https://roytang.net/2024/08/forty-six/)
 - [Weeknotes 2024-08-04](https://roytang.net/2024/08/weeknotes-08-04/)
 - [The Complete Marvel Run part 12: Heroes for Hire](https://roytang.net/2024/08/cmr-heroes-for-hire/)
-- [Books: The Wind-Up Bird Chronicle by Haruki Murakami](https://roytang.net/2024/08/wind-up-bird/)
 
 [View all posts](https://roytang.net/blog)
 
