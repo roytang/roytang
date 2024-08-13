@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Everything&#x27;s the same, they say – Baldur Bjarnason](https://roytang.net/2024/08/47fe975f7e3f15a0634cdcd1ea21260b/)
+- [Everything Is Broken. Once upon a time, a friend of mine… | by Quinn Norton | The Message | Medium](https://roytang.net/2024/08/caab23dd9d5b62dbaa5c4e96e4420a5e/)
 - [The interweb sucks — httpster.io](https://roytang.net/2024/08/4c1ad1b5f7549c62710d13a9373c1c39/)
 - [Matt Watson | Epic corporate jargon alternatives](https://roytang.net/2024/08/6bd2e239f76f5e6112d5328089b9a1cc/)
 - [Robert J. Sawyer  » Blog Archive   » WordStar for DOS 7.0 Archive](https://roytang.net/2024/08/fc5773f580a2118e4c5587f004f883e6/)
-- [Meet AdVon, the AI-Powered Content Monster Infecting the Media Industry](https://roytang.net/2024/08/8a1b3f4b4e1c8f0625b52671cf87366d/)
-- [I watched Nvidia&#x27;s Computex 2024 keynote and it made my blood run cold | TechRadar](https://roytang.net/2024/08/1735c0a6a613008aae9f9482aed61332/)
 
 [View all links](https://roytang.net/links)
 
