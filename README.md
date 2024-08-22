@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Mobile Banking](https://roytang.net/2024/08/mobile-banking/)
 - [Weeknotes 2024-08-18](https://roytang.net/2024/08/weeknotes-08-18/)
 - [Afterimage](https://roytang.net/2024/08/afterimage/)
 - [Books: All of the Marvels by Douglas Wolk](https://roytang.net/2024/08/all-the-marvels/)
 - [Weeknotes 2024-08-11](https://roytang.net/2024/08/weeknotes-08-11/)
-- [Forty-Six](https://roytang.net/2024/08/forty-six/)
 
 [View all posts](https://roytang.net/blog)
 
