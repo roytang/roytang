@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [No one’s ready for this - The Verge](https://roytang.net/2024/08/666651b7cbdb864377273192cd7194ac/)
 - [Is it time for creatives to leave X for good? | Creative Boom](https://roytang.net/2024/08/35b6c2aef3aa0361f65bf9a0185514bf/)
 - [There are two kinds of advertising – Chris Coyier](https://roytang.net/2024/08/0c86879f8f0bc9671b67f9df7e8ee384/)
 - [Everything&#x27;s the same, they say – Baldur Bjarnason](https://roytang.net/2024/08/47fe975f7e3f15a0634cdcd1ea21260b/)
 - [Everything Is Broken. Once upon a time, a friend of mine… | by Quinn Norton | The Message | Medium](https://roytang.net/2024/08/caab23dd9d5b62dbaa5c4e96e4420a5e/)
-- [The interweb sucks — httpster.io](https://roytang.net/2024/08/4c1ad1b5f7549c62710d13a9373c1c39/)
 
 [View all links](https://roytang.net/links)
 
