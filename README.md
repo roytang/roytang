@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Dying Web | Matthias Endler](https://roytang.net/2024/08/be27bb0b0c8587056659a49c30e884b5/)
+- [auntie pixelante › level design lesson: to the right, hold on tight](https://roytang.net/2024/08/fd536a7ded272273a9260b014e38c19f/)
 - [No one’s ready for this - The Verge](https://roytang.net/2024/08/666651b7cbdb864377273192cd7194ac/)
 - [Is it time for creatives to leave X for good? | Creative Boom](https://roytang.net/2024/08/35b6c2aef3aa0361f65bf9a0185514bf/)
 - [There are two kinds of advertising – Chris Coyier](https://roytang.net/2024/08/0c86879f8f0bc9671b67f9df7e8ee384/)
-- [Everything&#x27;s the same, they say – Baldur Bjarnason](https://roytang.net/2024/08/47fe975f7e3f15a0634cdcd1ea21260b/)
-- [Everything Is Broken. Once upon a time, a friend of mine… | by Quinn Norton | The Message | Medium](https://roytang.net/2024/08/caab23dd9d5b62dbaa5c4e96e4420a5e/)
 
 [View all links](https://roytang.net/links)
 
