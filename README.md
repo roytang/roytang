@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Gisnep | Daily Quote Puzzle](https://roytang.net/2024/08/e2ce583c10bb055cad34c69c22116e11/)
 - [The Dying Web | Matthias Endler](https://roytang.net/2024/08/be27bb0b0c8587056659a49c30e884b5/)
 - [auntie pixelante › level design lesson: to the right, hold on tight](https://roytang.net/2024/08/fd536a7ded272273a9260b014e38c19f/)
 - [No one’s ready for this - The Verge](https://roytang.net/2024/08/666651b7cbdb864377273192cd7194ac/)
 - [Is it time for creatives to leave X for good? | Creative Boom](https://roytang.net/2024/08/35b6c2aef3aa0361f65bf9a0185514bf/)
-- [There are two kinds of advertising – Chris Coyier](https://roytang.net/2024/08/0c86879f8f0bc9671b67f9df7e8ee384/)
 
 [View all links](https://roytang.net/links)
 
