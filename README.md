@@ -7,7 +7,7 @@ Visit the site: [https://roytang.net](https://roytang.net)
 Latest blog posts:
 
 - [Weeknotes 2024-09-01](https://roytang.net/2024/09/weeknotes-09-01/)
-- [Weeknotes 2024-08-18](https://roytang.net/2024/08/weeknotes-08-25/)
+- [Weeknotes 2024-08-25](https://roytang.net/2024/08/weeknotes-08-25/)
 - [The Complete Marvel Run part 13: Heroes Reborn](https://roytang.net/2024/08/cmr-heroes-reborn/)
 - [Mobile Banking](https://roytang.net/2024/08/mobile-banking/)
 - [Weeknotes 2024-08-18](https://roytang.net/2024/08/weeknotes-08-18/)
