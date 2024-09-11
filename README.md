@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How to Monetize a Blog](https://roytang.net/2024/09/2df83e6d64907603b160c04bbd8a1766/)
 - [The secret inside One Million Checkboxes | eieio.games](https://roytang.net/2024/09/b544422b5bdba30324ff93739f8fd889/)
 - [Goodbye.Domains](https://roytang.net/2024/09/0f76adcabcc7a993e9c9269f36dc39b3/)
 - [Is My Blue Your Blue?](https://roytang.net/2024/09/56c96c43e6ccd2e7acc45ec23c4beefc/)
 - [Why A.I. Isn’t Going to Make Art | The New Yorker](https://roytang.net/2024/09/a4c03adf281b438784910a744a728ed6/)
-- [Gisnep | Daily Quote Puzzle](https://roytang.net/2024/08/e2ce583c10bb055cad34c69c22116e11/)
 
 [View all links](https://roytang.net/links)
 
