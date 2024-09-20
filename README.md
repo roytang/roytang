@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Wikipedia is facing an existential crisis. Can gen Z save it? | Stephen Harrison | The Guardian](https://roytang.net/2024/09/3953eccd9e68375b7f32fc66b5015bf4/)
+- [Neither Elon Musk Nor Anybody Else Will Ever Colonize Mars | Defector](https://roytang.net/2024/09/1687d2fcd8423ef9ec94a1f6bdd7ebff/)
 - [How to Monetize a Blog](https://roytang.net/2024/09/2df83e6d64907603b160c04bbd8a1766/)
 - [The secret inside One Million Checkboxes | eieio.games](https://roytang.net/2024/09/b544422b5bdba30324ff93739f8fd889/)
 - [Goodbye.Domains](https://roytang.net/2024/09/0f76adcabcc7a993e9c9269f36dc39b3/)
-- [Is My Blue Your Blue?](https://roytang.net/2024/09/56c96c43e6ccd2e7acc45ec23c4beefc/)
-- [Why A.I. Isn’t Going to Make Art | The New Yorker](https://roytang.net/2024/09/a4c03adf281b438784910a744a728ed6/)
 
 [View all links](https://roytang.net/links)
 
