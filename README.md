@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [It&#x27;s Lists All the Way Down - The History of the Web](https://roytang.net/2024/09/46a13157b265dc952894c1e2304f20a0/)
 - [Nobody wants to use any software  — Character](https://roytang.net/2024/09/734493accfb2949fe5ca5fa2759d7376/)
 - [We&#x27;re losing our digital history. Can the Internet Archive save it?](https://roytang.net/2024/09/9ca760cc77447d8bbb20764636b38208/)
 - [Wikipedia is facing an existential crisis. Can gen Z save it? | Stephen Harrison | The Guardian](https://roytang.net/2024/09/3953eccd9e68375b7f32fc66b5015bf4/)
 - [Neither Elon Musk Nor Anybody Else Will Ever Colonize Mars | Defector](https://roytang.net/2024/09/1687d2fcd8423ef9ec94a1f6bdd7ebff/)
-- [How to Monetize a Blog](https://roytang.net/2024/09/2df83e6d64907603b160c04bbd8a1766/)
 
 [View all links](https://roytang.net/links)
 
