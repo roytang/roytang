@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The world we&#x27;re designing | Go Make Things](https://roytang.net/2024/09/7bde7e0b6468edb9539efa84ffc2f0d7/)
 - [The Full Reset · Collab Fund](https://roytang.net/2024/09/f0ffe5158164f5f98d2e21e102728b3c/)
 - [Somebody Has Already Figured It Out for You](https://roytang.net/2024/09/68886439a6a3a899b1144ad8e3e70588/)
 - [It&#x27;s Lists All the Way Down - The History of the Web](https://roytang.net/2024/09/46a13157b265dc952894c1e2304f20a0/)
 - [Nobody wants to use any software  — Character](https://roytang.net/2024/09/734493accfb2949fe5ca5fa2759d7376/)
-- [We&#x27;re losing our digital history. Can the Internet Archive save it?](https://roytang.net/2024/09/9ca760cc77447d8bbb20764636b38208/)
 
 [View all links](https://roytang.net/links)
 
