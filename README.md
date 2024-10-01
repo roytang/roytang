@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Movies/TV Watched - Aug/Sep 2024](https://roytang.net/2024/10/movies-tv-aug-sep-2024/)
 - [Weeknotes 2024-09-29](https://roytang.net/2024/09/weeknotes-09-29/)
 - [Weeknotes 2024-09-22 Two For One](https://roytang.net/2024/09/weeknotes-09-22/)
 - [The Complete Marvel Run part 14: Iron Man part 2 (up to 2009)](https://roytang.net/2024/09/cmr-iron-man-2/)
 - [Archiving Other People&#x27;s Posts](https://roytang.net/2024/09/archiving-other-posts/)
-- [Weeknotes 2024-09-08 A Week At The Hospital](https://roytang.net/2024/09/weeknotes-09-08/)
 
 [View all posts](https://roytang.net/blog)
 
