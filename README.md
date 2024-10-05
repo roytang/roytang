@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [There Are Truths to Be Learned From the Old Things](https://roytang.net/2024/10/ed66990d765ab45ef53e9b594c8c51ac/)
+- [The critical window of shadow libraries - Anna’s Blog](https://roytang.net/2024/10/4b5f7f8cecf19c871847c9924afb6446/)
 - [Beware Hollywood’s digital demolition: it’s as if your favourite films and TV shows never existed | Zach Schonfeld | The Guardian](https://roytang.net/2024/10/7c2511b7b331a77f11d067e2426edb7a/)
 - [Designing for a Sense of Mystery and Wonder - runevision](https://roytang.net/2024/10/ba0327eb1cf40e6897128765358fa45d/)
 - [The world we&#x27;re designing | Go Make Things](https://roytang.net/2024/09/7bde7e0b6468edb9539efa84ffc2f0d7/)
-- [The Full Reset · Collab Fund](https://roytang.net/2024/09/f0ffe5158164f5f98d2e21e102728b3c/)
-- [Somebody Has Already Figured It Out for You](https://roytang.net/2024/09/68886439a6a3a899b1144ad8e3e70588/)
 
 [View all links](https://roytang.net/links)
 
