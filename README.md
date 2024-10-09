@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Static Site Paradox      | Loris Cro&#x27;s Blog](https://roytang.net/2024/10/1d9f59e0012767ed58ed4ee4c1e35838/)
+- [I Taught for Most of My Career. I Quit Because of ChatGPT | TIME](https://roytang.net/2024/10/2a1645965cd99c8c6ce2ee53b522648b/)
 - [There Are Truths to Be Learned From the Old Things](https://roytang.net/2024/10/ed66990d765ab45ef53e9b594c8c51ac/)
 - [The critical window of shadow libraries - Anna’s Blog](https://roytang.net/2024/10/4b5f7f8cecf19c871847c9924afb6446/)
 - [Beware Hollywood’s digital demolition: it’s as if your favourite films and TV shows never existed | Zach Schonfeld | The Guardian](https://roytang.net/2024/10/7c2511b7b331a77f11d067e2426edb7a/)
-- [Designing for a Sense of Mystery and Wonder - runevision](https://roytang.net/2024/10/ba0327eb1cf40e6897128765358fa45d/)
-- [The world we&#x27;re designing | Go Make Things](https://roytang.net/2024/09/7bde7e0b6468edb9539efa84ffc2f0d7/)
 
 [View all links](https://roytang.net/links)
 
