@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [WordPress Alternatives](https://roytang.net/2024/10/c908d668aea231899792d1cfacd26a0c/)
+- [Matt Mullenweg’s Bull(enweg)](https://roytang.net/2024/10/1739f4d0070a5a5695f1fd2ad5932655/)
 - [Rorty’s bastard children – The Homebound Symphony](https://roytang.net/2024/10/884f7f85a24ed65a5e109bb013355fe2/)
 - [Get Me Out Of Data Hell — Ludicity](https://roytang.net/2024/10/caac41d0243c4c14003184d21118f3f6/)
 - [Our Android App is Frozen in Carbonite](https://roytang.net/2024/10/631c7eb5acca376d0ae0cf27701cc049/)
-- [The Static Site Paradox      | Loris Cro&#x27;s Blog](https://roytang.net/2024/10/1d9f59e0012767ed58ed4ee4c1e35838/)
-- [I Taught for Most of My Career. I Quit Because of ChatGPT | TIME](https://roytang.net/2024/10/2a1645965cd99c8c6ce2ee53b522648b/)
 
 [View all links](https://roytang.net/links)
 
