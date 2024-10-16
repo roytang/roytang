@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The secret power of a blog – Tracy Durnell&#x27;s Mind Garden](https://roytang.net/2024/10/371f0e54c2bcb97112b7ad3078266234/)
+- [Long live hypertext! – Tracy Durnell&#x27;s Mind Garden](https://roytang.net/2024/10/eb1307ded94e6fe9f511a09d285760c0/)
 - [WordPress Alternatives](https://roytang.net/2024/10/c908d668aea231899792d1cfacd26a0c/)
 - [Matt Mullenweg’s Bull(enweg)](https://roytang.net/2024/10/1739f4d0070a5a5695f1fd2ad5932655/)
 - [Rorty’s bastard children – The Homebound Symphony](https://roytang.net/2024/10/884f7f85a24ed65a5e109bb013355fe2/)
-- [Get Me Out Of Data Hell — Ludicity](https://roytang.net/2024/10/caac41d0243c4c14003184d21118f3f6/)
-- [Our Android App is Frozen in Carbonite](https://roytang.net/2024/10/631c7eb5acca376d0ae0cf27701cc049/)
 
 [View all links](https://roytang.net/links)
 
