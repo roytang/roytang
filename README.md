@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How GCash is contributing to the online gambling boom in the Philippines - Rest of World](https://roytang.net/2024/10/71288c8beea15d783a5a7cf38509ae5c/)
+- [Pluralistic: You should be using an RSS reader (16 Oct 2024) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2024/10/dd9e2d0f746a15d06b0d12e8e31d42a8/)
 - [The secret power of a blog – Tracy Durnell&#x27;s Mind Garden](https://roytang.net/2024/10/371f0e54c2bcb97112b7ad3078266234/)
 - [Long live hypertext! – Tracy Durnell&#x27;s Mind Garden](https://roytang.net/2024/10/eb1307ded94e6fe9f511a09d285760c0/)
 - [WordPress Alternatives](https://roytang.net/2024/10/c908d668aea231899792d1cfacd26a0c/)
-- [Matt Mullenweg’s Bull(enweg)](https://roytang.net/2024/10/1739f4d0070a5a5695f1fd2ad5932655/)
-- [Rorty’s bastard children – The Homebound Symphony](https://roytang.net/2024/10/884f7f85a24ed65a5e109bb013355fe2/)
 
 [View all links](https://roytang.net/links)
 
