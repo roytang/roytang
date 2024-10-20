@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-10-20](https://roytang.net/2024/10/weeknotes-10-20/)
 - [Website Gardening](https://roytang.net/2024/10/website-gardening/)
 - [Some Recent Webcomics](https://roytang.net/2024/10/recent-webcomics/)
 - [Weeknotes 2024-10-13](https://roytang.net/2024/10/weeknotes-10-13/)
 - [Bloomburrow](https://roytang.net/2024/10/bloomburrow/)
-- [Weeknotes 2024-10-06](https://roytang.net/2024/10/weeknotes-10-06/)
 
 [View all posts](https://roytang.net/blog)
 
