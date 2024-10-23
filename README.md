@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Nostalgia will not fix this - Garbage Day](https://roytang.net/2024/10/c1f5339dc47c236bc3bf57c2c36c8239/)
+- [Social Media, AI, and the Battle for Your Brain - proto.life](https://roytang.net/2024/10/2f7b7eecfb29b4df99451ff50d53202c/)
+- [Philippines among top 5 countries for ChatGPT usage - report](https://roytang.net/2024/10/ed61a32fe7c242a6e49f0877a54ea336/)
 - [Cabel Sasser, Panic - XOXO Festival (2024)](https://roytang.net/2024/10/6fb89a70dadb87a444f7050ee14442da/)
 - [Forums Are Still Alive, Active, And A Treasure Trove Of Information - Aftermath](https://roytang.net/2024/10/e639ebddbb73040e42a75f8dc7c2ec73/)
-- [How GCash is contributing to the online gambling boom in the Philippines - Rest of World](https://roytang.net/2024/10/71288c8beea15d783a5a7cf38509ae5c/)
-- [Pluralistic: You should be using an RSS reader (16 Oct 2024) – Pluralistic: Daily links from Cory Doctorow](https://roytang.net/2024/10/dd9e2d0f746a15d06b0d12e8e31d42a8/)
-- [The secret power of a blog – Tracy Durnell&#x27;s Mind Garden](https://roytang.net/2024/10/371f0e54c2bcb97112b7ad3078266234/)
 
 [View all links](https://roytang.net/links)
 
