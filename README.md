@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Other Bubble](https://roytang.net/2024/10/8592ffe09de84db101e8df8be4da90ff/)
+- [Enterprise Philosophy and The First Wave of AI – Stratechery by Ben Thompson](https://roytang.net/2024/10/3e282495317ccb53ae5a691e857c35bc/)
 - [Nostalgia will not fix this - Garbage Day](https://roytang.net/2024/10/c1f5339dc47c236bc3bf57c2c36c8239/)
 - [Social Media, AI, and the Battle for Your Brain - proto.life](https://roytang.net/2024/10/2f7b7eecfb29b4df99451ff50d53202c/)
 - [Philippines among top 5 countries for ChatGPT usage - report](https://roytang.net/2024/10/ed61a32fe7c242a6e49f0877a54ea336/)
-- [Cabel Sasser, Panic - XOXO Festival (2024)](https://roytang.net/2024/10/6fb89a70dadb87a444f7050ee14442da/)
-- [Forums Are Still Alive, Active, And A Treasure Trove Of Information - Aftermath](https://roytang.net/2024/10/e639ebddbb73040e42a75f8dc7c2ec73/)
 
 [View all links](https://roytang.net/links)
 
