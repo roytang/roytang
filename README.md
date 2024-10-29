@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [NearbyWiki: Wikipedia places nearby](https://roytang.net/2024/10/7881c0d077da971fe0fab099e6e01c11/)
+- [We&#x27;re forking Flutter. This is why.](https://roytang.net/2024/10/fb5c21a51de62410f4138ac9158cd065/)
+- [A vote for Donald Trump is a vote for school shootings and measles - The Verge](https://roytang.net/2024/10/3b5fc1db4026f8d4d41b34540763603d/)
 - [Forget Gladwell](https://roytang.net/2024/10/37a83bd01d117f66151ceea45192fea0/)
 - [How many hobbies is too many? • Buttondown](https://roytang.net/2024/10/ec9533df7f3956a6222d9e30b0170cb5/)
-- [The Other Bubble](https://roytang.net/2024/10/8592ffe09de84db101e8df8be4da90ff/)
-- [Enterprise Philosophy and The First Wave of AI – Stratechery by Ben Thompson](https://roytang.net/2024/10/3e282495317ccb53ae5a691e857c35bc/)
-- [Nostalgia will not fix this - Garbage Day](https://roytang.net/2024/10/c1f5339dc47c236bc3bf57c2c36c8239/)
 
 [View all links](https://roytang.net/links)
 
