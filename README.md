@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 2, 2024, 12:28 p.m. ](https://roytang.net/2024/11/113411469089541860/): @incrediblemelk looks like duckduckgo still works?
 - [Oct. 31, 2024, 7:12 a.m. ](https://roytang.net/2024/10/113398901994949365/): Annual #Marvelsnap recap!
 - [Oct. 30, 2024, 1:46 p.m. ](https://roytang.net/2024/10/113394791678339259/): 
 - [Oct. 29, 2024, 9:40 p.m. ](https://roytang.net/2024/10/lucibf0/): Obligatory Opismeyts: https://imgur.com/a/PWX7TD1
 - [Oct. 25, 2024, 6:52 p.m. ](https://roytang.net/2024/10/ltnw9os/): If I use a border for a card and I only have 1 of it then I change my mind later, can I move/use that same border on a different card instead?
-- [Oct. 24, 2024, 7:52 p.m. ](https://roytang.net/2024/10/lthxptw/): What was the URL of your blog? FYI, the URL to check for archived websites is The Wayback Machine at https://web.archive.org/, but the internet archive is currently under attack so the services may be down intermittently. You can try again after a few days. If you leave the URL here, someone else (maybe me) can check when the wayback machine is up and reply to you to confirm that the site is available on the wayback machine.
 
 [View all notes](https://roytang.net/notes)
 
