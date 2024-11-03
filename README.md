@@ -37,10 +37,18 @@ Latest notes:
 Latest sketches:
 
 
-- ![](https://roytang.net/media/cache/c3/52/c3524701d7d18fa2b6b280d4437c7ba1.jpg)
-- ![](https://roytang.net/media/cache/b8/6e/b86e3f7c5db451a5bf40260cdf52e2c0.jpg)
-- ![](https://roytang.net/media/cache/09/11/09119bc377da2a1bf7e9d18251a6b7a6.jpg)
-- ![](https://roytang.net/media/cache/3c/7d/3c7d410c1cd355b7897272dd51e3b61a.jpg)
+- ![](https://roytang.net/media/cache/32/e6/32e6bccc49e8369f7e33d4b393e24821.jpg)
+- ![](https://roytang.net/media/cache/6d/bb/6dbb65d9198fe1692eed00385ef079c4.jpg)
+- ![](https://roytang.net/media/cache/55/78/5578c142afd534e31f9723865e041b14.jpg)
+- ![](https://roytang.net/media/cache/11/0b/110b905affbef32264adf4c2f7a3e608.jpg)
+- ![](https://roytang.net/media/cache/60/c6/60c68c0db7d473687683874eb35fb4f8.jpg)
+- ![](https://roytang.net/media/cache/55/80/5580f7da860316f676969d8b08f2066f.jpg)
+- ![](https://roytang.net/media/cache/de/79/de796fdabfe4c65636e385f4dabe7d7d.jpg)
+- ![](https://roytang.net/media/cache/f2/b0/f2b07114ca00b8f1da1d37307ce9d52b.jpg)
+- ![](https://roytang.net/media/cache/ba/d5/bad5f72b2a016bb45c230ceffd2dc203.jpg)
+- ![](https://roytang.net/media/cache/97/f4/97f4800a23c3d65586f62a9904baf15c.jpg)
+- ![](https://roytang.net/media/cache/98/b7/98b731ba93be900ebd53bfd8fb391b40.jpg)
+- ![](https://roytang.net/media/cache/88/e5/88e59dd5a9e6be8fc0b0d50b79e15161.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
