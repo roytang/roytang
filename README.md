@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [PH Comic Strips: Pugad Baboy](https://roytang.net/2024/11/pugad-baboy/)
 - [Weeknotes 2024-11-03](https://roytang.net/2024/11/weeknotes-11-03/)
 - [Weeknotes 2024-10-27](https://roytang.net/2024/10/weeknotes-10-27/)
 - [Weeknotes 2024-10-20](https://roytang.net/2024/10/weeknotes-10-20/)
 - [Website Gardening](https://roytang.net/2024/10/website-gardening/)
-- [Some Recent Webcomics](https://roytang.net/2024/10/recent-webcomics/)
 
 [View all posts](https://roytang.net/blog)
 
