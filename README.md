@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 6, 2024, 5:13 p.m. ](https://roytang.net/2024/11/113435242230552184/): Truly an accursed timeline
 - [Nov. 2, 2024, 12:28 p.m. ](https://roytang.net/2024/11/113411469089541860/): @incrediblemelk looks like duckduckgo still works?
 - [Oct. 31, 2024, 7:12 a.m. ](https://roytang.net/2024/10/113398901994949365/): Annual #Marvelsnap recap!
 - [Oct. 30, 2024, 11:55 p.m. Popquiz Trivia Night: Sexy Halloween](https://roytang.net/2024/10/popquiz-halloween/): Attendance: Me, Cole, Liz+2 It&#x27;s been a couple of months, but we managed to attend another quiz night at the end of October. This one was themed around occupations that were often used as sexy halloween costumes. We had no expectations for this one; I just missed going out for quiz nights honestly. Rounds were: Teachers and Librarians - 8pts Construction Workers/Engineers - 5pts Priests and Nuns - 2pts Doctors and Nurses - 9pts Police/Military - 6pts (x2 for joker) Maids/Butlers and Servers - 5pts (Hail Mary) Identify the punny costumes - 3pts (Tie breaker: Did not affect us) Village
 - [Oct. 30, 2024, 1:46 p.m. ](https://roytang.net/2024/10/113394791678339259/): 
-- [Oct. 29, 2024, 9:40 p.m. ](https://roytang.net/2024/10/lucibf0/): Obligatory Opismeyts: https://imgur.com/a/PWX7TD1
 
 [View all notes](https://roytang.net/notes)
 
