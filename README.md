@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Starfield](https://roytang.net/2024/11/starfield/)
 - [The World Turns](https://roytang.net/2024/11/the-world-turns/)
 - [PH Comic Strips: Pugad Baboy](https://roytang.net/2024/11/pugad-baboy/)
 - [Weeknotes 2024-11-03](https://roytang.net/2024/11/weeknotes-11-03/)
 - [Weeknotes 2024-10-27](https://roytang.net/2024/10/weeknotes-10-27/)
-- [Weeknotes 2024-10-20](https://roytang.net/2024/10/weeknotes-10-20/)
 
 [View all posts](https://roytang.net/blog)
 
