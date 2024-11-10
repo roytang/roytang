@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The End Of Independent Publishing And Giant Freakin Robot | GIANT FREAKIN ROBOT](https://roytang.net/2024/11/bf869e3e55d627a312cad0731435910d/)
+- [revealing the fediverse&#x27;s gifts](https://roytang.net/2024/11/e59275378eb74ac6192401dd7956a1e6/)
+- [Daring Fireball: Kottke on the Art and Power of Hypertextual Writing](https://roytang.net/2024/11/1d39085bbbdf5956f5daf70d7e4bf272/)
+- [Platform Strategy and Its Discontents - Infrequently Noted](https://roytang.net/2024/11/cd34f66f8dde05316afa7b58f96cf288/)
 - [How Google is Killing Bloggers and Small Publishers – And Why](https://roytang.net/2024/10/2ca8ec0b0d7dce704940abdc8ade3baa/)
-- [NearbyWiki: Wikipedia places nearby](https://roytang.net/2024/10/7881c0d077da971fe0fab099e6e01c11/)
-- [We&#x27;re forking Flutter. This is why.](https://roytang.net/2024/10/fb5c21a51de62410f4138ac9158cd065/)
-- [A vote for Donald Trump is a vote for school shootings and measles - The Verge](https://roytang.net/2024/10/3b5fc1db4026f8d4d41b34540763603d/)
-- [Forget Gladwell](https://roytang.net/2024/10/37a83bd01d117f66151ceea45192fea0/)
 
 [View all links](https://roytang.net/links)
 
