@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-11-10](https://roytang.net/2024/11/weeknotes-11-10/)
 - [Starfield](https://roytang.net/2024/11/starfield/)
 - [The World Turns](https://roytang.net/2024/11/the-world-turns/)
 - [PH Comic Strips: Pugad Baboy](https://roytang.net/2024/11/pugad-baboy/)
 - [Weeknotes 2024-11-03](https://roytang.net/2024/11/weeknotes-11-03/)
-- [Weeknotes 2024-10-27](https://roytang.net/2024/10/weeknotes-10-27/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -27,10 +27,10 @@ Latest shared links:
 Latest notes:
 
 - [Nov. 7, 2024, 11:39 a.m. ](https://roytang.net/2024/11/113439590452068091/): How does the bluesky bridge work? If i have a friend on bsky does he need to do anything for me to follow him
+- [Nov. 6, 2024, 11:06 p.m. Popquiz Trivia Night: Magical World of Disney](https://roytang.net/2024/11/popquiz-disney/): Attendance: Me, Cole, Jaime, Faith, Chery We attended a Disney-themed PopQuiz at the Vault this Wednesday. This is the last quiz night I can attend for the year. The venue was packed; Disney always draws huge crowds. Rounds were: Heroes - 6pts (x2 for power-up) Sidekicks - 8pts Soundtracks - 6pts Villains - 7pts Locations - 15pts (with wager) Disney Songs / Lyrics - 17pts (out of 20) (Hail Mary) Questions about upcoming films Moana 2 and Mufasa - 5pts We were behind the eventual winning team and sadly only finished in 4th place. Event Page
 - [Nov. 6, 2024, 5:13 p.m. ](https://roytang.net/2024/11/113435242230552184/): Truly an accursed timeline
 - [Nov. 2, 2024, 12:28 p.m. ](https://roytang.net/2024/11/113411469089541860/): @incrediblemelk looks like duckduckgo still works?
 - [Oct. 31, 2024, 7:12 a.m. ](https://roytang.net/2024/10/113398901994949365/): Annual #Marvelsnap recap!
-- [Oct. 30, 2024, 11:55 p.m. Popquiz Trivia Night: Sexy Halloween](https://roytang.net/2024/10/popquiz-halloween/): Attendance: Me, Cole, Liz+2 It&#x27;s been a couple of months, but we managed to attend another quiz night at the end of October. This one was themed around occupations that were often used as sexy halloween costumes. We had no expectations for this one; I just missed going out for quiz nights honestly. Rounds were: Teachers and Librarians - 8pts Construction Workers/Engineers - 5pts Priests and Nuns - 2pts Doctors and Nurses - 9pts Police/Military - 6pts (x2 for joker) Maids/Butlers and Servers - 5pts (Hail Mary) Identify the punny costumes - 3pts (Tie breaker: Did not affect us) Village
 
 [View all notes](https://roytang.net/notes)
 
