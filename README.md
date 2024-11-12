@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Legend of Zelda: Echoes of Wisdom](https://roytang.net/2024/11/echoes-of-wisdom/)
 - [The Complete Marvel Run part 15: X-Factor v1](https://roytang.net/2024/11/cmr-xfactor-v1/)
 - [Weeknotes 2024-11-10](https://roytang.net/2024/11/weeknotes-11-10/)
 - [Starfield](https://roytang.net/2024/11/starfield/)
 - [The World Turns](https://roytang.net/2024/11/the-world-turns/)
-- [PH Comic Strips: Pugad Baboy](https://roytang.net/2024/11/pugad-baboy/)
 
 [View all posts](https://roytang.net/blog)
 
