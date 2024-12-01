@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-12-01](https://roytang.net/2024/12/weeknotes-12-01/)
 - [Weeknotes 2024-11-24](https://roytang.net/2024/11/weeknotes-11-24/)
 - [Weeknotes 2024-11-17](https://roytang.net/2024/11/weeknotes-11-17/)
 - [Duskmourn: House of Horror](https://roytang.net/2024/11/duskmourn/)
 - [The Legend of Zelda: Echoes of Wisdom](https://roytang.net/2024/11/echoes-of-wisdom/)
-- [The Complete Marvel Run part 15: X-Factor v1](https://roytang.net/2024/11/cmr-xfactor-v1/)
 
 [View all posts](https://roytang.net/blog)
 
