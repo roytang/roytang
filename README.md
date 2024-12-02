@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 2, 2024, 1:34 p.m. ](https://roytang.net/2024/12/113581599540794680/): @jibsaramnim I have managed to redeem both games, thank you very much! Dungeons 2 seems like it might be interesting, but it feels like it would be greedy for me to get more stuff! I will pass on this to give chance to others. Thank you again!
+- [Dec. 2, 2024, 1:19 p.m. ](https://roytang.net/2024/12/113581540991571144/): @jibsaramnim ah I see, I misunderstood! That would be great then! What would you need from me? My steam profile is https://steamcommunity.com/id/hungryroy/
 - [Dec. 1, 2024, 3:24 p.m. ](https://roytang.net/2024/12/113576370768876698/): #marvelsnap war of the realms season recap! (I have not yet finished Deadpool Diner)
 - [Nov. 25, 2024, 2:19 p.m. ](https://roytang.net/2024/11/113542141468262367/): @jibsaramnim oh wow id love to give one of those a try. I only played the original though, not sure if i even managed to finish it
 - [Nov. 7, 2024, 11:39 a.m. ](https://roytang.net/2024/11/113439590452068091/): How does the bluesky bridge work? If i have a friend on bsky does he need to do anything for me to follow him
-- [Nov. 6, 2024, 11:06 p.m. Popquiz Trivia Night: Magical World of Disney](https://roytang.net/2024/11/popquiz-disney/): Attendance: Me, Cole, Jaime, Faith, Chery We attended a Disney-themed PopQuiz at the Vault this Wednesday. This is the last quiz night I can attend for the year. The venue was packed; Disney always draws huge crowds. Rounds were: Heroes - 6pts (x2 for power-up) Sidekicks - 8pts Soundtracks - 6pts Villains - 7pts Locations - 15pts (with wager) Disney Songs / Lyrics - 17pts (out of 20) (Hail Mary) Questions about upcoming films Moana 2 and Mufasa - 5pts We were behind the eventual winning team and sadly only finished in 4th place. Event Page
-- [Nov. 6, 2024, 5:13 p.m. ](https://roytang.net/2024/11/113435242230552184/): Truly an accursed timeline
 
 [View all notes](https://roytang.net/notes)
 
