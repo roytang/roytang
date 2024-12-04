@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I’m a neurology ICU nurse. The creep of AI in our hospitals terrifies me - Coda Story](https://roytang.net/2024/12/e7ee0919187fb63bde930ffe42f912dc/)
 - [The End Of Independent Publishing And Giant Freakin Robot | GIANT FREAKIN ROBOT](https://roytang.net/2024/11/bf869e3e55d627a312cad0731435910d/)
 - [revealing the fediverse&#x27;s gifts](https://roytang.net/2024/11/e59275378eb74ac6192401dd7956a1e6/)
 - [Daring Fireball: Kottke on the Art and Power of Hypertextual Writing](https://roytang.net/2024/11/1d39085bbbdf5956f5daf70d7e4bf272/)
 - [Platform Strategy and Its Discontents - Infrequently Noted](https://roytang.net/2024/11/cd34f66f8dde05316afa7b58f96cf288/)
-- [How Google is Killing Bloggers and Small Publishers – And Why](https://roytang.net/2024/10/2ca8ec0b0d7dce704940abdc8ade3baa/)
 
 [View all links](https://roytang.net/links)
 
