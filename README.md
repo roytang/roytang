@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The unconscious machine | A Working Library](https://roytang.net/2024/12/42751efcf9513bfe82801d9e89a7ee3d/)
+- [Rubenerd: What I look for in blogs](https://roytang.net/2024/12/1ef6cb8a98c4ef62890350c1b181ad2d/)
 - [Don Hertzfeldt: One of our greatest animators is back with a new movie. He’s still reinventing himself.](https://roytang.net/2024/12/f8043d140414489e908904061d85c29c/)
 - [I’m a neurology ICU nurse. The creep of AI in our hospitals terrifies me - Coda Story](https://roytang.net/2024/12/e7ee0919187fb63bde930ffe42f912dc/)
 - [The End Of Independent Publishing And Giant Freakin Robot | GIANT FREAKIN ROBOT](https://roytang.net/2024/11/bf869e3e55d627a312cad0731435910d/)
-- [revealing the fediverse&#x27;s gifts](https://roytang.net/2024/11/e59275378eb74ac6192401dd7956a1e6/)
-- [Daring Fireball: Kottke on the Art and Power of Hypertextual Writing](https://roytang.net/2024/11/1d39085bbbdf5956f5daf70d7e4bf272/)
 
 [View all links](https://roytang.net/links)
 
