@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 9, 2024, 7:59 p.m. ](https://roytang.net/2024/12/113622749985355762/): @jk sounds like you would be great at being a TTRPG DM
 - [Dec. 3, 2024, 7:48 p.m. ](https://roytang.net/2024/12/113588730734921834/): Apparently #RedditRecap is available as well. I hadnt noticed because I very rarely use the app
 - [Dec. 3, 2024, 7:06 p.m. ](https://roytang.net/2024/12/113588566940387998/): #Duolingo year in review! I like how they leaned into the threatening vibe lol
 - [Dec. 2, 2024, 1:34 p.m. ](https://roytang.net/2024/12/113581599540794680/): @jibsaramnim I have managed to redeem both games, thank you very much! Dungeons 2 seems like it might be interesting, but it feels like it would be greedy for me to get more stuff! I will pass on this to give chance to others. Thank you again!
 - [Dec. 2, 2024, 1:19 p.m. ](https://roytang.net/2024/12/113581540991571144/): @jibsaramnim ah I see, I misunderstood! That would be great then! What would you need from me? My steam profile is https://steamcommunity.com/id/hungryroy/
-- [Dec. 1, 2024, 3:24 p.m. ](https://roytang.net/2024/12/113576370768876698/): #marvelsnap war of the realms season recap! (I have not yet finished Deadpool Diner)
 
 [View all notes](https://roytang.net/notes)
 
