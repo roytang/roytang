@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Century-Scale Storage](https://roytang.net/2024/12/3046c3c6e5f29c91bde71244426b2aea/)
+- [Why the Internet Era Might Be History&#x27;s Least-Documented Period](https://roytang.net/2024/12/4106ce01143cc18a841e558f920c12bb/)
 - [Bot detection isn&#x27;t perfect](https://roytang.net/2024/12/826f83dc01b486a8ccfe68d8e61b7ead/)
 - [The Secret Knots - Remind Me Later](https://roytang.net/2024/12/72fdbf5ab870d235be5784105d91d145/)
 - [Bridges &amp; The Last Network Effect](https://roytang.net/2024/12/2fe6b83f24ef8bffce40a597158771fb/)
-- [For The Love of God, Make Your Own Website - Aftermath](https://roytang.net/2024/12/467a99e203335c8f2bd5e9368224d2e9/)
-- [The unconscious machine | A Working Library](https://roytang.net/2024/12/42751efcf9513bfe82801d9e89a7ee3d/)
 
 [View all links](https://roytang.net/links)
 
