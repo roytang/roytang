@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Bot detection isn&#x27;t perfect](https://roytang.net/2024/12/826f83dc01b486a8ccfe68d8e61b7ead/)
+- [The Secret Knots - Remind Me Later](https://roytang.net/2024/12/72fdbf5ab870d235be5784105d91d145/)
+- [Bridges &amp; The Last Network Effect](https://roytang.net/2024/12/2fe6b83f24ef8bffce40a597158771fb/)
 - [For The Love of God, Make Your Own Website - Aftermath](https://roytang.net/2024/12/467a99e203335c8f2bd5e9368224d2e9/)
 - [The unconscious machine | A Working Library](https://roytang.net/2024/12/42751efcf9513bfe82801d9e89a7ee3d/)
-- [Rubenerd: What I look for in blogs](https://roytang.net/2024/12/1ef6cb8a98c4ef62890350c1b181ad2d/)
-- [Don Hertzfeldt: One of our greatest animators is back with a new movie. He’s still reinventing himself.](https://roytang.net/2024/12/f8043d140414489e908904061d85c29c/)
-- [I’m a neurology ICU nurse. The creep of AI in our hospitals terrifies me - Coda Story](https://roytang.net/2024/12/e7ee0919187fb63bde930ffe42f912dc/)
 
 [View all links](https://roytang.net/links)
 
