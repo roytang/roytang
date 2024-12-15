@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-12-15](https://roytang.net/2024/12/weeknotes-12-15/)
 - [Weeknotes 2024-12-08](https://roytang.net/2024/12/weeknotes-12-08/)
 - [Two Weeks in Japan](https://roytang.net/2024/12/japan2024/)
 - [Weeknotes 2024-12-01](https://roytang.net/2024/12/weeknotes-12-01/)
 - [Weeknotes 2024-11-24](https://roytang.net/2024/11/weeknotes-11-24/)
-- [Weeknotes 2024-11-17](https://roytang.net/2024/11/weeknotes-11-17/)
 
 [View all posts](https://roytang.net/blog)
 
