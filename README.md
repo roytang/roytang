@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Always Go To The Funeral : NPR](https://roytang.net/2024/12/ba137d69a74971cb7affa1dd3a40750f/)
+- [Deciphering Glyph ::        DANGIT](https://roytang.net/2024/12/193ee006c1c0fb76ebd534c76b75ad0e/)
+- [52 things I learned in 2024 | by Tom Whitwell | Dec, 2024 | Medium](https://roytang.net/2024/12/dcaedcada13d7b10a013e5334bf66989/)
 - [Century-Scale Storage](https://roytang.net/2024/12/3046c3c6e5f29c91bde71244426b2aea/)
 - [Why the Internet Era Might Be History&#x27;s Least-Documented Period](https://roytang.net/2024/12/4106ce01143cc18a841e558f920c12bb/)
-- [Bot detection isn&#x27;t perfect](https://roytang.net/2024/12/826f83dc01b486a8ccfe68d8e61b7ead/)
-- [The Secret Knots - Remind Me Later](https://roytang.net/2024/12/72fdbf5ab870d235be5784105d91d145/)
-- [Bridges &amp; The Last Network Effect](https://roytang.net/2024/12/2fe6b83f24ef8bffce40a597158771fb/)
 
 [View all links](https://roytang.net/links)
 
