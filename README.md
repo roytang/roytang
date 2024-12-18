@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The &quot;baseline&quot; scene was actually written by Ryan Gosling](https://roytang.net/2024/12/8134fbaa8a5faaa5fd8635c2a943168b/)
+- [Adactio: Articles—Of Time And The Web](https://roytang.net/2024/12/2895ddcc3e166719d0b4fac69a424512/)
+- [Digital curator Giulia Carla Rossi: ‘There is a misconception that if something is on the internet it will last for ever’ | Digital media | The Guardian](https://roytang.net/2024/12/2b0197bf5eb019510642cd26d8a40045/)
+- [Java in the Small - Cay Horstmann&#x27;s Unblog](https://roytang.net/2024/12/746b23baaf3e9c0515375f53285f259d/)
 - [Always Go To The Funeral : NPR](https://roytang.net/2024/12/ba137d69a74971cb7affa1dd3a40750f/)
-- [Deciphering Glyph ::        DANGIT](https://roytang.net/2024/12/193ee006c1c0fb76ebd534c76b75ad0e/)
-- [52 things I learned in 2024 | by Tom Whitwell | Dec, 2024 | Medium](https://roytang.net/2024/12/dcaedcada13d7b10a013e5334bf66989/)
-- [Century-Scale Storage](https://roytang.net/2024/12/3046c3c6e5f29c91bde71244426b2aea/)
-- [Why the Internet Era Might Be History&#x27;s Least-Documented Period](https://roytang.net/2024/12/4106ce01143cc18a841e558f920c12bb/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [Dec. 19, 2024, 6:58 a.m. ](https://roytang.net/2024/12/113676302629965264/): I&#x27;ll have you people know, *I* have free access to Github Copilot!
+- [Dec. 19, 2024, 6:27 a.m. ](https://roytang.net/2024/12/113676179245262999/): 2024 Steam year-end recap! #steam #gaming #2024recap [06:51] https://s.team/y24/fvtmfrh?l=english&quot; target=&quot;_blank&quot; rel=&quot;nofollow noopener noreferrer&quot; translate=&quot;no&quot;&gt;https://s.team/y24/fvtmfrh?l=english
 - [Dec. 18, 2024, 9:20 p.m. ](https://roytang.net/2024/12/113674029218574939/): Kermit the Frog made it into my Youtube music recap
 - [Dec. 9, 2024, 7:59 p.m. ](https://roytang.net/2024/12/113622749985355762/): @jk sounds like you would be great at being a TTRPG DM
 - [Dec. 3, 2024, 7:48 p.m. ](https://roytang.net/2024/12/113588730734921834/): Apparently #RedditRecap is available as well. I hadnt noticed because I very rarely use the app
-- [Dec. 3, 2024, 7:06 p.m. ](https://roytang.net/2024/12/113588566940387998/): #Duolingo year in review! I like how they leaned into the threatening vibe lol
-- [Dec. 2, 2024, 1:34 p.m. ](https://roytang.net/2024/12/113581599540794680/): @jibsaramnim I have managed to redeem both games, thank you very much! Dungeons 2 seems like it might be interesting, but it feels like it would be greedy for me to get more stuff! I will pass on this to give chance to others. Thank you again!
 
 [View all notes](https://roytang.net/notes)
 
