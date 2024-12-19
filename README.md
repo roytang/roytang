@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Ed Yong, Journalist/Author - XOXO Festival (2024)](https://roytang.net/2024/12/0d1accef2327aed4a1ac3c4cdbf328b6/)
 - [The Dark Side Of AI: Tracking The Decline Of Human Cognitive Skills](https://roytang.net/2024/12/c183e1ee4db876eec6212d31c0d92bac/)
 - [The &quot;baseline&quot; scene was actually written by Ryan Gosling](https://roytang.net/2024/12/8134fbaa8a5faaa5fd8635c2a943168b/)
 - [Adactio: Articles—Of Time And The Web](https://roytang.net/2024/12/2895ddcc3e166719d0b4fac69a424512/)
 - [Digital curator Giulia Carla Rossi: ‘There is a misconception that if something is on the internet it will last for ever’ | Digital media | The Guardian](https://roytang.net/2024/12/2b0197bf5eb019510642cd26d8a40045/)
-- [Java in the Small - Cay Horstmann&#x27;s Unblog](https://roytang.net/2024/12/746b23baaf3e9c0515375f53285f259d/)
 
 [View all links](https://roytang.net/links)
 
