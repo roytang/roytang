@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Living in a rich society – Ian Welsh](https://roytang.net/2024/12/0663b4cef0d10d35162dc8203e8bd186/)
+- [2024 Movie Trailer Mashup](https://roytang.net/2024/12/7901c31b510a4432ed73605e849ea149/)
 - [Superman | Official Teaser Trailer](https://roytang.net/2024/12/500e11b215332af781fb5674c35e6df5/)
 - [Is HTML A Programming Language? (Webbed Briefs)](https://roytang.net/2024/12/579b8123d34d0aee27c2c2c3e262b456/)
 - [Ed Yong, Journalist/Author - XOXO Festival (2024)](https://roytang.net/2024/12/0d1accef2327aed4a1ac3c4cdbf328b6/)
-- [The Dark Side Of AI: Tracking The Decline Of Human Cognitive Skills](https://roytang.net/2024/12/c183e1ee4db876eec6212d31c0d92bac/)
-- [The &quot;baseline&quot; scene was actually written by Ryan Gosling](https://roytang.net/2024/12/8134fbaa8a5faaa5fd8635c2a943168b/)
 
 [View all links](https://roytang.net/links)
 
