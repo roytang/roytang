@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 25, 2024, 12:02 a.m. ](https://roytang.net/2024/12/113708641055557683/): Merry Christmas fediverse!
 - [Dec. 24, 2024, 11:53 p.m. ](https://roytang.net/2024/12/113708605892047266/): #nochebuena #food
 - [Dec. 21, 2024, 7:19 a.m. ](https://roytang.net/2024/12/113687708384791424/): Twitch Recap! Not included in this image, I only streamed 14 times this year, way down from 50 last year. Sounds about right. #twitchrecap #2024recap
 - [Dec. 19, 2024, 10:32 a.m. ](https://roytang.net/2024/12/113677141893137941/): 2024 Nintendo year in review! #gaming #nintendo #switch #2024recap
 - [Dec. 19, 2024, 6:58 a.m. ](https://roytang.net/2024/12/113676302629965264/): I&#x27;ll have you people know, *I* have free access to Github Copilot!
-- [Dec. 19, 2024, 6:27 a.m. ](https://roytang.net/2024/12/113676179245262999/): 2024 Steam year-end recap! #steam #gaming #2024recap [06:51] https://s.team/y24/fvtmfrh?l=english&quot; target=&quot;_blank&quot; rel=&quot;nofollow noopener noreferrer&quot; translate=&quot;no&quot;&gt;https://s.team/y24/fvtmfrh?l=english
 
 [View all notes](https://roytang.net/notes)
 
