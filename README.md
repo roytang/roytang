@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Complete Marvel Run part 16: Hulk Part 2: Incredible Hulk v2 and World War Hulk](https://roytang.net/2024/12/cmr-hulk-2/)
 - [Weeknotes 2024-12-22](https://roytang.net/2024/12/weeknotes-12-22/)
 - [Weeknotes 2024-12-15](https://roytang.net/2024/12/weeknotes-12-15/)
 - [Weeknotes 2024-12-08](https://roytang.net/2024/12/weeknotes-12-08/)
 - [Two Weeks in Japan](https://roytang.net/2024/12/japan2024/)
-- [Weeknotes 2024-12-01](https://roytang.net/2024/12/weeknotes-12-01/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -27,7 +27,7 @@ Latest shared links:
 Latest notes:
 
 - [Dec. 25, 2024, 12:02 a.m. ](https://roytang.net/2024/12/113708641055557683/): Merry Christmas fediverse!
-- [Dec. 24, 2024, 11:53 p.m. ](https://roytang.net/2024/12/113708605892047266/): #nochebuena #food
+- [Dec. 24, 2024, 11:53 p.m. ](https://roytang.net/2024/12/113708605892047266/): 
 - [Dec. 21, 2024, 7:19 a.m. ](https://roytang.net/2024/12/113687708384791424/): Twitch Recap! Not included in this image, I only streamed 14 times this year, way down from 50 last year. Sounds about right. #twitchrecap #2024recap
 - [Dec. 19, 2024, 10:32 a.m. ](https://roytang.net/2024/12/113677141893137941/): 2024 Nintendo year in review! #gaming #nintendo #switch #2024recap
 - [Dec. 19, 2024, 6:58 a.m. ](https://roytang.net/2024/12/113676302629965264/): I&#x27;ll have you people know, *I* have free access to Github Copilot!
