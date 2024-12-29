@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Movies/TV Watched - Oct to Dec 2024](https://roytang.net/2024/12/movies-tv-oct-dec-2024/)
 - [Weeknotes 2024-12-28 Tempus Fugit](https://roytang.net/2024/12/weeknotes-12-28/)
 - [The Complete Marvel Run part 16: Hulk Part 2: Incredible Hulk v2 and World War Hulk](https://roytang.net/2024/12/cmr-hulk-2/)
 - [Weeknotes 2024-12-22](https://roytang.net/2024/12/weeknotes-12-22/)
 - [Weeknotes 2024-12-15](https://roytang.net/2024/12/weeknotes-12-15/)
-- [Weeknotes 2024-12-08](https://roytang.net/2024/12/weeknotes-12-08/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Dec. 27, 2024, 11:50 p.m. ](https://roytang.net/2024/12/113725581401800630/): 
+- [Dec. 27, 2024, 11:50 p.m. ](https://roytang.net/2024/12/113725581401800630/): &#x27;... Summing up the top UA groups, it looks like my server is doing 70% of all its work for these fucking LLM training bots that don’t to anything except for crawling the fucking internet over and over again. Oh, and of course, they don’t just crawl a page once and then move on. Oh, no, they come back every 6 hours because lol why not. They also don’t give a single flying fuck about robots.txt, because why should they. And the best thing of all: they crawl the stupidest pages possible. Recently, both ChatGPT and Amazon were - at
 - [Dec. 25, 2024, 12:02 a.m. ](https://roytang.net/2024/12/113708641055557683/): Merry Christmas fediverse!
 - [Dec. 24, 2024, 11:53 p.m. ](https://roytang.net/2024/12/113708605892047266/): 
 - [Dec. 21, 2024, 7:19 a.m. ](https://roytang.net/2024/12/113687708384791424/): Twitch Recap! Not included in this image, I only streamed 14 times this year, way down from 50 last year. Sounds about right. #twitchrecap #2024recap
