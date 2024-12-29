@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2024-12-28 Tempus Fugit](https://roytang.net/2024/12/weeknotes-12-28/)
 - [The Complete Marvel Run part 16: Hulk Part 2: Incredible Hulk v2 and World War Hulk](https://roytang.net/2024/12/cmr-hulk-2/)
 - [Weeknotes 2024-12-22](https://roytang.net/2024/12/weeknotes-12-22/)
 - [Weeknotes 2024-12-15](https://roytang.net/2024/12/weeknotes-12-15/)
 - [Weeknotes 2024-12-08](https://roytang.net/2024/12/weeknotes-12-08/)
-- [Two Weeks in Japan](https://roytang.net/2024/12/japan2024/)
 
 [View all posts](https://roytang.net/blog)
 
