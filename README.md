@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [My 2025 Checklist](https://roytang.net/2025/01/2025-checklist/)
 - [My 2024 Year in Review](https://roytang.net/2025/01/2024-year-in-review/)
 - [Weeknotes 2025-01-05 Not Off To A Great Start](https://roytang.net/2025/01/weeknotes-01-05/)
 - [My 2024 Gaming Roundup](https://roytang.net/2024/12/2024-gaming-roundup/)
 - [Movies/TV Watched - Oct to Dec 2024](https://roytang.net/2024/12/movies-tv-oct-dec-2024/)
-- [Weeknotes 2024-12-28 Tempus Fugit](https://roytang.net/2024/12/weeknotes-12-28/)
 
 [View all posts](https://roytang.net/blog)
 
