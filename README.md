@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 14, 2025, 9:50 p.m. ](https://roytang.net/2025/01/113827028278549012/): @jbaty are you using a library for the image gallery or did you roll your own? Edit: Honestly a lot of those photos are amazing
 - [Jan. 8, 2025, 11:15 p.m. ](https://roytang.net/2025/01/113793387779106497/): @anarodrigues Hello. I wanted to say I always appreciate your bookmarks posts and I always get so many new things to read from them and you are an excellent curator. The only downside is that my to-read list always gets so long T_T
 - [Jan. 8, 2025, 2:24 p.m. ](https://roytang.net/2025/01/113791299822477038/): @NanoRaptor eliminate cancer
 - [Jan. 7, 2025, 9:50 p.m. ](https://roytang.net/2025/01/m5vd0p9/): Both cards are chapter promos from the April 2024 chapter.
 - [Jan. 5, 2025, 2:59 p.m. ](https://roytang.net/2025/01/113774452484587744/): @Fiona For our first few computers back in the 90s we started out with potato chips flavors (the first 3 were cheese, barbecue, and sour cream) but we got tired of that quickly and since the mid aughts its been street fighter characters (Ryu, Guile, Sagat have been some) My favorites are: back when i was in college one of the labs had them named after autobots, and for a while at work they were named after pokemon
-- [Dec. 31, 2024, 11:36 p.m. ](https://roytang.net/2024/12/113748175074134664/): Happy New Year! #MediaNoche
 
 [View all notes](https://roytang.net/notes)
 
