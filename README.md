@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 23, 2025, 11:32 a.m. ](https://roytang.net/2025/01/113875561274213811/): 11 years ago today, the DOTC claimed that the MRT/LRT common station would be done by Sep 2015. It is not yet operational. https://newsinfo.inquirer.net/568063/more-traffic-pain-before-gain #philippines
 - [Jan. 21, 2025, 11:05 a.m. ](https://roytang.net/2025/01/m8aaa9o/): Which card has that art in the background of the Quick Draft screen?
 - [Jan. 14, 2025, 9:50 p.m. ](https://roytang.net/2025/01/113827028278549012/): @jbaty are you using a library for the image gallery or did you roll your own? Edit: Honestly a lot of those photos are amazing
 - [Jan. 8, 2025, 11:15 p.m. ](https://roytang.net/2025/01/113793387779106497/): @anarodrigues Hello. I wanted to say I always appreciate your bookmarks posts and I always get so many new things to read from them and you are an excellent curator. The only downside is that my to-read list always gets so long T_T
 - [Jan. 8, 2025, 2:24 p.m. ](https://roytang.net/2025/01/113791299822477038/): @NanoRaptor eliminate cancer
-- [Jan. 7, 2025, 9:50 p.m. ](https://roytang.net/2025/01/m5vd0p9/): Both cards are chapter promos from the April 2024 chapter.
 
 [View all notes](https://roytang.net/notes)
 
