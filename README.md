@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [](https://roytang.net/2025/01/1i8h732/)
 - [Sail Cargo Resurgence – Lucy Bellwood](https://roytang.net/2024/12/8da9d779ad6716b7628de4f2f793b4ec/)
 - [Shame. - Dirty Feed](https://roytang.net/2024/12/6ed3376111caa8ae2b1e676fadb69528/)
 - [Living in a rich society – Ian Welsh](https://roytang.net/2024/12/0663b4cef0d10d35162dc8203e8bd186/)
 - [2024 Movie Trailer Mashup](https://roytang.net/2024/12/7901c31b510a4432ed73605e849ea149/)
-- [Superman | Official Teaser Trailer](https://roytang.net/2024/12/500e11b215332af781fb5674c35e6df5/)
 
 [View all links](https://roytang.net/links)
 
