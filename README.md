@@ -40,7 +40,7 @@ Latest sketches:
 - ![](https://roytang.net/media/cache/32/e6/32e6bccc49e8369f7e33d4b393e24821.jpg)
 - ![](https://roytang.net/media/cache/6d/bb/6dbb65d9198fe1692eed00385ef079c4.jpg)
 - ![](https://roytang.net/media/cache/55/78/5578c142afd534e31f9723865e041b14.jpg)
-- ![](https://roytang.net/media/cache/5f/31/5f31570abb0199511aca9bc8ecfcc64e.jpg)
+- ![](https://roytang.net/media/cache/8d/43/8d430eed2c30a27b5a12b8bdf278fd18.jpg)
 
 [View sketchbook](https://roytang.net/albums/sketchbook)
 
