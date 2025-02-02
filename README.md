@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-02-02 Year of the Snake](https://roytang.net/2025/02/weeknotes-02-02/)
 - [Gaiman](https://roytang.net/2025/01/gaiman/)
 - [Weeknotes 2025-01-19 The Years Are Short But The Days Are Long](https://roytang.net/2025/01/weeknotes-01-26/)
 - [Tech / Social Media Linkdump](https://roytang.net/2025/01/tech-linkdump/)
 - [Have You Done The Best You Can?](https://roytang.net/2025/01/the-best-you-can/)
-- [Indiana Jones and the Great Circle](https://roytang.net/2025/01/indiana-jones-great-circle/)
 
 [View all posts](https://roytang.net/blog)
 
