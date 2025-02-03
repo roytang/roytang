@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 3, 2025, 1:13 p.m. ](https://roytang.net/2025/02/113938242629789627/): My #marvelsnap Dark Avengers season recap!
 - [Feb. 1, 2025, 10:26 a.m. ](https://roytang.net/2025/02/mab6ii6/): When did this start? Is there any documentation online where I can read about it?
 - [Jan. 28, 2025, 3:16 p.m. ](https://roytang.net/2025/01/113904754192014412/): @keenan dude, this was a very good blog post
 - [Jan. 23, 2025, 11:32 a.m. ](https://roytang.net/2025/01/113875561274213811/): 11 years ago today, the DOTC claimed that the MRT/LRT common station would be done by Sep 2015. It is not yet operational. https://newsinfo.inquirer.net/568063/more-traffic-pain-before-gain #philippines
 - [Jan. 21, 2025, 11:05 a.m. ](https://roytang.net/2025/01/m8aaa9o/): Which card has that art in the background of the Quick Draft screen?
-- [Jan. 14, 2025, 9:50 p.m. ](https://roytang.net/2025/01/113827028278549012/): @jbaty are you using a library for the image gallery or did you roll your own? Edit: Honestly a lot of those photos are amazing
 
 [View all notes](https://roytang.net/notes)
 
