@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Wikipedia: Why Project 2025’s creators want to dox Wikipedia’s volunteer editors.](https://roytang.net/2025/02/a129e3cbef45a17c3e0b43fc174aee4d/)
 - [I&#x27;ve missed Sam for a long time (or: Pick Your Battles)](https://roytang.net/2025/02/3b6ffd2fb2ceec5ccc386691fb1d0295/)
 - [Survive the Tyrant](https://roytang.net/2025/02/9e9a448b3f9e826cb348fb818cc05aa4/)
 - [](https://roytang.net/2025/01/1i8h732/)
 - [Sail Cargo Resurgence – Lucy Bellwood](https://roytang.net/2024/12/8da9d779ad6716b7628de4f2f793b4ec/)
-- [Shame. - Dirty Feed](https://roytang.net/2024/12/6ed3376111caa8ae2b1e676fadb69528/)
 
 [View all links](https://roytang.net/links)
 
