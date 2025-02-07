@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Making of an Anti-Woke Zealot: How Elon Musk Was Infected with the MAGA Mind-Virus ‹ Literary  Hub](https://roytang.net/2025/02/dbb53f29cafe5c5195498935c07ef64c/)
+- [Abscission | everything changes](https://roytang.net/2025/02/a2d8ec52a119bfc49f27056325bd1e9c/)
 - [Wikipedia: Why Project 2025’s creators want to dox Wikipedia’s volunteer editors.](https://roytang.net/2025/02/a129e3cbef45a17c3e0b43fc174aee4d/)
 - [I&#x27;ve missed Sam for a long time (or: Pick Your Battles)](https://roytang.net/2025/02/3b6ffd2fb2ceec5ccc386691fb1d0295/)
 - [Survive the Tyrant](https://roytang.net/2025/02/9e9a448b3f9e826cb348fb818cc05aa4/)
-- [](https://roytang.net/2025/01/1i8h732/)
-- [Sail Cargo Resurgence – Lucy Bellwood](https://roytang.net/2024/12/8da9d779ad6716b7628de4f2f793b4ec/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [Feb. 7, 2025, 7:27 a.m. ](https://roytang.net/2025/02/113959530653000406/): @jerome k, thanks
+- [Feb. 7, 2025, 7:24 a.m. ](https://roytang.net/2025/02/113959517617315522/): Is there a way for me to see if I am on any lists on mastodon?
 - [Feb. 3, 2025, 8:48 p.m. ](https://roytang.net/2025/02/113940030140368161/): Liz: What a year huh? Jack: Lemon it&#x27;s February
 - [Feb. 3, 2025, 1:13 p.m. ](https://roytang.net/2025/02/113938242629789627/): My #marvelsnap Dark Avengers season recap!
 - [Feb. 1, 2025, 10:26 a.m. ](https://roytang.net/2025/02/mab6ii6/): When did this start? Is there any documentation online where I can read about it?
-- [Jan. 28, 2025, 3:16 p.m. ](https://roytang.net/2025/01/113904754192014412/): @keenan dude, this was a very good blog post
-- [Jan. 23, 2025, 11:32 a.m. ](https://roytang.net/2025/01/113875561274213811/): 11 years ago today, the DOTC claimed that the MRT/LRT common station would be done by Sep 2015. It is not yet operational. https://newsinfo.inquirer.net/568063/more-traffic-pain-before-gain #philippines
 
 [View all notes](https://roytang.net/notes)
 
