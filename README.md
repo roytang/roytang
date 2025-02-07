@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How to Copy a File From a 30-year-old Laptop - Unterminated](https://roytang.net/2025/02/426bc5afe6f028f3c17ccce62e8a3239/)
 - [The Making of an Anti-Woke Zealot: How Elon Musk Was Infected with the MAGA Mind-Virus ‹ Literary  Hub](https://roytang.net/2025/02/dbb53f29cafe5c5195498935c07ef64c/)
 - [Abscission | everything changes](https://roytang.net/2025/02/a2d8ec52a119bfc49f27056325bd1e9c/)
 - [Wikipedia: Why Project 2025’s creators want to dox Wikipedia’s volunteer editors.](https://roytang.net/2025/02/a129e3cbef45a17c3e0b43fc174aee4d/)
 - [I&#x27;ve missed Sam for a long time (or: Pick Your Battles)](https://roytang.net/2025/02/3b6ffd2fb2ceec5ccc386691fb1d0295/)
-- [Survive the Tyrant](https://roytang.net/2025/02/9e9a448b3f9e826cb348fb818cc05aa4/)
 
 [View all links](https://roytang.net/links)
 
