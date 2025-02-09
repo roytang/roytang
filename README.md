@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-02-09 Circling The Drain](https://roytang.net/2025/02/weeknotes-02-09/)
 - [Consuming the News](https://roytang.net/2025/02/consuming-news/)
 - [Tech/Web Linkdump](https://roytang.net/2025/02/tech-web-linkdump/)
 - [Ducktales Remastered](https://roytang.net/2025/02/ducktales-remastered/)
 - [Weeknotes 2025-02-02 Year of the Snake](https://roytang.net/2025/02/weeknotes-02-02/)
-- [Gaiman](https://roytang.net/2025/01/gaiman/)
 
 [View all posts](https://roytang.net/blog)
 
