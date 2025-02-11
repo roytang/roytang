@@ -29,7 +29,7 @@ Latest notes:
 - [Feb. 7, 2025, 7:27 a.m. ](https://roytang.net/2025/02/113959530653000406/): @jerome k, thanks
 - [Feb. 7, 2025, 7:24 a.m. ](https://roytang.net/2025/02/113959517617315522/): Is there a way for me to see if I am on any lists on mastodon?
 - [Feb. 3, 2025, 8:48 p.m. ](https://roytang.net/2025/02/113940030140368161/): Liz: What a year huh? Jack: Lemon it&#x27;s February
-- [Feb. 3, 2025, 1:13 p.m. ](https://roytang.net/2025/02/113938242629789627/): My #marvelsnap Dark Avengers season recap!
+- [Feb. 3, 2025, 1:13 p.m. ](https://roytang.net/2025/02/113938242629789627/): My #marvelsnap Dark Avengers season recap! Season recap stats
 - [Feb. 1, 2025, 10:26 a.m. ](https://roytang.net/2025/02/mab6ii6/): When did this start? Is there any documentation online where I can read about it?
 
 [View all notes](https://roytang.net/notes)
