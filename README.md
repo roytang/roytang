@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Outgrowing Friendships | Notes by JCProbably](https://roytang.net/2025/02/74526b4438421a295e717e50b27c7ee8/)
+- [We stay strong against hate and hatred â Codeberg News](https://roytang.net/2025/02/46de8111c7843b9240e4421c7a9d4030/)
 - [Extinction Burst Explains MAGA Voters’ Racist Anger](https://roytang.net/2025/02/d7057d9151b4f1882cb319ba7c9691f8/)
 - [How to Copy a File From a 30-year-old Laptop - Unterminated](https://roytang.net/2025/02/426bc5afe6f028f3c17ccce62e8a3239/)
 - [The Making of an Anti-Woke Zealot: How Elon Musk Was Infected with the MAGA Mind-Virus ‹ Literary  Hub](https://roytang.net/2025/02/dbb53f29cafe5c5195498935c07ef64c/)
-- [Abscission | everything changes](https://roytang.net/2025/02/a2d8ec52a119bfc49f27056325bd1e9c/)
-- [Wikipedia: Why Project 2025’s creators want to dox Wikipedia’s volunteer editors.](https://roytang.net/2025/02/a129e3cbef45a17c3e0b43fc174aee4d/)
 
 [View all links](https://roytang.net/links)
 
