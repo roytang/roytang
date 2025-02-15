@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Why keep blogging in 2025? — As in guillotine...](https://roytang.net/2025/02/73c3a9deff8a83bbc6a66e6e0c4701e7/)
+- [Why Blog If Nobody Reads It? | Andy&#x27;s Blog](https://roytang.net/2025/02/e2bb0cede0191f470a249f5cc000f45a/)
 - [Outgrowing Friendships | Notes by JCProbably](https://roytang.net/2025/02/74526b4438421a295e717e50b27c7ee8/)
 - [We stay strong against hate and hatred â Codeberg News](https://roytang.net/2025/02/46de8111c7843b9240e4421c7a9d4030/)
 - [Extinction Burst Explains MAGA Voters’ Racist Anger](https://roytang.net/2025/02/d7057d9151b4f1882cb319ba7c9691f8/)
-- [How to Copy a File From a 30-year-old Laptop - Unterminated](https://roytang.net/2025/02/426bc5afe6f028f3c17ccce62e8a3239/)
-- [The Making of an Anti-Woke Zealot: How Elon Musk Was Infected with the MAGA Mind-Virus ‹ Literary  Hub](https://roytang.net/2025/02/dbb53f29cafe5c5195498935c07ef64c/)
 
 [View all links](https://roytang.net/links)
 
