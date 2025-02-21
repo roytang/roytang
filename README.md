@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Complexity is a Trap](https://roytang.net/2025/02/b65f8e6441e4f43fc7942e5f277fe7af/)
+- [Why Blogs Matter - Robert Breen](https://roytang.net/2025/02/d0720b9ac55c0cfc3712dfebba891dc9/)
 - [Man-Made Structures Now Outweigh the Mass of the Living World](https://roytang.net/2025/02/668ceac7b2a9b613daa6f4952b869961/)
 - [How a Mole Infiltrated the Highest Ranks of American Militias — ProPublica](https://roytang.net/2025/02/34c79bcbf78547f6923f303691102bc6/)
 - [The Collapse of Self-Worth in the Digital Age | The Walrus](https://roytang.net/2025/02/e5859a41e4a12d6b018f7471d707b274/)
-- [No Longer Tools but Weapons | Scott Boms](https://roytang.net/2025/02/2750c99360bea6a4d024081746f4b344/)
-- [Moving on from 18F. — Ethan Marcotte](https://roytang.net/2025/02/defc69d6eff2e72555b3d26210b08651/)
 
 [View all links](https://roytang.net/links)
 
