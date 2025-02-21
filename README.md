@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [Why keep blogging in 2025? — As in guillotine...](https://roytang.net/2025/02/73c3a9deff8a83bbc6a66e6e0c4701e7/)
-- [Why Blog If Nobody Reads It? | Andy&#x27;s Blog](https://roytang.net/2025/02/e2bb0cede0191f470a249f5cc000f45a/)
-- [Outgrowing Friendships | Notes by JCProbably](https://roytang.net/2025/02/74526b4438421a295e717e50b27c7ee8/)
-- [We stay strong against hate and hatred â Codeberg News](https://roytang.net/2025/02/46de8111c7843b9240e4421c7a9d4030/)
-- [Extinction Burst Explains MAGA Voters’ Racist Anger](https://roytang.net/2025/02/d7057d9151b4f1882cb319ba7c9691f8/)
+- [Man-Made Structures Now Outweigh the Mass of the Living World](https://roytang.net/2025/02/668ceac7b2a9b613daa6f4952b869961/)
+- [How a Mole Infiltrated the Highest Ranks of American Militias — ProPublica](https://roytang.net/2025/02/34c79bcbf78547f6923f303691102bc6/)
+- [The Collapse of Self-Worth in the Digital Age | The Walrus](https://roytang.net/2025/02/e5859a41e4a12d6b018f7471d707b274/)
+- [No Longer Tools but Weapons | Scott Boms](https://roytang.net/2025/02/2750c99360bea6a4d024081746f4b344/)
+- [Moving on from 18F. — Ethan Marcotte](https://roytang.net/2025/02/defc69d6eff2e72555b3d26210b08651/)
 
 [View all links](https://roytang.net/links)
 
