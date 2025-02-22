@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Inevitable](https://roytang.net/2025/02/inevitable/)
 - [MTG Foundations](https://roytang.net/2025/02/mtg-foundations/)
 - [Weeknotes 2025-02-16](https://roytang.net/2025/02/weeknotes-02-16/)
 - [Citizen Sleeper 2: Starward Vector](https://roytang.net/2025/02/citizen-sleeper-2/)
 - [Weeknotes 2025-02-09 Circling The Drain](https://roytang.net/2025/02/weeknotes-02-09/)
-- [Consuming the News](https://roytang.net/2025/02/consuming-news/)
 
 [View all posts](https://roytang.net/blog)
 
