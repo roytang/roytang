@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Digital Packrat Manifesto](https://roytang.net/2025/03/f5552b20df35cf69d2c2c1ca90fc2961/)
 - [Why Techdirt Is Now A Democracy Blog (Whether We Like It Or Not)](https://roytang.net/2025/03/88364d1b902b4427e192271c2f80ad0c/)
 - [Complexity is a Trap](https://roytang.net/2025/02/b65f8e6441e4f43fc7942e5f277fe7af/)
 - [Why Blogs Matter - Robert Breen](https://roytang.net/2025/02/d0720b9ac55c0cfc3712dfebba891dc9/)
 - [Man-Made Structures Now Outweigh the Mass of the Living World](https://roytang.net/2025/02/668ceac7b2a9b613daa6f4952b869961/)
-- [How a Mole Infiltrated the Highest Ranks of American Militias — ProPublica](https://roytang.net/2025/02/34c79bcbf78547f6923f303691102bc6/)
 
 [View all links](https://roytang.net/links)
 
