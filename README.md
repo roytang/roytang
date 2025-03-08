@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I love getting older - annie&#x27;s blog](https://roytang.net/2025/03/603f0ecf97cdcfed3397c076627c11b6/)
+- [You’re a Blogger, Not an Essayist - I am BARRY HESS](https://roytang.net/2025/03/429a087a9a0a1664e7b324b7527c0840/)
 - [Misunderstanding the slow life and failing to live – Ratika Deshpande](https://roytang.net/2025/03/bfd962043e02511b1d38f1736bd01050/)
 - [The Digital Packrat Manifesto](https://roytang.net/2025/03/f5552b20df35cf69d2c2c1ca90fc2961/)
 - [Why Techdirt Is Now A Democracy Blog (Whether We Like It Or Not)](https://roytang.net/2025/03/88364d1b902b4427e192271c2f80ad0c/)
-- [Complexity is a Trap](https://roytang.net/2025/02/b65f8e6441e4f43fc7942e5f277fe7af/)
-- [Why Blogs Matter - Robert Breen](https://roytang.net/2025/02/d0720b9ac55c0cfc3712dfebba891dc9/)
 
 [View all links](https://roytang.net/links)
 
