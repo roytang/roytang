@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-03-09](https://roytang.net/2025/03/weeknotes-03-09/)
 - [Weeknotes 2025-03-02](https://roytang.net/2025/03/weeknotes-03-02/)
 - [Dungeons of Hinterberg](https://roytang.net/2025/02/hinterberg/)
 - [Weeknotes 2025-02-23 Moving On](https://roytang.net/2025/02/weeknotes-02-23/)
 - [Inevitable](https://roytang.net/2025/02/inevitable/)
-- [MTG Foundations](https://roytang.net/2025/02/mtg-foundations/)
 
 [View all posts](https://roytang.net/blog)
 
