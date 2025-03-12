@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Style Stage from Modern CSS Solutions](https://roytang.net/2025/03/6f3962155f4f3871705dbc3a8f08e39c/)
 - [The small web is rehabilitating how I write | dr molly tov](https://roytang.net/2025/03/b74b9a20907b22fd959dc9eac10473d7/)
 - [I love getting older - annie&#x27;s blog](https://roytang.net/2025/03/603f0ecf97cdcfed3397c076627c11b6/)
 - [You’re a Blogger, Not an Essayist - I am BARRY HESS](https://roytang.net/2025/03/429a087a9a0a1664e7b324b7527c0840/)
 - [Misunderstanding the slow life and failing to live – Ratika Deshpande](https://roytang.net/2025/03/bfd962043e02511b1d38f1736bd01050/)
-- [The Digital Packrat Manifesto](https://roytang.net/2025/03/f5552b20df35cf69d2c2c1ca90fc2961/)
 
 [View all links](https://roytang.net/links)
 
