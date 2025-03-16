@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The work is never just “the work” | Dave Stewart](https://roytang.net/2025/03/21bbcedd4ff5264c1a10110697e72199/)
 - [I&#x27;m Afraid to Die, so I Made a Website](https://roytang.net/2025/03/cdd13659ff14efafc4cdb3e01b0e9d68/)
 - [AI statement | hidde.blog](https://roytang.net/2025/03/a4e491f636b4ec88dfd54ec21fe5fec7/)
 - [I see, I can draw!](https://roytang.net/2025/03/7d1f106469b97f04e9c2c7f194920bce/)
 - [Style Stage from Modern CSS Solutions](https://roytang.net/2025/03/6f3962155f4f3871705dbc3a8f08e39c/)
-- [The small web is rehabilitating how I write | dr molly tov](https://roytang.net/2025/03/b74b9a20907b22fd959dc9eac10473d7/)
 
 [View all links](https://roytang.net/links)
 
