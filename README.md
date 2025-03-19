@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I’m the Canadian who was detained by Ice for two weeks. It felt like I had been kidnapped  | US immigration | The Guardian](https://roytang.net/2025/03/9a4953a75fdc6aaff923ea62cd934df0/)
 - [AI Slop Is a Brute Force Attack on the Algorithms That Control Reality](https://roytang.net/2025/03/b99206af68ee1d0ef34a6d84c2c9417c/)
 - [The work is never just “the work” | Dave Stewart](https://roytang.net/2025/03/21bbcedd4ff5264c1a10110697e72199/)
 - [I&#x27;m Afraid to Die, so I Made a Website](https://roytang.net/2025/03/cdd13659ff14efafc4cdb3e01b0e9d68/)
 - [AI statement | hidde.blog](https://roytang.net/2025/03/a4e491f636b4ec88dfd54ec21fe5fec7/)
-- [I see, I can draw!](https://roytang.net/2025/03/7d1f106469b97f04e9c2c7f194920bce/)
 
 [View all links](https://roytang.net/links)
 
