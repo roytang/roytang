@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Complete Marvel Run part 17: Spider-Man Part 1: Spectacular Spider-Man, Amazing Spider-Man v7, Gang War](https://roytang.net/2025/03/cmr-spider-man/)
 - [Weeknotes 2025-03-23](https://roytang.net/2025/03/weeknotes-03-23/)
 - [World Poetry Day](https://roytang.net/2025/03/world-poetry-day/)
 - [Weeknotes 2025-03-16](https://roytang.net/2025/03/weeknotes-03-16/)
 - [Weeknotes 2025-03-09](https://roytang.net/2025/03/weeknotes-03-09/)
-- [Weeknotes 2025-03-02](https://roytang.net/2025/03/weeknotes-03-02/)
 
 [View all posts](https://roytang.net/blog)
 
