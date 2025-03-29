@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Don’t ask forgiveness, radiate intent](https://roytang.net/2025/03/34bc5adfdba189e958f343dfd919ac12/)
+- [This page is under construction -            localghost](https://roytang.net/2025/03/500fe5245322e860ebfcb0cd5bfce7d9/)
+- [How personal should a personal site be? – Manu](https://roytang.net/2025/03/b9fa2f2b3cb4848cb8c1001b52001162/)
 - [I’m the Canadian who was detained by Ice for two weeks. It felt like I had been kidnapped  | US immigration | The Guardian](https://roytang.net/2025/03/9a4953a75fdc6aaff923ea62cd934df0/)
 - [AI Slop Is a Brute Force Attack on the Algorithms That Control Reality](https://roytang.net/2025/03/b99206af68ee1d0ef34a6d84c2c9417c/)
-- [The work is never just “the work” | Dave Stewart](https://roytang.net/2025/03/21bbcedd4ff5264c1a10110697e72199/)
-- [I&#x27;m Afraid to Die, so I Made a Website](https://roytang.net/2025/03/cdd13659ff14efafc4cdb3e01b0e9d68/)
-- [AI statement | hidde.blog](https://roytang.net/2025/03/a4e491f636b4ec88dfd54ec21fe5fec7/)
 
 [View all links](https://roytang.net/links)
 
