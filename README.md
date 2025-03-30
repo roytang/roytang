@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Making Space for a Handmade Web | Figma Blog](https://roytang.net/2025/03/d81cc40e62cb2c9dfab296b4d46b9cda/)
 - [Two Hundred Fifty Things an Architect Should Know — R / D](https://roytang.net/2025/03/643d1bb4fcd409762c1214b174276056/)
 - [Watch Global &amp; Local Live TV Online for Free - tv.garden](https://roytang.net/2025/03/69e12eea0aa2d05aff802c349749a55e/)
 - [Stones In My Pocket | Sebastian Malloy](https://roytang.net/2025/03/bfc46e14659fe65eed6ab69e2adafa63/)
 - [Don’t ask forgiveness, radiate intent](https://roytang.net/2025/03/34bc5adfdba189e958f343dfd919ac12/)
-- [This page is under construction -            localghost](https://roytang.net/2025/03/500fe5245322e860ebfcb0cd5bfce7d9/)
 
 [View all links](https://roytang.net/links)
 
