@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [What If We Made Advertising Illegal?](https://roytang.net/2025/04/336489f03047b3605c9c803cd940fec6/)
 - [How to Change Your Meta Settings | Make yourself less valuable to Meta. Brought to you by Last Week Tonight with John Oliver.](https://roytang.net/2025/03/c062c66ab4706a70ebfdcf97c8af8bd5/)
 - [I&#x27;m Tired of Pretending Tech is Making the World Better](https://roytang.net/2025/03/99b790da4612f7ad94784de5a85e9e2a/)
 - [Making Space for a Handmade Web | Figma Blog](https://roytang.net/2025/03/d81cc40e62cb2c9dfab296b4d46b9cda/)
 - [Two Hundred Fifty Things an Architect Should Know — R / D](https://roytang.net/2025/03/643d1bb4fcd409762c1214b174276056/)
-- [Watch Global &amp; Local Live TV Online for Free - tv.garden](https://roytang.net/2025/03/69e12eea0aa2d05aff802c349749a55e/)
 
 [View all links](https://roytang.net/links)
 
