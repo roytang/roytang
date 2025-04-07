@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Avowed](https://roytang.net/2025/04/avowed/)
 - [Weeknotes 2025-04-06 Switch 2 and Liberation Day](https://roytang.net/2025/04/weeknotes-04-06/)
 - [Movies / TV I Watched - Jan to Mar 2025](https://roytang.net/2025/04/movies-tv-1q/)
 - [Weeknotes 2025-03-30](https://roytang.net/2025/03/weeknotes-03-30/)
 - [The Complete Marvel Run part 17: Spider-Man Part 1: Spectacular Spider-Man, Amazing Spider-Man v7, Gang War](https://roytang.net/2025/03/cmr-spider-man/)
-- [Weeknotes 2025-03-23](https://roytang.net/2025/03/weeknotes-03-23/)
 
 [View all posts](https://roytang.net/blog)
 
