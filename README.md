@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 9, 2025, 6:30 a.m. ](https://roytang.net/2025/04/114304706206109742/): My personal site and it&#x27;s rinky-dink server are once again besieged by some crawler that doesn&#x27;t even bother setting a real user agent, instead hiding behind &quot;Mozilla/5.0 (Macintosh; Intel Mac OS X 10_15_7) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/127.0.0 Safari/537.36&quot; Get off my lawn!
 - [March 12, 2025, midnight ](https://roytang.net/2025/03/114144629750867086/): Lol I managed to hit the final rank of sanctum mode in #MarvelSnap a mere hours before the mode goes away. Truly an accursed grind this format, I am glad to be rid of it
 - [Feb. 24, 2025, 11:26 p.m. AboutQuiz All About Love: A Quiz Night About Love Languages](https://roytang.net/2025/02/aboutquiz-love/): We attended an AboutQuiz quiz night at Saludo&#x27;s! This is only their second quiz night after a post-pandemic comeback (we missed the first one). The theme for this one was about love languages. Event Page R1: Literature - 6pts R2: Geography (Before and After) - 5pts (x2 worst joker) R3: Brands - 8pts R4: Sex in Media - 7pts R5: Service - 7pts R6: Love - 5pts Pabibo: Elephants Medley - 2pts We were in clear first place before the Pabibo round, so we only wagered enough to ensure we won, and we barely got there! Luckily the other teams
 - [Feb. 12, 2025, 1:35 p.m. ](https://roytang.net/2025/02/113989291811261811/): @danhon that is from superman iii! (Sorry)
 - [Feb. 7, 2025, 7:27 a.m. ](https://roytang.net/2025/02/113959530653000406/): @jerome k, thanks
-- [Feb. 7, 2025, 7:24 a.m. ](https://roytang.net/2025/02/113959517617315522/): Is there a way for me to see if I am on any lists on mastodon?
 
 [View all notes](https://roytang.net/notes)
 
