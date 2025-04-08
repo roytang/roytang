@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [‘An Overwhelmingly Negative And Demoralizing Force’: What It’s Like Working For A Company That’s Forcing AI On Its Developers - Aftermath](https://roytang.net/2025/04/fb1ef4dfa2ed5080c52c306bb5b204fd/)
 - [You Don&#x27;t Have to Monetize The Things You Love](https://roytang.net/2025/04/be399d7ba3e4ed75ee56320e4da5c9e9/)
 - [Hitchcock&#x27;s Notorious, Defence in Depth, and the weakness of Nazis](https://roytang.net/2025/04/afc9b1d0288ec3df204778068726f603/)
 - [What If We Made Advertising Illegal?](https://roytang.net/2025/04/336489f03047b3605c9c803cd940fec6/)
 - [How to Change Your Meta Settings | Make yourself less valuable to Meta. Brought to you by Last Week Tonight with John Oliver.](https://roytang.net/2025/03/c062c66ab4706a70ebfdcf97c8af8bd5/)
-- [I&#x27;m Tired of Pretending Tech is Making the World Better](https://roytang.net/2025/03/99b790da4612f7ad94784de5a85e9e2a/)
 
 [View all links](https://roytang.net/links)
 
