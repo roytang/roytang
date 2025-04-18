@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [368 Chickens](https://roytang.net/2025/04/b5d99f1c348cd831e590977f94f2628b/)
-- [Get out of my &lt;head&gt;](https://roytang.net/2025/04/baf35d5a9acc538728e09c8d6cd28c62/)
-- [‘An Overwhelmingly Negative And Demoralizing Force’: What It’s Like Working For A Company That’s Forcing AI On Its Developers - Aftermath](https://roytang.net/2025/04/fb1ef4dfa2ed5080c52c306bb5b204fd/)
-- [You Don&#x27;t Have to Monetize The Things You Love](https://roytang.net/2025/04/be399d7ba3e4ed75ee56320e4da5c9e9/)
-- [Hitchcock&#x27;s Notorious, Defence in Depth, and the weakness of Nazis](https://roytang.net/2025/04/afc9b1d0288ec3df204778068726f603/)
+- [The Rich Are Hoarding Wealth — Because They Know What’s Coming](https://roytang.net/2025/04/f9a67136c118406b65ff3cd0edfad3bb/)
+- [&#x27;Oh god&#x27;: There&#x27;s a buried Steam help page that shows how much money you&#x27;ve ever spent on the platform, and you may not want to know | PC Gamer](https://roytang.net/2025/04/a1e7cab72d07180a3583e82c44714af0/)
+- [One of the biggest games on Steam right now is Bongo Cat, a cat with a hat who smacks your Windows taskbar like a bongo drum when you type | PC Gamer](https://roytang.net/2025/04/7ed2b6de7f6b647a03c10db73a8b0c9f/)
+- [Adactio: Journal—Denial](https://roytang.net/2025/04/431f04730343449499707f5fa4558cc8/)
+- [You&#x27;ll take my personal files from my cold, dead hard drive. Here&#x27;s how to save yours | PCWorld](https://roytang.net/2025/04/8778f16fef3577345f250135699f5580/)
 
 [View all links](https://roytang.net/links)
 
