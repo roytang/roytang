@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-04-13](https://roytang.net/2025/04/weeknotes-04-20/)
 - [Weeknotes 2025-04-13](https://roytang.net/2025/04/weeknotes-04-13/)
 - [MTG: Aetherdrift](https://roytang.net/2025/04/mtg-aetherdrift/)
 - [Avowed](https://roytang.net/2025/04/avowed/)
 - [Weeknotes 2025-04-06 Switch 2 and Liberation Day](https://roytang.net/2025/04/weeknotes-04-06/)
-- [Movies / TV I Watched - Jan to Mar 2025](https://roytang.net/2025/04/movies-tv-1q/)
 
 [View all posts](https://roytang.net/blog)
 
