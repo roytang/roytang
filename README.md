@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 20, 2025, 7:01 a.m. ](https://roytang.net/2025/04/mo05jvj/): Sign out of the app, then login again using your email and password (not using Apple ID)
 - [April 14, 2025, 6:23 a.m. ](https://roytang.net/2025/04/114332992977764366/): @robb its based on a french series which is already 4 seasons in. Supposedly the original is very good so they have a good template to follow
 - [April 13, 2025, 1:17 p.m. ](https://roytang.net/2025/04/1jy0bfh/): Posted on r/ps2: Help trying to get an old PS2 to work
 - [April 10, 2025, 11:19 p.m. Popquiz Trivia Night: Prime Time TV](https://roytang.net/2025/04/popquiz-tv/): Attendance: Me, Liz, Chi, Chry, Chery We attended a TV PopQuiz at Int/Ext this Thursday. This is only my second quiz night for the year! Rounds were: Actors - 5pts Animated Theme Songs - 8pts Reality TV - 7pts x0 for failed ace Actresses - 4pts Original Song - 9pts Plots - 6pts x2 for power up (Hail Mary) Emmy Winners of Best Comedy/Drama Series since 2010 We thought we were dead after the failed ace in R3 (we were expecting a Drag Race question which our teammates could handle easily; we did not get that), but somehow still managed
 - [March 12, 2025, midnight ](https://roytang.net/2025/03/114144629750867086/): Lol I managed to hit the final rank of sanctum mode in #MarvelSnap a mere hours before the mode goes away. Truly an accursed grind this format, I am glad to be rid of it
-- [Feb. 24, 2025, 11:26 p.m. AboutQuiz All About Love: A Quiz Night About Love Languages](https://roytang.net/2025/02/aboutquiz-love/): We attended an AboutQuiz quiz night at Saludo&#x27;s! This is only their second quiz night after a post-pandemic comeback (we missed the first one). The theme for this one was about love languages. Event Page R1: Literature - 6pts R2: Geography (Before and After) - 5pts (x2 worst joker) R3: Brands - 8pts R4: Sex in Media - 7pts R5: Service - 7pts R6: Love - 5pts Pabibo: Elephants Medley - 2pts We were in clear first place before the Pabibo round, so we only wagered enough to ensure we won, and we barely got there! Luckily the other teams
 
 [View all notes](https://roytang.net/notes)
 
