@@ -6,7 +6,7 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
-- [Weeknotes 2025-04-13](https://roytang.net/2025/04/weeknotes-04-20/)
+- [Weeknotes 2025-04-20](https://roytang.net/2025/04/weeknotes-04-20/)
 - [Weeknotes 2025-04-13](https://roytang.net/2025/04/weeknotes-04-13/)
 - [MTG: Aetherdrift](https://roytang.net/2025/04/mtg-aetherdrift/)
 - [Avowed](https://roytang.net/2025/04/avowed/)
