@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Naz Hamid • Your Site Is a Home](https://roytang.net/2025/04/dd3bb75fddcb5aa96cb1b6e8015d6b6b/)
 - [DSHR&#x27;s Blog: Going Out With A Bang](https://roytang.net/2025/04/ed8faf0d531aeb71fe2d48ac1d583ebf/)
 - [The Rich Are Hoarding Wealth — Because They Know What’s Coming](https://roytang.net/2025/04/f9a67136c118406b65ff3cd0edfad3bb/)
 - [&#x27;Oh god&#x27;: There&#x27;s a buried Steam help page that shows how much money you&#x27;ve ever spent on the platform, and you may not want to know | PC Gamer](https://roytang.net/2025/04/a1e7cab72d07180a3583e82c44714af0/)
 - [One of the biggest games on Steam right now is Bongo Cat, a cat with a hat who smacks your Windows taskbar like a bongo drum when you type | PC Gamer](https://roytang.net/2025/04/7ed2b6de7f6b647a03c10db73a8b0c9f/)
-- [Adactio: Journal—Denial](https://roytang.net/2025/04/431f04730343449499707f5fa4558cc8/)
 
 [View all links](https://roytang.net/links)
 
