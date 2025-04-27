@@ -16,9 +16,9 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Honest and Elitist Thoughts on Why Computers Were More Fun Before](https://roytang.net/2025/04/d50b6cd7f36614e4927ed97ce04fa042/)
 - [Almost Every Food Would Be Better Served in a Bowl](https://roytang.net/2025/04/e839fe49bfa15b62caed4bc68aadaa11/)
 - [Why Hitler Slept Through D-Day](https://roytang.net/2025/04/431e8764445e2247f874f7dea0ec494a/)
-- [415 Unsupported Media Type](https://roytang.net/2025/04/7eba6b07809071dd620df6b5f43e1a4c/)
 - [Ceding the work of interpretation – Tracy Durnell&#x27;s Mind Garden](https://roytang.net/2025/04/481a3dd2b3d37a2944682de908db28ad/)
 - [calculator-app - Chad Nauseam Home](https://roytang.net/2025/04/0d49e3edba3e72407ba7361ae3e33877/)
 
