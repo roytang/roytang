@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [Naz Hamid • Your Site Is a Home](https://roytang.net/2025/04/dd3bb75fddcb5aa96cb1b6e8015d6b6b/)
-- [DSHR&#x27;s Blog: Going Out With A Bang](https://roytang.net/2025/04/ed8faf0d531aeb71fe2d48ac1d583ebf/)
-- [The Rich Are Hoarding Wealth — Because They Know What’s Coming](https://roytang.net/2025/04/f9a67136c118406b65ff3cd0edfad3bb/)
-- [&#x27;Oh god&#x27;: There&#x27;s a buried Steam help page that shows how much money you&#x27;ve ever spent on the platform, and you may not want to know | PC Gamer](https://roytang.net/2025/04/a1e7cab72d07180a3583e82c44714af0/)
-- [One of the biggest games on Steam right now is Bongo Cat, a cat with a hat who smacks your Windows taskbar like a bongo drum when you type | PC Gamer](https://roytang.net/2025/04/7ed2b6de7f6b647a03c10db73a8b0c9f/)
+- [Almost Every Food Would Be Better Served in a Bowl](https://roytang.net/2025/04/e839fe49bfa15b62caed4bc68aadaa11/)
+- [Why Hitler Slept Through D-Day](https://roytang.net/2025/04/431e8764445e2247f874f7dea0ec494a/)
+- [415 Unsupported Media Type](https://roytang.net/2025/04/7eba6b07809071dd620df6b5f43e1a4c/)
+- [Ceding the work of interpretation – Tracy Durnell&#x27;s Mind Garden](https://roytang.net/2025/04/481a3dd2b3d37a2944682de908db28ad/)
+- [calculator-app - Chad Nauseam Home](https://roytang.net/2025/04/0d49e3edba3e72407ba7361ae3e33877/)
 
 [View all links](https://roytang.net/links)
 
