@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [April 29, 2025, 7:23 p.m. ](https://roytang.net/2025/04/114420995764326815/): @cyborg_writer how is Goon doing now? I hope he is well
 - [April 24, 2025, 12:35 a.m. ](https://roytang.net/2025/04/114388248772142277/): Finally managed to &quot;finish&quot; Blue Prince today (reached Room 46) at run 25! This game is insane and still has so much more left to uncover though @_@
 - [April 20, 2025, 7:01 a.m. ](https://roytang.net/2025/04/mo05jvj/): Sign out of the app, then login again using your email and password (not using Apple ID)
 - [April 14, 2025, 6:23 a.m. ](https://roytang.net/2025/04/114332992977764366/): @robb its based on a french series which is already 4 seasons in. Supposedly the original is very good so they have a good template to follow
 - [April 13, 2025, 1:17 p.m. ](https://roytang.net/2025/04/1jy0bfh/): Posted on r/ps2: Help trying to get an old PS2 to work
-- [April 10, 2025, 11:19 p.m. Popquiz Trivia Night: Prime Time TV](https://roytang.net/2025/04/popquiz-tv/): Attendance: Me, Liz, Chi, Chry, Chery We attended a TV PopQuiz at Int/Ext this Thursday. This is only my second quiz night for the year! Rounds were: Actors - 5pts Animated Theme Songs - 8pts Reality TV - 7pts x0 for failed ace Actresses - 4pts Original Song - 9pts Plots - 6pts x2 for power up (Hail Mary) Emmy Winners of Best Comedy/Drama Series since 2010 We thought we were dead after the failed ace in R3 (we were expecting a Drag Race question which our teammates could handle easily; we did not get that), but somehow still managed
 
 [View all notes](https://roytang.net/notes)
 
