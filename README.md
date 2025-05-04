@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [This Is What a Digital Coup Looks Like | Carole Cadwalladr | TED](https://roytang.net/2025/05/597132e16f7694e07519b4dd5d0ab779/)
+- [Keep moving | everything changes](https://roytang.net/2025/05/20c017ed7ecbc050f686aac45adacfbe/)
+- [Jim Nielsen’s Notes - New Rule: Newer, Not Better](https://roytang.net/2025/05/408ab917223ca94758d24b28a9a6ae9d/)
 - [This is How We Fall Out of Love with the World](https://roytang.net/2025/05/653e3f9d7e8a26fcad9c1f0a19c5dc33/)
 - [28 slightly rude notes on writing - by Adam Mastroianni](https://roytang.net/2025/05/621368239feeb1b7879ace08ac9afa3d/)
-- [&quot;AI-first&quot; is the new Return To Office - Anil Dash](https://roytang.net/2025/05/12d86eaa80bfd46fa1fc5849b7137fca/)
-- [Honest and Elitist Thoughts on Why Computers Were More Fun Before](https://roytang.net/2025/04/d50b6cd7f36614e4927ed97ce04fa042/)
-- [Almost Every Food Would Be Better Served in a Bowl](https://roytang.net/2025/04/e839fe49bfa15b62caed4bc68aadaa11/)
 
 [View all links](https://roytang.net/links)
 
