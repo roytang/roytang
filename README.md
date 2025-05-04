@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-05-04](https://roytang.net/2025/05/weeknotes-05-04/)
 - [Movies / TV - April* 2025](https://roytang.net/2025/05/movies-tv-april-2025/)
 - [I Just Want To See What Happens Next](https://roytang.net/2025/04/what-happens-next/)
 - [Weeknotes 2025-04-27](https://roytang.net/2025/04/weeknotes-04-27/)
 - [2025 Manga Update](https://roytang.net/2025/04/2025-manga-update/)
-- [Marvel&#x27;s Spider-Man: Miles Morales](https://roytang.net/2025/04/miles-morales/)
 
 [View all posts](https://roytang.net/blog)
 
