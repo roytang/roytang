@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Relics Of The Web](https://roytang.net/2025/05/3c92a5791cfe5c3b23d710562283baa5/)
+- [AI-Fueled Spiritual Delusions Are Destroying Human Relationships](https://roytang.net/2025/05/44f086ab9da0db0e20c57b1eba8a8d6c/)
 - [This Is What a Digital Coup Looks Like | Carole Cadwalladr | TED](https://roytang.net/2025/05/597132e16f7694e07519b4dd5d0ab779/)
 - [Keep moving | everything changes](https://roytang.net/2025/05/20c017ed7ecbc050f686aac45adacfbe/)
 - [Jim Nielsen’s Notes - New Rule: Newer, Not Better](https://roytang.net/2025/05/408ab917223ca94758d24b28a9a6ae9d/)
-- [This is How We Fall Out of Love with the World](https://roytang.net/2025/05/653e3f9d7e8a26fcad9c1f0a19c5dc33/)
-- [28 slightly rude notes on writing - by Adam Mastroianni](https://roytang.net/2025/05/621368239feeb1b7879ace08ac9afa3d/)
 
 [View all links](https://roytang.net/links)
 
