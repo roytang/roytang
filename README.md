@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Fediverse Isn’t the Future. It’s the Present We’ve Been Denied.](https://roytang.net/2025/05/108cc7d84789dcd2b587fa1bdf7a5044/)
 - [Relics Of The Web](https://roytang.net/2025/05/3c92a5791cfe5c3b23d710562283baa5/)
 - [AI-Fueled Spiritual Delusions Are Destroying Human Relationships](https://roytang.net/2025/05/44f086ab9da0db0e20c57b1eba8a8d6c/)
 - [This Is What a Digital Coup Looks Like | Carole Cadwalladr | TED](https://roytang.net/2025/05/597132e16f7694e07519b4dd5d0ab779/)
 - [Keep moving | everything changes](https://roytang.net/2025/05/20c017ed7ecbc050f686aac45adacfbe/)
-- [Jim Nielsen’s Notes - New Rule: Newer, Not Better](https://roytang.net/2025/05/408ab917223ca94758d24b28a9a6ae9d/)
 
 [View all links](https://roytang.net/links)
 
