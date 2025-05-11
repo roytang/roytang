@@ -6,21 +6,21 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-05-11](https://roytang.net/2025/05/weeknotes-05-11/)
 - [Weeknotes 2025-05-04](https://roytang.net/2025/05/weeknotes-05-04/)
 - [Movies / TV - April* 2025](https://roytang.net/2025/05/movies-tv-april-2025/)
 - [I Just Want To See What Happens Next](https://roytang.net/2025/04/what-happens-next/)
 - [Weeknotes 2025-04-27](https://roytang.net/2025/04/weeknotes-04-27/)
-- [2025 Manga Update](https://roytang.net/2025/04/2025-manga-update/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
+- [XKCD&#x27;s &quot;Is It Worth the Time?&quot; Considered Harmful](https://roytang.net/2025/05/e4f39e9fda4976259881104f0b647b75/)
 - [The Fediverse Isn’t the Future. It’s the Present We’ve Been Denied.](https://roytang.net/2025/05/108cc7d84789dcd2b587fa1bdf7a5044/)
 - [Relics Of The Web](https://roytang.net/2025/05/3c92a5791cfe5c3b23d710562283baa5/)
 - [AI-Fueled Spiritual Delusions Are Destroying Human Relationships](https://roytang.net/2025/05/44f086ab9da0db0e20c57b1eba8a8d6c/)
 - [This Is What a Digital Coup Looks Like | Carole Cadwalladr | TED](https://roytang.net/2025/05/597132e16f7694e07519b4dd5d0ab779/)
-- [Keep moving | everything changes](https://roytang.net/2025/05/20c017ed7ecbc050f686aac45adacfbe/)
 
 [View all links](https://roytang.net/links)
 
