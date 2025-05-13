@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [PH Elections 2025](https://roytang.net/2025/05/elections-2025/)
 - [Weeknotes 2025-05-11](https://roytang.net/2025/05/weeknotes-05-11/)
 - [Weeknotes 2025-05-04](https://roytang.net/2025/05/weeknotes-05-04/)
 - [Movies / TV - April* 2025](https://roytang.net/2025/05/movies-tv-april-2025/)
 - [I Just Want To See What Happens Next](https://roytang.net/2025/04/what-happens-next/)
-- [Weeknotes 2025-04-27](https://roytang.net/2025/04/weeknotes-04-27/)
 
 [View all posts](https://roytang.net/blog)
 
