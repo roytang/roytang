@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 15, 2025, 1:18 a.m. ](https://roytang.net/2025/05/114507324383988787/): Andor + Rogue One are just head and shoulders above any other piece of fiction in #StarWars. It&#x27;s just amazing how they managed to weave it all together while respecting the continuity of the films and even Rebels. I just found out that Tony Gilroy (Andor showrunner and R1 cowriter) was also the screenwriter for the original Bourne trilogy, which explains how good the infiltration and escape sequences in Andor are. I kind of want him to do something for the MCU! #tv
 - [May 12, 2025, 7:31 a.m. ](https://roytang.net/2025/05/114491803741465724/): Civic duty fulfilled! #halalan2025 #philippines A finger stained with indelible ink, an indicator of having voted
 - [May 8, 2025, 2:36 a.m. ](https://roytang.net/2025/05/mr407cd/): Sorry, but is there a transcript? Not really a podcast person
 - [May 5, 2025, 1:18 a.m. ](https://roytang.net/2025/05/114450699480901103/): @randomgeek thanks for the reply!
 - [May 5, 2025, 1:14 a.m. ](https://roytang.net/2025/05/114450687258169822/): @randomgeek what is the better/preferred approach for this sort of thing? List comprehensions?
-- [April 29, 2025, 7:23 p.m. ](https://roytang.net/2025/04/114420995764326815/): @cyborg_writer how is Goon doing now? I hope he is well
 
 [View all notes](https://roytang.net/notes)
 
