@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Moderation.txt | the library of alexandra](https://roytang.net/2025/05/25aea3c751b5ac83319916210667b6a0/)
+- [How AI is killing joy - Leahs Gedanken](https://roytang.net/2025/05/616d40ea4819ce54482f2e0be6ea1747/)
 - [XKCD&#x27;s &quot;Is It Worth the Time?&quot; Considered Harmful](https://roytang.net/2025/05/e4f39e9fda4976259881104f0b647b75/)
 - [The Fediverse Isn’t the Future. It’s the Present We’ve Been Denied.](https://roytang.net/2025/05/108cc7d84789dcd2b587fa1bdf7a5044/)
 - [Relics Of The Web](https://roytang.net/2025/05/3c92a5791cfe5c3b23d710562283baa5/)
-- [AI-Fueled Spiritual Delusions Are Destroying Human Relationships](https://roytang.net/2025/05/44f086ab9da0db0e20c57b1eba8a8d6c/)
-- [This Is What a Digital Coup Looks Like | Carole Cadwalladr | TED](https://roytang.net/2025/05/597132e16f7694e07519b4dd5d0ab779/)
 
 [View all links](https://roytang.net/links)
 
