@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-05-18](https://roytang.net/2025/05/weeknotes-05-18/)
 - [The Complete Marvel Run part 18: Captain America Part 2, Avengers Standoff, Secret Empire](https://roytang.net/2025/05/cmr-cap2/)
 - [PH Elections 2025](https://roytang.net/2025/05/elections-2025/)
 - [Weeknotes 2025-05-11](https://roytang.net/2025/05/weeknotes-05-11/)
 - [Weeknotes 2025-05-04](https://roytang.net/2025/05/weeknotes-05-04/)
-- [Movies / TV - April* 2025](https://roytang.net/2025/05/movies-tv-april-2025/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -27,10 +27,10 @@ Latest shared links:
 Latest notes:
 
 - [May 18, 2025, 6:48 a.m. ](https://roytang.net/2025/05/114525608715626976/): Took me forever to get my SECOND Blue Prince trophy. I am not sure how some of these are even possible! #gaming Blue Prince trophy list on PC Game Pass
+- [May 15, 2025, 11:48 p.m. Popquiz Trivia Night: Good Game](https://roytang.net/2025/05/popquiz-games/): Attendance: Me, Liz, Chi, Jaime, Cole, Macho We attended a games-themed PopQuiz at a new venue this Thursday. The venue was Quantum Neon mini-golf at Home Depot Ortigas. They have a sister restaurant calle Xin Xin. Rounds were: Sports Goats - 7pts Video Game Bosses - 5pts x2 for powerup Boardgame Meeples - 9pts Sports in Pop Culture - 4pts Video Game Music - 9pts x2 for ace. This was a fun round. We missed the Breath of the Wild main theme because honestly that seems kinda forgettable. Boardgame Rules - 9pts (Hail Mary) Hollywood actors in video games -
 - [May 15, 2025, 1:18 a.m. ](https://roytang.net/2025/05/114507324383988787/): Andor + Rogue One are just head and shoulders above any other piece of fiction in #StarWars. It&#x27;s just amazing how they managed to weave it all together while respecting the continuity of the films and even Rebels. I just found out that Tony Gilroy (Andor showrunner and R1 cowriter) was also the screenwriter for the original Bourne trilogy, which explains how good the infiltration and escape sequences in Andor are. I kind of want him to do something for the MCU! #tv
 - [May 12, 2025, 7:31 a.m. ](https://roytang.net/2025/05/114491803741465724/): Civic duty fulfilled! #halalan2025 #philippines A finger stained with indelible ink, an indicator of having voted
 - [May 8, 2025, 2:36 a.m. ](https://roytang.net/2025/05/mr407cd/): Sorry, but is there a transcript? Not really a podcast person
-- [May 5, 2025, 1:18 a.m. ](https://roytang.net/2025/05/114450699480901103/): @randomgeek thanks for the reply!
 
 [View all notes](https://roytang.net/notes)
 
