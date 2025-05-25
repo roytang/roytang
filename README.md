@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [Moderation.txt | the library of alexandra](https://roytang.net/2025/05/25aea3c751b5ac83319916210667b6a0/)
-- [How AI is killing joy - Leahs Gedanken](https://roytang.net/2025/05/616d40ea4819ce54482f2e0be6ea1747/)
-- [XKCD&#x27;s &quot;Is It Worth the Time?&quot; Considered Harmful](https://roytang.net/2025/05/e4f39e9fda4976259881104f0b647b75/)
-- [The Fediverse Isn’t the Future. It’s the Present We’ve Been Denied.](https://roytang.net/2025/05/108cc7d84789dcd2b587fa1bdf7a5044/)
-- [Relics Of The Web](https://roytang.net/2025/05/3c92a5791cfe5c3b23d710562283baa5/)
+- [Cursed Knowledge | Immich](https://roytang.net/2025/05/279e46664d198e1ed81d79cebc7b3f35/)
+- [A Company Reminder for Everyone to Talk Nicely About the Giant Plagiarism Machine - McSweeney’s Internet Tendency](https://roytang.net/2025/05/5d4fe930af4444e183a256ca7e9b15ae/)
+- [This blog is hosted on a Nintendo Wii](https://roytang.net/2025/05/d5e473a0ceed9cc6cd27370f541bf097/)
+- [15 Years of Responsive Web Design](https://roytang.net/2025/05/b0c598e35420fc5b67fac1a342931050/)
+- [The luxury of saying no.](https://roytang.net/2025/05/c9bd42e6749600746e7226a0417c4c75/)
 
 [View all links](https://roytang.net/links)
 
