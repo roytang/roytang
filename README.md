@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Who Cares Era | dansinker.com](https://roytang.net/2025/05/0731e0b62b2a2fe2204db419479c2237/)
 - [Cursed Knowledge | Immich](https://roytang.net/2025/05/279e46664d198e1ed81d79cebc7b3f35/)
 - [A Company Reminder for Everyone to Talk Nicely About the Giant Plagiarism Machine - McSweeney’s Internet Tendency](https://roytang.net/2025/05/5d4fe930af4444e183a256ca7e9b15ae/)
 - [This blog is hosted on a Nintendo Wii](https://roytang.net/2025/05/d5e473a0ceed9cc6cd27370f541bf097/)
 - [15 Years of Responsive Web Design](https://roytang.net/2025/05/b0c598e35420fc5b67fac1a342931050/)
-- [The luxury of saying no.](https://roytang.net/2025/05/c9bd42e6749600746e7226a0417c4c75/)
 
 [View all links](https://roytang.net/links)
 
