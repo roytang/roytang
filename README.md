@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [The Who Cares Era | dansinker.com](https://roytang.net/2025/05/0731e0b62b2a2fe2204db419479c2237/)
-- [Cursed Knowledge | Immich](https://roytang.net/2025/05/279e46664d198e1ed81d79cebc7b3f35/)
-- [A Company Reminder for Everyone to Talk Nicely About the Giant Plagiarism Machine - McSweeney’s Internet Tendency](https://roytang.net/2025/05/5d4fe930af4444e183a256ca7e9b15ae/)
-- [This blog is hosted on a Nintendo Wii](https://roytang.net/2025/05/d5e473a0ceed9cc6cd27370f541bf097/)
-- [15 Years of Responsive Web Design](https://roytang.net/2025/05/b0c598e35420fc5b67fac1a342931050/)
+- [i appreciated this study: &quot;They Can&#x27;t Read Very Well: A Study of the Reading Comprehension Skills Of English Majors At Two... – @prettyboysdontlookatexplosions on Tumblr](https://roytang.net/2025/06/dac5cbd98918bb7235c59bdcc1c183d6/)
+- [You Can Choose Tools That Make You Happy](https://roytang.net/2025/06/21810134a27fb317f05189cfe5710f8c/)
+- [Clair Obscur: Expedition 33 didn’t invent Final Frenchtasy or the J&#x27;RPG: the newly dubbed subgenre has a long and complicated history | PC Gamer](https://roytang.net/2025/06/66b6927d2f09bdd7b2f4da2e696262a8/)
+- [Who You Are is Not What You Do - Emily Rudow](https://roytang.net/2025/06/e60aede70158bb02a7ce910eb554a040/)
+- [Nine Rules for Evaluating New Technology](https://roytang.net/2025/06/f6662e6d5b818882f3221d0740fa8e9d/)
 
 [View all links](https://roytang.net/links)
 
