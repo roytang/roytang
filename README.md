@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 3, 2025, 4:16 p.m. ](https://roytang.net/2025/06/114618440641137530/): @dominik oh maybe i should try following it first. Let&#x27;s see if that helps
+- [June 3, 2025, 4:03 p.m. ](https://roytang.net/2025/06/114618390204761388/): @dominik if I view this account from tusky or the mastodon web interface it shows the last post is from Mar 18.
 - [June 3, 2025, 2:04 a.m. ](https://roytang.net/2025/06/mvmnbaf/): Try A+X #2 (art by chris bachalo)
 - [May 26, 2025, 11:26 p.m. Back to School - Electives Edition: A Quiz Night About School Electives](https://roytang.net/2025/05/aboutquiz-electives/): We attended another AboutQuiz quiz night at Saludo&#x27;s! Event Page Round by round breakdown: R1: Foreign Languages - 4pts R2: Business - 7pts R3: Performing Arts - 6pts R4: Vocational Education - 4pts R5: Visual Arts - 8pts (x2 for best joker): This round was very fun because they made bad reproductions of classic artworks that we had to identify and we were all laughing so hard R6: Adulting 101 - 8pts Pabibo: Electoral positions - 2pts We were in clear first place before the Pabibo round, so once again we only wagered enough to make sure we won, and
 - [May 26, 2025, 6:44 a.m. ](https://roytang.net/2025/05/114570893560543382/): #rip Peter David https://www.avclub.com/peter-david-incredible-hulk-writer-obituary
-- [May 24, 2025, 11 p.m. Pisay B2K Quiz Night @ Gacha](https://roytang.net/2025/05/pisay-b2k-quiz/): I attended B2K: Battle 2 Know Quiz Night @ GACHA. This was a fundraising event by PSHS batch 2000. The usual trivia team opted against attending this (the entrance fee was expensive!) but my PSHS batchmates wanted to join, so I went along with them. The place was packed, and mostly with PSHS alumni (not surprising). The round by round breakdown: science and math: 8pts brand logos: 4pts sports GOATs: 7pts hollywood hits: 8pts national flags: 2pts pinoy tv: 0pts PH provincial capital cities: 7pts song lyrics: 6pts The first few rounds weren&#x27;t too difficult, and we even did surprisingly
-- [May 19, 2025, 10:34 p.m. ](https://roytang.net/2025/05/114534992684875010/): Went ahead and finished the main story of Clair Obscur: Expedition 33 tonight before doing any side stuff. Such a fantastic well-done game; outstanding ambience, graphics, combat, music, story, everything! Possibly now my new favorite JRPG[^1] of all time. #gaming #ClairObscurExpedition33 [^1]: Not actually from Japan Lune looking to the horizon A tragic choice Ending screen saying &quot;THANK YOU&quot; The gang looking at a clear sky
 
 [View all notes](https://roytang.net/notes)
 
