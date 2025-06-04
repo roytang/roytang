@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [MTG: Tarkir Dragonstorm](https://roytang.net/2025/06/mtg-dragonstorm/)
 - [Weeknotes 2025-06-01](https://roytang.net/2025/06/weeknotes-06-01/)
 - [Nintendo DS Games Retro Reviews](https://roytang.net/2025/05/nds-games/)
 - [Weeknotes 2025-05-25](https://roytang.net/2025/05/weeknotes-05-25/)
 - [Weeknotes 2025-05-18](https://roytang.net/2025/05/weeknotes-05-18/)
-- [The Complete Marvel Run part 18: Captain America Part 2, Avengers Standoff, Secret Empire](https://roytang.net/2025/05/cmr-cap2/)
 
 [View all posts](https://roytang.net/blog)
 
