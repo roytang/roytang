@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Clair Obscur: Expedition 33](https://roytang.net/2025/06/clair-obscur-expedition-33/)
 - [Weeknotes 2025-06-08](https://roytang.net/2025/06/weeknotes-06-08/)
 - [MTG: Tarkir Dragonstorm](https://roytang.net/2025/06/mtg-dragonstorm/)
 - [Weeknotes 2025-06-01](https://roytang.net/2025/06/weeknotes-06-01/)
 - [Nintendo DS Games Retro Reviews](https://roytang.net/2025/05/nds-games/)
-- [Weeknotes 2025-05-25](https://roytang.net/2025/05/weeknotes-05-25/)
 
 [View all posts](https://roytang.net/blog)
 
