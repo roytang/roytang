@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 15, 2025, 1:02 a.m. ](https://roytang.net/2025/06/114682791242906156/): I think I read something like if when you try some new thing and then you&#x27;re not immediately good at it and you find that annoying/disappointing/discouraging, that this is a sign of #ADHD or #Neurodivergence or something like that. How true is this?
 - [June 13, 2025, 8:03 p.m. ](https://roytang.net/2025/06/114675956063565364/): Will stream some more #FinalFantasy drafts on #MagicArena in a few minutes. Hopefully I do better than last time! https://www.twitch.tv/twitchyroy #mtg
 - [June 13, 2025, 6:13 p.m. ](https://roytang.net/2025/06/114675521562119248/): @dominik i am curious to hear some examples
 - [June 11, 2025, 8:11 p.m. ](https://roytang.net/2025/06/114664661427076638/): gonna stream a #finalfantasy draft on #MagicArena #mtg https://www.twitch.tv/twitchyroy
 - [June 4, 2025, 8:32 p.m. ](https://roytang.net/2025/06/114625109184414947/): @Xjs its your journal, you get to make the rules! I would at least note any highlights though
-- [June 3, 2025, 4:16 p.m. ](https://roytang.net/2025/06/114618440641137530/): @dominik oh maybe i should try following it first. Let&#x27;s see if that helps
 
 [View all notes](https://roytang.net/notes)
 
