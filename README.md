@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [My website is my safe space, Sightless Scribbles](https://roytang.net/2025/06/3b592d8a68c0da8bfe63babba7c38745/)
+- [20 Lessons on Tyranny by Timothy Snyder / read by John Lithgow](https://roytang.net/2025/06/daf545ae507d7560ecd45ec60127a307/)
+- [The Dignity of Small Things | Scott Boms](https://roytang.net/2025/06/c6ebdb9058b40c7a631f8a991aeb03cd/)
 - [Changing Directions - Jacob Kaplan-Moss](https://roytang.net/2025/06/1d5cbeb5e1276a0c6981184daf21456a/)
 - [Firefox OS&#x27;s story from a mozilla insider not working on the project](https://roytang.net/2025/06/6763800cf141516f1464b5bda6c55515/)
-- [Building a personal archive of the web, the slow way – alexwlchan](https://roytang.net/2025/06/479c4f3fa5bd1a0c21931c3c64486f9a/)
-- [I Want No One Else to Succeed](https://roytang.net/2025/06/f6a36db6cc0664d27de964945b0d910b/)
-- [powRSS - Discover the indie web](https://roytang.net/2025/06/5cad92b5c20a2e83b9e153261f13ca14/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [June 15, 2025, 2:38 p.m. ](https://roytang.net/2025/06/114686003160672507/): The downside of always finding new #blogs to read/follow is that keeping up with the feed reader becomes challenging. I am still reading weeknotes from like April!
 - [June 15, 2025, 1:02 a.m. ](https://roytang.net/2025/06/114682791242906156/): I think I read something like if when you try some new thing and then you&#x27;re not immediately good at it and you find that annoying/disappointing/discouraging, that this is a sign of #ADHD or #Neurodivergence or something like that. How true is this?
 - [June 13, 2025, 8:03 p.m. ](https://roytang.net/2025/06/114675956063565364/): Will stream some more #FinalFantasy drafts on #MagicArena in a few minutes. Hopefully I do better than last time! https://www.twitch.tv/twitchyroy #mtg
 - [June 13, 2025, 6:13 p.m. ](https://roytang.net/2025/06/114675521562119248/): @dominik i am curious to hear some examples
 - [June 11, 2025, 8:11 p.m. ](https://roytang.net/2025/06/114664661427076638/): gonna stream a #finalfantasy draft on #MagicArena #mtg https://www.twitch.tv/twitchyroy
-- [June 4, 2025, 8:32 p.m. ](https://roytang.net/2025/06/114625109184414947/): @Xjs its your journal, you get to make the rules! I would at least note any highlights though
 
 [View all notes](https://roytang.net/notes)
 
