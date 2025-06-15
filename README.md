@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Changing Directions - Jacob Kaplan-Moss](https://roytang.net/2025/06/1d5cbeb5e1276a0c6981184daf21456a/)
+- [Firefox OS&#x27;s story from a mozilla insider not working on the project](https://roytang.net/2025/06/6763800cf141516f1464b5bda6c55515/)
 - [Building a personal archive of the web, the slow way – alexwlchan](https://roytang.net/2025/06/479c4f3fa5bd1a0c21931c3c64486f9a/)
 - [I Want No One Else to Succeed](https://roytang.net/2025/06/f6a36db6cc0664d27de964945b0d910b/)
 - [powRSS - Discover the indie web](https://roytang.net/2025/06/5cad92b5c20a2e83b9e153261f13ca14/)
-- [The Internet That Proved Her Wrong - jascha.wtf](https://roytang.net/2025/06/2a1a0a3f80e26c7af340f0229490d3b0/)
-- [i appreciated this study: &quot;They Can&#x27;t Read Very Well: A Study of the Reading Comprehension Skills Of English Majors At Two... – @prettyboysdontlookatexplosions on Tumblr](https://roytang.net/2025/06/dac5cbd98918bb7235c59bdcc1c183d6/)
 
 [View all links](https://roytang.net/links)
 
