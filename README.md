@@ -6,21 +6,21 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-06-15](https://roytang.net/2025/06/weeknotes-06-15/)
 - [Clair Obscur: Expedition 33](https://roytang.net/2025/06/clair-obscur-expedition-33/)
 - [Weeknotes 2025-06-08](https://roytang.net/2025/06/weeknotes-06-08/)
 - [MTG: Tarkir Dragonstorm](https://roytang.net/2025/06/mtg-dragonstorm/)
 - [Weeknotes 2025-06-01](https://roytang.net/2025/06/weeknotes-06-01/)
-- [Nintendo DS Games Retro Reviews](https://roytang.net/2025/05/nds-games/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
+- [A neutral stance is for weightlifting, not for human rights - annie&#x27;s blog](https://roytang.net/2025/06/438849bd5140b6763fa0069b52ed15e8/)
+- [The Internet of Consent - Anil Dash](https://roytang.net/2025/06/d94840c3a60f2cc609e67713399c5f52/)
 - [Jim Nielsen’s Notes - “Large Language Muddle”](https://roytang.net/2025/06/40c82845a4136fcbd375f4ef77e1f2a1/)
 - [My website is my safe space, Sightless Scribbles](https://roytang.net/2025/06/3b592d8a68c0da8bfe63babba7c38745/)
 - [20 Lessons on Tyranny by Timothy Snyder / read by John Lithgow](https://roytang.net/2025/06/daf545ae507d7560ecd45ec60127a307/)
-- [The Dignity of Small Things | Scott Boms](https://roytang.net/2025/06/c6ebdb9058b40c7a631f8a991aeb03cd/)
-- [Changing Directions - Jacob Kaplan-Moss](https://roytang.net/2025/06/1d5cbeb5e1276a0c6981184daf21456a/)
 
 [View all links](https://roytang.net/links)
 
