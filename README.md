@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Jim Nielsen’s Notes - “Large Language Muddle”](https://roytang.net/2025/06/40c82845a4136fcbd375f4ef77e1f2a1/)
 - [My website is my safe space, Sightless Scribbles](https://roytang.net/2025/06/3b592d8a68c0da8bfe63babba7c38745/)
 - [20 Lessons on Tyranny by Timothy Snyder / read by John Lithgow](https://roytang.net/2025/06/daf545ae507d7560ecd45ec60127a307/)
 - [The Dignity of Small Things | Scott Boms](https://roytang.net/2025/06/c6ebdb9058b40c7a631f8a991aeb03cd/)
 - [Changing Directions - Jacob Kaplan-Moss](https://roytang.net/2025/06/1d5cbeb5e1276a0c6981184daf21456a/)
-- [Firefox OS&#x27;s story from a mozilla insider not working on the project](https://roytang.net/2025/06/6763800cf141516f1464b5bda6c55515/)
 
 [View all links](https://roytang.net/links)
 
