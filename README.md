@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [the web as a space to be explored](https://roytang.net/2025/06/web-explorer/)
 - [Weeknotes 2025-06-15](https://roytang.net/2025/06/weeknotes-06-15/)
 - [Clair Obscur: Expedition 33](https://roytang.net/2025/06/clair-obscur-expedition-33/)
 - [Weeknotes 2025-06-08](https://roytang.net/2025/06/weeknotes-06-08/)
 - [MTG: Tarkir Dragonstorm](https://roytang.net/2025/06/mtg-dragonstorm/)
-- [Weeknotes 2025-06-01](https://roytang.net/2025/06/weeknotes-06-01/)
 
 [View all posts](https://roytang.net/blog)
 
