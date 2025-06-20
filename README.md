@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Retro Reviews: Disgaea 1 &amp; 2 (PSP), Disgaea 3 &amp; 4 (PS Vita)](https://roytang.net/2025/06/disgaea-1-4/)
 - [the web as a space to be explored](https://roytang.net/2025/06/web-explorer/)
 - [Weeknotes 2025-06-15](https://roytang.net/2025/06/weeknotes-06-15/)
 - [Clair Obscur: Expedition 33](https://roytang.net/2025/06/clair-obscur-expedition-33/)
 - [Weeknotes 2025-06-08](https://roytang.net/2025/06/weeknotes-06-08/)
-- [MTG: Tarkir Dragonstorm](https://roytang.net/2025/06/mtg-dragonstorm/)
 
 [View all posts](https://roytang.net/blog)
 
