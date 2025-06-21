@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 21, 2025, 3:21 p.m. ](https://roytang.net/2025/06/114720145676296010/): My server&#x27;s getting really hammered this week, IDK what I&#x27;ve done this time to earn the gaze of the LLM scraper bots
 - [June 15, 2025, 11:28 p.m. ](https://roytang.net/2025/06/114688086144301277/): Until the end of 2024, I had a bot running trivia questions over on bots.inspace. Since that instance shut down, I haven&#x27;t had time to migrate the bot elsewhere, and I&#x27;m looking to do that now. Any recommendations for a server/instance I can use? The bot isn&#x27;t high volume - basically 2 automated posts every hour. #bot #bots #trivia
 - [June 15, 2025, 2:38 p.m. ](https://roytang.net/2025/06/114686003160672507/): The downside of always finding new #blogs to read/follow is that keeping up with the feed reader becomes challenging. I am still reading weeknotes from like April!
 - [June 15, 2025, 1:02 a.m. ](https://roytang.net/2025/06/114682791242906156/): I think I read something like if when you try some new thing and then you&#x27;re not immediately good at it and you find that annoying/disappointing/discouraging, that this is a sign of #ADHD or #Neurodivergence or something like that. How true is this?
 - [June 13, 2025, 8:03 p.m. ](https://roytang.net/2025/06/114675956063565364/): Will stream some more #FinalFantasy drafts on #MagicArena in a few minutes. Hopefully I do better than last time! https://www.twitch.tv/twitchyroy #mtg
-- [June 13, 2025, 6:13 p.m. ](https://roytang.net/2025/06/114675521562119248/): @dominik i am curious to hear some examples
 
 [View all notes](https://roytang.net/notes)
 
