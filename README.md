@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [No Learnings](https://roytang.net/2025/06/559ccbb076f3839ebc21e1ed94698b10/)
+- [Personal blogs are the best, I love yours and I’ll try and tell you why](https://roytang.net/2025/06/6c740db80a9e88379c002a457d23431b/)
+- [I Deleted My Second Brain - Joan Westerberg](https://roytang.net/2025/06/4b43748c239bcb1d6d8d59d4f31913a8/)
+- [How to live off the rails • Buttondown](https://roytang.net/2025/06/ad5efab00b93c529134f58b97d658e21/)
 - [A neutral stance is for weightlifting, not for human rights - annie&#x27;s blog](https://roytang.net/2025/06/438849bd5140b6763fa0069b52ed15e8/)
-- [The Internet of Consent - Anil Dash](https://roytang.net/2025/06/d94840c3a60f2cc609e67713399c5f52/)
-- [Jim Nielsen’s Notes - “Large Language Muddle”](https://roytang.net/2025/06/40c82845a4136fcbd375f4ef77e1f2a1/)
-- [My website is my safe space, Sightless Scribbles](https://roytang.net/2025/06/3b592d8a68c0da8bfe63babba7c38745/)
-- [20 Lessons on Tyranny by Timothy Snyder / read by John Lithgow](https://roytang.net/2025/06/daf545ae507d7560ecd45ec60127a307/)
 
 [View all links](https://roytang.net/links)
 
