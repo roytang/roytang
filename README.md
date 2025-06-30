@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-06-29](https://roytang.net/2025/06/weeknotes-06-29/)
 - [Weeknotes 2025-06-22](https://roytang.net/2025/06/weeknotes-06-22/)
 - [Retro Reviews: Disgaea 1 &amp; 2 (PSP), Disgaea 3 &amp; 4 (PS Vita)](https://roytang.net/2025/06/disgaea-1-4/)
 - [the web as a space to be explored](https://roytang.net/2025/06/web-explorer/)
 - [Weeknotes 2025-06-15](https://roytang.net/2025/06/weeknotes-06-15/)
-- [Clair Obscur: Expedition 33](https://roytang.net/2025/06/clair-obscur-expedition-33/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 25, 2025, 11:35 p.m. PopQuiz x Eastwood City Food Park: Feast of Flavor Trivia Night](https://roytang.net/2025/06/popquiz-feast-of-flavor/): We attended PopQuiz x Eastwood City Food Park: Feast of Flavor Trivia Night! Unfortunately, we did not do well, finishing 3rd out of 4th teams. This was mostly a function of the first place team having a successful ace/gamble while we failed ours; if the fortunes had been reversed, we would have won! So in that sense, it was kind of a close fight. The event came with vouchers for food and drink, but the drink was coffee which was a bad idea and gave me trouble sleeping that night! Round breakdown: Food in Pop Culture: 8pts Famous Chefs: 8pts
 - [June 21, 2025, 3:21 p.m. ](https://roytang.net/2025/06/114720145676296010/): My server&#x27;s getting really hammered this week, IDK what I&#x27;ve done this time to earn the gaze of the LLM scraper bots
 - [June 15, 2025, 2:38 p.m. ](https://roytang.net/2025/06/114686003160672507/): The downside of always finding new #blogs to read/follow is that keeping up with the feed reader becomes challenging. I am still reading weeknotes from like April!
 - [June 15, 2025, 1:02 a.m. ](https://roytang.net/2025/06/114682791242906156/): I think I read something like if when you try some new thing and then you&#x27;re not immediately good at it and you find that annoying/disappointing/discouraging, that this is a sign of #ADHD or #Neurodivergence or something like that. How true is this?
 - [June 13, 2025, 8:03 p.m. ](https://roytang.net/2025/06/114675956063565364/): Will stream some more #FinalFantasy drafts on #MagicArena in a few minutes. Hopefully I do better than last time! https://www.twitch.tv/twitchyroy #mtg
-- [June 13, 2025, 6:13 p.m. ](https://roytang.net/2025/06/114675521562119248/): @dominik i am curious to hear some examples
 
 [View all notes](https://roytang.net/notes)
 
