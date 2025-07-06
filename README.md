@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Don’t make fun of renowned Dan Brown](https://roytang.net/2025/07/36ddb876efe9c63e36f7216d907a67a3/)
+- [A simple website](https://roytang.net/2025/07/e1cfac2a34a30c77e1742ad593706843/)
+- [The rise of Whatever / fuzzy notepad](https://roytang.net/2025/07/9c4bd1734b3babbf62663bca190468e3/)
 - [No Learnings](https://roytang.net/2025/06/559ccbb076f3839ebc21e1ed94698b10/)
 - [Personal blogs are the best, I love yours and I’ll try and tell you why](https://roytang.net/2025/06/6c740db80a9e88379c002a457d23431b/)
-- [I Deleted My Second Brain - Joan Westerberg](https://roytang.net/2025/06/4b43748c239bcb1d6d8d59d4f31913a8/)
-- [How to live off the rails • Buttondown](https://roytang.net/2025/06/ad5efab00b93c529134f58b97d658e21/)
-- [A neutral stance is for weightlifting, not for human rights - annie&#x27;s blog](https://roytang.net/2025/06/438849bd5140b6763fa0069b52ed15e8/)
 
 [View all links](https://roytang.net/links)
 
