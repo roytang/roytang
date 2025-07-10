@@ -6,7 +6,7 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
-- [Weeknotes 2025-06-29](https://roytang.net/2025/07/weeknotes-07-06/)
+- [Weeknotes 2025-07-06](https://roytang.net/2025/07/weeknotes-07-06/)
 - [Movies / TV - May &amp; June 2025](https://roytang.net/2025/07/movies-tv-may-jun-2025/)
 - [Weeknotes 2025-06-29](https://roytang.net/2025/06/weeknotes-06-29/)
 - [Weeknotes 2025-06-22](https://roytang.net/2025/06/weeknotes-06-22/)
