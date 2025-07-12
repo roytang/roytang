@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [It&#x27;s 2025, Why Is HP&#x27;s Printer and Scanner Software Still Terrible?](https://roytang.net/2025/07/hp-scanning/)
 - [Weeknotes 2025-07-06](https://roytang.net/2025/07/weeknotes-07-06/)
 - [Movies / TV - May &amp; June 2025](https://roytang.net/2025/07/movies-tv-may-jun-2025/)
 - [Weeknotes 2025-06-29](https://roytang.net/2025/06/weeknotes-06-29/)
 - [Weeknotes 2025-06-22](https://roytang.net/2025/06/weeknotes-06-22/)
-- [Retro Reviews: Disgaea 1 &amp; 2 (PSP), Disgaea 3 &amp; 4 (PS Vita)](https://roytang.net/2025/06/disgaea-1-4/)
 
 [View all posts](https://roytang.net/blog)
 
