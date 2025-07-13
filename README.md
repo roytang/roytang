@@ -6,21 +6,21 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-07-13](https://roytang.net/2025/07/weeknotes-07-13/)
 - [It&#x27;s 2025, Why Is HP&#x27;s Printer and Scanner Software Still Terrible?](https://roytang.net/2025/07/hp-scanning/)
 - [Weeknotes 2025-07-06](https://roytang.net/2025/07/weeknotes-07-06/)
 - [Movies / TV - May &amp; June 2025](https://roytang.net/2025/07/movies-tv-may-jun-2025/)
 - [Weeknotes 2025-06-29](https://roytang.net/2025/06/weeknotes-06-29/)
-- [Weeknotes 2025-06-22](https://roytang.net/2025/06/weeknotes-06-22/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
+- [44 - annie&#x27;s blog](https://roytang.net/2025/07/1ea4b3664ee997362a3f51df7c7087c8/)
+- [A Post By @ajroach42 on Retro Social](https://roytang.net/2025/07/114812555087369507/)
 - [online attention | ava&#x27;s blog](https://roytang.net/2025/07/1c07d0aaaa53bcbbfd8f4a5cebc3cd5e/)
 - [Don’t make fun of renowned Dan Brown](https://roytang.net/2025/07/36ddb876efe9c63e36f7216d907a67a3/)
 - [A simple website](https://roytang.net/2025/07/e1cfac2a34a30c77e1742ad593706843/)
-- [The rise of Whatever / fuzzy notepad](https://roytang.net/2025/07/9c4bd1734b3babbf62663bca190468e3/)
-- [No Learnings](https://roytang.net/2025/06/559ccbb076f3839ebc21e1ed94698b10/)
 
 [View all links](https://roytang.net/links)
 
@@ -29,8 +29,8 @@ Latest notes:
 - [July 11, 2025, 10:01 p.m. ](https://roytang.net/2025/07/114834962216483220/): Coulda sworn the Mastodon web UI already used to be here on the left side a long time ago then it moved to the right and now apparently they have decided left was already correct
 - [July 10, 2025, 8:49 p.m. ](https://roytang.net/2025/07/114829019922253678/): @Xjs you dont have to do all these things on the go! I just log stuff in a notes app then reconcile everything once a day
 - [July 9, 2025, 6:56 p.m. ](https://roytang.net/2025/07/114822913539087816/): #Superman was very good
-- [July 7, 2025, 11:02 p.m. ](https://roytang.net/2025/07/114812555087369507/): Longish but great and insightful thread from @ajroach42 about modern tech problems, propaganda, microcults, low attention spans, the difficulty of getting young people interested in reading, forming an intentional relationship with technology etc https://retro.social/@ajroach42/114811505328252889
 - [June 25, 2025, 11:35 p.m. PopQuiz x Eastwood City Food Park: Feast of Flavor Trivia Night](https://roytang.net/2025/06/popquiz-feast-of-flavor/): We attended PopQuiz x Eastwood City Food Park: Feast of Flavor Trivia Night! Unfortunately, we did not do well, finishing 3rd out of 4th teams. This was mostly a function of the first place team having a successful ace/gamble while we failed ours; if the fortunes had been reversed, we would have won! So in that sense, it was kind of a close fight. The event came with vouchers for food and drink, but the drink was coffee which was a bad idea and gave me trouble sleeping that night! Round breakdown: Food in Pop Culture: 8pts Famous Chefs: 8pts
+- [June 21, 2025, 3:21 p.m. ](https://roytang.net/2025/06/114720145676296010/): My server&#x27;s getting really hammered this week, IDK what I&#x27;ve done this time to earn the gaze of the LLM scraper bots
 
 [View all notes](https://roytang.net/notes)
 
