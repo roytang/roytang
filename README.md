@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-07-20](https://roytang.net/2025/07/weeknotes-07-20/)
 - [Weeknotes 2025-07-13](https://roytang.net/2025/07/weeknotes-07-13/)
 - [It&#x27;s 2025, Why Is HP&#x27;s Printer and Scanner Software Still Terrible?](https://roytang.net/2025/07/hp-scanning/)
 - [Weeknotes 2025-07-06](https://roytang.net/2025/07/weeknotes-07-06/)
 - [Movies / TV - May &amp; June 2025](https://roytang.net/2025/07/movies-tv-may-jun-2025/)
-- [Weeknotes 2025-06-29](https://roytang.net/2025/06/weeknotes-06-29/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [July 19, 2025, 11:03 p.m. The Limit Does Not Exist!: A Quiz Night About Mathematics](https://roytang.net/2025/07/aboutquiz-math/): We attended The Limit Does Not Exist!: A Quiz Night About Mathematics at a new location, Kyodo Lounge at Robison&#x27;s Magnolia. This one was an 8-rounder with 2 power-ups! Round breakdown: 🧮 Arithmetic: 5pts x2 due to power-up ❌ Algebra: 0pts 🔷 Geometry: 4pts 📐 Trigonometry: 0pts 📈 Probability and Statistics: 4pts 👨‍🏫 Advanced Math: 1pt 🍾 Pop Culture Math: 3pts x2 due to power-up ⁉️ Math Trivia: 4pts We did so terribly! I was expecting some level of problem solving, but not this much! Six out of the eight rounds were 99% problem solving! I should have gotten an
+- [July 17, 2025, 11:33 p.m. Pop QUIZ! a Back-to-School themed Trivia Night](https://roytang.net/2025/07/popquiz-anniv9-bts/): We attended Pop QUIZ! a Back-to-School themed Trivia Night This was one of their 9th anniversary events, so each team was given a bunch of giveaways. Round breakdown: &quot;Introduction to Psychology&quot;: 5pts Adulting 101: 6pts Advanced Chemical Linguistics: 8pts, x2 for power-up. The round involved spelling out the answers using elements from the periodic table. Poetry Analysis 103: 7pts + 1 bonus point - 4 points for failed gamble. The round involved identifying if a quote was from a poem or a song, with bonus points for correctly identifying the artist or poet. Applied Guesstimations: 3pts + 2pts bonus for
 - [July 11, 2025, 10:01 p.m. ](https://roytang.net/2025/07/114834962216483220/): Coulda sworn the Mastodon web UI already used to be here on the left side a long time ago then it moved to the right and now apparently they have decided left was already correct
 - [July 10, 2025, 8:49 p.m. ](https://roytang.net/2025/07/114829019922253678/): @Xjs you dont have to do all these things on the go! I just log stuff in a notes app then reconcile everything once a day
 - [July 9, 2025, 6:56 p.m. ](https://roytang.net/2025/07/114822913539087816/): #Superman was very good
-- [June 25, 2025, 11:35 p.m. PopQuiz x Eastwood City Food Park: Feast of Flavor Trivia Night](https://roytang.net/2025/06/popquiz-feast-of-flavor/): We attended PopQuiz x Eastwood City Food Park: Feast of Flavor Trivia Night! Unfortunately, we did not do well, finishing 3rd out of 4th teams. This was mostly a function of the first place team having a successful ace/gamble while we failed ours; if the fortunes had been reversed, we would have won! So in that sense, it was kind of a close fight. The event came with vouchers for food and drink, but the drink was coffee which was a bad idea and gave me trouble sleeping that night! Round breakdown: Food in Pop Culture: 8pts Famous Chefs: 8pts
-- [June 21, 2025, 3:21 p.m. ](https://roytang.net/2025/06/114720145676296010/): My server&#x27;s getting really hammered this week, IDK what I&#x27;ve done this time to earn the gaze of the LLM scraper bots
 
 [View all notes](https://roytang.net/notes)
 
