@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I&#x27;m Done With Social Media](https://roytang.net/2025/07/4e4d521c8764b5ed78f4d9d6f4d24c92/)
+- [JavaScript broke the web (and called it progress) - Jono Alderson](https://roytang.net/2025/07/aa75591d0daf26807ccce31f1f873969/)
+- [paddy carver: Tired of Talking About AI](https://roytang.net/2025/07/9886522223bc405c82cb6395eb428a74/)
 - [44 - annie&#x27;s blog](https://roytang.net/2025/07/1ea4b3664ee997362a3f51df7c7087c8/)
 - [A Post By @ajroach42 on Retro Social](https://roytang.net/2025/07/114812555087369507/)
-- [online attention | ava&#x27;s blog](https://roytang.net/2025/07/1c07d0aaaa53bcbbfd8f4a5cebc3cd5e/)
-- [Don’t make fun of renowned Dan Brown](https://roytang.net/2025/07/36ddb876efe9c63e36f7216d907a67a3/)
-- [A simple website](https://roytang.net/2025/07/e1cfac2a34a30c77e1742ad593706843/)
 
 [View all links](https://roytang.net/links)
 
