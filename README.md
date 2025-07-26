@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Paul&#x27;s Notes | The Promised LAN](https://roytang.net/2025/07/d2081420dfd76714e8097e24b6ca3d51/)
+- [The AI Replaces Services Myth - by Mert Deveci](https://roytang.net/2025/07/53601f63bc3906c56e87ca0e9070bc3f/)
+- [Ricki Heicklen - Unparalleled Misalignments](https://roytang.net/2025/07/6cccff0ccaee6b640beda4e03d48309d/)
+- [In praise of zines](https://roytang.net/2025/07/79165bcb440517d2e6c454bd312d30e3/)
 - [I&#x27;m Done With Social Media](https://roytang.net/2025/07/4e4d521c8764b5ed78f4d9d6f4d24c92/)
-- [JavaScript broke the web (and called it progress) - Jono Alderson](https://roytang.net/2025/07/aa75591d0daf26807ccce31f1f873969/)
-- [paddy carver: Tired of Talking About AI](https://roytang.net/2025/07/9886522223bc405c82cb6395eb428a74/)
-- [44 - annie&#x27;s blog](https://roytang.net/2025/07/1ea4b3664ee997362a3f51df7c7087c8/)
-- [A Post By @ajroach42 on Retro Social](https://roytang.net/2025/07/114812555087369507/)
 
 [View all links](https://roytang.net/links)
 
