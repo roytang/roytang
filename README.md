@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [They&#x27;re Made out of Meat](https://roytang.net/2025/07/4d01b944b2df98c850f75696979603b9/)
 - [Hard Things Are Supposed to Be Hard](https://roytang.net/2025/07/f5c677c2816304b778b38c0e847cd1d7/)
 - [It&#x27;s rude to show AI output to people | Alex Martsinovich](https://roytang.net/2025/07/7d7319007198a6c77141b2d9ddd9e96c/)
 - [Paul&#x27;s Notes | The Promised LAN](https://roytang.net/2025/07/d2081420dfd76714e8097e24b6ca3d51/)
 - [The AI Replaces Services Myth - by Mert Deveci](https://roytang.net/2025/07/53601f63bc3906c56e87ca0e9070bc3f/)
-- [Ricki Heicklen - Unparalleled Misalignments](https://roytang.net/2025/07/6cccff0ccaee6b640beda4e03d48309d/)
 
 [View all links](https://roytang.net/links)
 
