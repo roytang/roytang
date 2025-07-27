@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-07-27](https://roytang.net/2025/07/weeknotes-07-27/)
 - [Blue Prince](https://roytang.net/2025/07/blue-prince/)
 - [Project Hail Mary by Andy Weir](https://roytang.net/2025/07/project-hail-mary/)
 - [Weeknotes 2025-07-20](https://roytang.net/2025/07/weeknotes-07-20/)
 - [Weeknotes 2025-07-13](https://roytang.net/2025/07/weeknotes-07-13/)
-- [It&#x27;s 2025, Why Is HP&#x27;s Printer and Scanner Software Still Terrible?](https://roytang.net/2025/07/hp-scanning/)
 
 [View all posts](https://roytang.net/blog)
 
