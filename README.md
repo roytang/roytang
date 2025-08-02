@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Book Review: Wind and Truth by Sanderson, Brandon (Stormlight Archive book 5)](https://roytang.net/2025/08/wind-and-truth/)
 - [Weeknotes 2025-07-27](https://roytang.net/2025/07/weeknotes-07-27/)
 - [Blue Prince](https://roytang.net/2025/07/blue-prince/)
 - [Project Hail Mary by Andy Weir](https://roytang.net/2025/07/project-hail-mary/)
 - [Weeknotes 2025-07-20](https://roytang.net/2025/07/weeknotes-07-20/)
-- [Weeknotes 2025-07-13](https://roytang.net/2025/07/weeknotes-07-13/)
 
 [View all posts](https://roytang.net/blog)
 
