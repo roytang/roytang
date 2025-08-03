@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [Notes from Alexander Petros’ “Building the Hundred-Year Web Service” - Jim Nielsen’s Blog](https://roytang.net/2025/07/3694fd3d835897e620af75b5baeab110/)
-- [They&#x27;re Made out of Meat](https://roytang.net/2025/07/4d01b944b2df98c850f75696979603b9/)
-- [Hard Things Are Supposed to Be Hard](https://roytang.net/2025/07/f5c677c2816304b778b38c0e847cd1d7/)
-- [It&#x27;s rude to show AI output to people | Alex Martsinovich](https://roytang.net/2025/07/7d7319007198a6c77141b2d9ddd9e96c/)
-- [Paul&#x27;s Notes | The Promised LAN](https://roytang.net/2025/07/d2081420dfd76714e8097e24b6ca3d51/)
+- [Let there be lapses - annie&#x27;s blog](https://roytang.net/2025/08/4dd44f4bd6099ab497a573e5f9774ecb/)
+- [The Economy? He died five years ago. - daverupert.com](https://roytang.net/2025/08/04cc6bff50bf7e16a6a976dab8698df3/)
+- [The renewable energy revolution is a feat of technology | Rebecca Solnit | The Guardian](https://roytang.net/2025/08/8be3bd56a6021b50054980313c2a9fff/)
+- [An Obituary for Reading the Internet](https://roytang.net/2025/08/7aab097fecad30ff5e6a670e6339b9c6/)
+- [Curate your own newspaper with RSS](https://roytang.net/2025/08/2e0bf1699ac0ca0f123a8c7621a32a2f/)
 
 [View all links](https://roytang.net/links)
 
