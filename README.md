@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 10, 2025, midnight ](https://roytang.net/2025/08/n7slqms/): Carey Mulligan &lt;3
 - [Aug. 7, 2025, 4:25 p.m. ](https://roytang.net/2025/08/114986524818022131/): @czeins no because the internet was genuinely useful for the most part. People didnt have to be hyped into using it
 - [Aug. 7, 2025, 3:46 p.m. ](https://roytang.net/2025/08/n7dnuvi/): The one you read should be Ultimate Spider-Man (2000-2009) ending in #133 After that you can look at (in order): Ultimatum: Spider-Man Requiem #1-2 Ultimate Spider-Man (2009-2012) #1-#15 and #150-#160 Ultimate Comics Spider-Man (2011-2013) #1-#28
 - [Aug. 6, 2025, 1:41 a.m. ](https://roytang.net/2025/08/n73838t/): Ugh, there&#x27;s no way I can finish P3 Reload in time. They should give more advance notice for this sort of thing
 - [Aug. 2, 2025, 12:45 a.m. ](https://roytang.net/2025/08/114954517162914512/): @jefklak the map on that page behaves very weirdly on mobile. This was after i tried scrolling past the first image
-- [July 31, 2025, 11:33 p.m. POPQUIZ!: The 9th Anniversary Trivia Night](https://roytang.net/2025/07/popquiz-anniv9-vault/): We attended POPQUIZ!: The 9th Anniversary Trivia Night This was the last of their 9th anniversary events this July, so once again we got a bunch of giveaways. Round breakdown: Game shows: Each question was based around a different game show format - 7pts, x2 for power-up. Tabletop games - 5pts. Theater: quickfire round where you had to identify if the given stage play is adapted from a book or movie; bonus points for naming the author/director- 10pts. This was easily our weakest category going in, so it&#x27;s nice that it was a bit easier than expected. Heists - 6pts,
 
 [View all notes](https://roytang.net/notes)
 
