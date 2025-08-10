@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-08-10](https://roytang.net/2025/08/weeknotes-08-10/)
 - [Forty-Seven](https://roytang.net/2025/08/forty-seven/)
 - [Weeknotes 2025-08-03](https://roytang.net/2025/08/weeknotes-08-03/)
 - [Book Review: Wind and Truth by Sanderson, Brandon (Stormlight Archive book 5)](https://roytang.net/2025/08/wind-and-truth/)
 - [Weeknotes 2025-07-27](https://roytang.net/2025/07/weeknotes-07-27/)
-- [Blue Prince](https://roytang.net/2025/07/blue-prince/)
 
 [View all posts](https://roytang.net/blog)
 
