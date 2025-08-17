@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [A Secret Web](https://roytang.net/2025/08/348e5727c64accc18ba847d16abd06b3/)
+- [Resist AI!](https://roytang.net/2025/08/05900487ddfdb7e2aa48aa3abd0e4b2d/)
 - [Fascism For First Time Founders](https://roytang.net/2025/08/45c30aaff9bb72d2b2c48f9147ab1250/)
 - [wplace](https://roytang.net/2025/08/acfd36a4bd46fc93db247ea93f38eccc/)
 - [Dozens of things you can do to clean up a fresh install of Windows 11 24H2 and Edge](https://roytang.net/2025/08/aeab897c3575e592ac37acce65378958/)
-- [This website is for humans - localghost](https://roytang.net/2025/08/e7613e00994424e27d521bb8a6eed244/)
-- [27 Notes On Growing Old(er) - by Ian Leslie - The Ruffian](https://roytang.net/2025/08/3bcda98d1ff0478d7ebe7e43f14bf26a/)
 
 [View all links](https://roytang.net/links)
 
