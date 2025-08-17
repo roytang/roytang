@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [wplace](https://roytang.net/2025/08/acfd36a4bd46fc93db247ea93f38eccc/)
+- [Dozens of things you can do to clean up a fresh install of Windows 11 24H2 and Edge](https://roytang.net/2025/08/aeab897c3575e592ac37acce65378958/)
 - [This website is for humans - localghost](https://roytang.net/2025/08/e7613e00994424e27d521bb8a6eed244/)
 - [27 Notes On Growing Old(er) - by Ian Leslie - The Ruffian](https://roytang.net/2025/08/3bcda98d1ff0478d7ebe7e43f14bf26a/)
 - [Perplexity is using stealth, undeclared crawlers to evade website no-crawl directives](https://roytang.net/2025/08/03eaaf4796dd676ab94c143c02f8e5c0/)
-- [In the Future All Food Will Be Cooked in a Microwave, and if You Can’t Deal With That Then You Need to Get Out of the Kitchen – Random Thoughts](https://roytang.net/2025/08/2e90530a2c0c168472d01c6a1bc66b0d/)
-- [Let there be lapses - annie&#x27;s blog](https://roytang.net/2025/08/4dd44f4bd6099ab497a573e5f9774ecb/)
 
 [View all links](https://roytang.net/links)
 
