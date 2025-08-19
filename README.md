@@ -54,5 +54,6 @@ Elsewhere:
 - [Instagram](https://instagram.com/roytang0400)
 - [Github](https://github.com/roytang)
 - [Reddit](https://reddit.com/u/hungryroy)
+- [Letterboxd](https://letterboxd.com/hungryroy/)
 - [Ko-fi](https://ko-fi.com/roytang)
-- [](mailto:hello@roytang.net)
+- [E-Mail](mailto:hello@roytang.net)
