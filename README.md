@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [BlueSky: Christopher Reeve advertising camcorders in 1989, culminating in THE GREATEST SLOGAN OF ALL TIME](https://roytang.net/2025/08/cdad57b5871f9cb51fe3daaf34d40c6f/)
+- [A Blog Is Freedom | Rees Writes](https://roytang.net/2025/08/c83f01fdc6b6989dcaf3a43a75d91779/)
+- [The Data Collection Trap – Untraceable Digital Dissident](https://roytang.net/2025/08/cd122a57d356f3670113959c17626b23/)
 - [A Secret Web](https://roytang.net/2025/08/348e5727c64accc18ba847d16abd06b3/)
 - [Resist AI!](https://roytang.net/2025/08/05900487ddfdb7e2aa48aa3abd0e4b2d/)
-- [Fascism For First Time Founders](https://roytang.net/2025/08/45c30aaff9bb72d2b2c48f9147ab1250/)
-- [wplace](https://roytang.net/2025/08/acfd36a4bd46fc93db247ea93f38eccc/)
-- [Dozens of things you can do to clean up a fresh install of Windows 11 24H2 and Edge](https://roytang.net/2025/08/aeab897c3575e592ac37acce65378958/)
 
 [View all links](https://roytang.net/links)
 
