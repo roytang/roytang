@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The web is fast by default, let’s keep it fast | hidde.blog](https://roytang.net/2025/08/a2d39f0179ef7fca30da54657ff3cef4/)
+- [The Server Doesn&#x27;t Render Anything](https://roytang.net/2025/08/92bfea5eda122c3461b68e021ef1ee59/)
+- [For a Student Who Used AI to Write a Paper by Joseph Fasano - Poems | Academy of American Poets](https://roytang.net/2025/08/adc7a35aa98cbbdd14a4efa4f7efeba1/)
 - [BlueSky: Christopher Reeve advertising camcorders in 1989, culminating in THE GREATEST SLOGAN OF ALL TIME](https://roytang.net/2025/08/cdad57b5871f9cb51fe3daaf34d40c6f/)
 - [A Blog Is Freedom | Rees Writes](https://roytang.net/2025/08/c83f01fdc6b6989dcaf3a43a75d91779/)
-- [The Data Collection Trap – Untraceable Digital Dissident](https://roytang.net/2025/08/cd122a57d356f3670113959c17626b23/)
-- [A Secret Web](https://roytang.net/2025/08/348e5727c64accc18ba847d16abd06b3/)
-- [Resist AI!](https://roytang.net/2025/08/05900487ddfdb7e2aa48aa3abd0e4b2d/)
 
 [View all links](https://roytang.net/links)
 
