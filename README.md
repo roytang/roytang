@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-08-24](https://roytang.net/2025/08/weeknotes-08-24/)
 - [Aug 2025 Site Updates](https://roytang.net/2025/08/aug2025-site-updates/)
 - [Weeknotes 2025-08-17](https://roytang.net/2025/08/weeknotes-08-17/)
 - [MTG: Final Fantasy](https://roytang.net/2025/08/mtg-final-fantasy/)
 - [Weeknotes 2025-08-10](https://roytang.net/2025/08/weeknotes-08-10/)
-- [Forty-Seven](https://roytang.net/2025/08/forty-seven/)
 
 [View all posts](https://roytang.net/blog)
 
