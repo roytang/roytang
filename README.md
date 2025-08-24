@@ -16,21 +16,21 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Could I Have Some More Friction in My Life, Please? - Jim Nielsen’s Blog](https://roytang.net/2025/08/2ec816e5294e54bcc1cfa78112b9aa79/)
 - [The web is fast by default, let’s keep it fast | hidde.blog](https://roytang.net/2025/08/a2d39f0179ef7fca30da54657ff3cef4/)
 - [The Server Doesn&#x27;t Render Anything](https://roytang.net/2025/08/92bfea5eda122c3461b68e021ef1ee59/)
 - [For a Student Who Used AI to Write a Paper by Joseph Fasano - Poems | Academy of American Poets](https://roytang.net/2025/08/adc7a35aa98cbbdd14a4efa4f7efeba1/)
 - [BlueSky: Christopher Reeve advertising camcorders in 1989, culminating in THE GREATEST SLOGAN OF ALL TIME](https://roytang.net/2025/08/cdad57b5871f9cb51fe3daaf34d40c6f/)
-- [A Blog Is Freedom | Rees Writes](https://roytang.net/2025/08/c83f01fdc6b6989dcaf3a43a75d91779/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
+- [Aug. 24, 2025, 5:16 p.m. ](https://roytang.net/2025/08/115082986711650736/): Okay, I guess I&#x27;ll just ask: how do i post an html-formatted status using the mastodon api? Like using &lt;ul&gt;, &lt;blockquote&gt; and such. I&#x27;ve seen posts using such features (IDK if they came from non-Masto sources). I&#x27;ve tried putting the HTML in the `status` param (ref: https://docs.joinmastodon.org/methods/statuses/#create) but that doesn&#x27;t work apparently
 - [Aug. 14, 2025, 1 a.m. ](https://roytang.net/2025/08/n8hxwde/): How would it work with multiple devices? Does each device get its own keypair? But that means you would still need a traditional password as well, in order to do the initial auth and keypair generation on a new device? Also, if your device is compromised or your phone is lost, doesnt that mean someone else will now have access to all your accounts that had passkeys stored on that device, without needing a passwors?
 - [Aug. 12, 2025, 9:03 a.m. ](https://roytang.net/2025/08/115013098310132945/): @jefklak thank you for the kind words
 - [Aug. 10, 2025, midnight ](https://roytang.net/2025/08/n7slqms/): Carey Mulligan &lt;3
 - [Aug. 7, 2025, 4:25 p.m. ](https://roytang.net/2025/08/114986524818022131/): @czeins no because the internet was genuinely useful for the most part. People didnt have to be hyped into using it
-- [Aug. 7, 2025, 3:46 p.m. ](https://roytang.net/2025/08/n7dnuvi/): The one you read should be Ultimate Spider-Man (2000-2009) ending in #133 After that you can look at (in order): Ultimatum: Spider-Man Requiem #1-2 Ultimate Spider-Man (2009-2012) #1-#15 and #150-#160 Ultimate Comics Spider-Man (2011-2013) #1-#28
 
 [View all notes](https://roytang.net/notes)
 
