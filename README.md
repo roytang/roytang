@@ -50,6 +50,7 @@ Elsewhere:
 - []()
 - [Mastodon](https://indieweb.social/@roytang)
 - [Twitch](https://twitch.tv/twitchyroy)
+- [YouTube](https://youtube.com/@roytang)
 - [LinkedIn](https://www.linkedin.com/in/roytang)
 - [Instagram](https://instagram.com/roytang0400)
 - [Github](https://github.com/roytang)
