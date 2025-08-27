@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 27, 2025, 6:46 p.m. ](https://roytang.net/2025/08/1n1dnix/): Posted on r/MagicArena: Midweek Magic: Pick-Two Draft doesn&#x27;t let you pick 2 of the same card. I had a pack with 2 Etali and trying to pick both of them just resulted in a network error and the pack reloaded and I had to choose again. I tried this again a second time later with some uncommon that was also doubled in a pack, same issue. I guess midweek magic is a good way to beta test this sort of thing.
 - [Aug. 24, 2025, 5:16 p.m. ](https://roytang.net/2025/08/115082986711650736/): Okay, I guess I&#x27;ll just ask: how do i post an html-formatted status using the mastodon api? Like using &lt;ul&gt;, &lt;blockquote&gt; and such. I&#x27;ve seen posts using such features (IDK if they came from non-Masto sources). I&#x27;ve tried putting the HTML in the `status` param (ref: https://docs.joinmastodon.org/methods/statuses/#create) but that doesn&#x27;t work apparently
 - [Aug. 14, 2025, 1 a.m. ](https://roytang.net/2025/08/n8hxwde/): How would it work with multiple devices? Does each device get its own keypair? But that means you would still need a traditional password as well, in order to do the initial auth and keypair generation on a new device? Also, if your device is compromised or your phone is lost, doesnt that mean someone else will now have access to all your accounts that had passkeys stored on that device, without needing a passwors?
 - [Aug. 12, 2025, 9:03 a.m. ](https://roytang.net/2025/08/115013098310132945/): @jefklak thank you for the kind words
 - [Aug. 10, 2025, midnight ](https://roytang.net/2025/08/n7slqms/): Carey Mulligan &lt;3
-- [Aug. 7, 2025, 4:25 p.m. ](https://roytang.net/2025/08/114986524818022131/): @czeins no because the internet was genuinely useful for the most part. People didnt have to be hyped into using it
 
 [View all notes](https://roytang.net/notes)
 
