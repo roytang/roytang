@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I Am An AI Hater | moser’s frame shop](https://roytang.net/2025/08/3c88013cf669a8f5cbb44957c4f0aa72/)
 - [Who&#x27;s Afraid of a Hard Page Load?](https://roytang.net/2025/08/b328b73313dcf5e3f59f4f6d1b81df94/)
 - [Could I Have Some More Friction in My Life, Please? - Jim Nielsen’s Blog](https://roytang.net/2025/08/2ec816e5294e54bcc1cfa78112b9aa79/)
 - [The web is fast by default, let’s keep it fast | hidde.blog](https://roytang.net/2025/08/a2d39f0179ef7fca30da54657ff3cef4/)
 - [The Server Doesn&#x27;t Render Anything](https://roytang.net/2025/08/92bfea5eda122c3461b68e021ef1ee59/)
-- [For a Student Who Used AI to Write a Paper by Joseph Fasano - Poems | Academy of American Poets](https://roytang.net/2025/08/adc7a35aa98cbbdd14a4efa4f7efeba1/)
 
 [View all links](https://roytang.net/links)
 
