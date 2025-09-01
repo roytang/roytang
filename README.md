@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 1, 2025, 2:10 p.m. ](https://roytang.net/2025/09/115127551524419386/): @maya a zip file on your website?
 - [Sept. 1, 2025, 1:01 a.m. ](https://roytang.net/2025/08/115124448145611956/): Last minute mythic on #MagicArena tonight. Had to give up on my pet omniscience decks and switch to Vivi Cauldron to get there, still took a while. I wish Arena had an emote that was like &quot;Please let me win, I just need 1 more to rank up!!&quot; Magic Arena screenshot of getting to Mythic rank
 - [Aug. 28, 2025, 7:52 a.m. ](https://roytang.net/2025/08/115103414738357302/): @drwho 745. Thanks!
 - [Aug. 27, 2025, 6:46 p.m. ](https://roytang.net/2025/08/1n1dnix/): Posted on r/MagicArena: Midweek Magic: Pick-Two Draft doesn&#x27;t let you pick 2 of the same card. I had a pack with 2 Etali and trying to pick both of them just resulted in a network error and the pack reloaded and I had to choose again. I tried this again a second time later with some uncommon that was also doubled in a pack, same issue. I guess midweek magic is a good way to beta test this sort of thing.
 - [Aug. 24, 2025, 5:16 p.m. ](https://roytang.net/2025/08/115082986711650736/): Okay, I guess I&#x27;ll just ask: how do i post an html-formatted status using the mastodon api? Like using &lt;ul&gt;, &lt;blockquote&gt; and such. I&#x27;ve seen posts using such features (IDK if they came from non-Masto sources). I&#x27;ve tried putting the HTML in the `status` param (ref: https://docs.joinmastodon.org/methods/statuses/#create) but that doesn&#x27;t work apparently
-- [Aug. 14, 2025, 1 a.m. ](https://roytang.net/2025/08/n8hxwde/): How would it work with multiple devices? Does each device get its own keypair? But that means you would still need a traditional password as well, in order to do the initial auth and keypair generation on a new device? Also, if your device is compromised or your phone is lost, doesnt that mean someone else will now have access to all your accounts that had passkeys stored on that device, without needing a passwors?
 
 [View all notes](https://roytang.net/notes)
 
