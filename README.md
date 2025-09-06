@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Experience with LLM - Ron Jeffries](https://roytang.net/2025/09/067b3c881c1fc727aa438dbe5df17511/)
+- [An ode to “via” | Multiline Comment](https://roytang.net/2025/09/79350d2acf42c0fc902cecb4569bc4a8/)
 - [Affirmations for bloggers | nicole@web](https://roytang.net/2025/09/ebfee23b8e2007567b577337fb11c623/)
 - [I Am An AI Hater | moser’s frame shop](https://roytang.net/2025/08/3c88013cf669a8f5cbb44957c4f0aa72/)
 - [Who&#x27;s Afraid of a Hard Page Load?](https://roytang.net/2025/08/b328b73313dcf5e3f59f4f6d1b81df94/)
-- [Could I Have Some More Friction in My Life, Please? - Jim Nielsen’s Blog](https://roytang.net/2025/08/2ec816e5294e54bcc1cfa78112b9aa79/)
-- [The web is fast by default, let’s keep it fast | hidde.blog](https://roytang.net/2025/08/a2d39f0179ef7fca30da54657ff3cef4/)
 
 [View all links](https://roytang.net/links)
 
