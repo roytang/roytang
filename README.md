@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-09-14](https://roytang.net/2025/09/weeknotes-09-14/)
 - [Weeknotes 2025-09-07](https://roytang.net/2025/09/weeknotes-09-07/)
 - [All Systems Red by Martha Wells (Murderbot Diaries book 1)](https://roytang.net/2025/09/all-systems-red/)
 - [Movies / TV - July &amp; August 2025](https://roytang.net/2025/09/movies-tv-jul-aug-2025/)
 - [Weeknotes 2025-08-31](https://roytang.net/2025/09/weeknotes-08-31/)
-- [Weeknotes 2025-08-24](https://roytang.net/2025/08/weeknotes-08-24/)
 
 [View all posts](https://roytang.net/blog)
 
