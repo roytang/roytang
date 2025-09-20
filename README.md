@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [No, you don&#x27;t want to hire &quot;the best engineers&quot; - Otherbranch](https://roytang.net/2025/09/203890a8adc6d579566b2715a565abfb/)
-- [Experience with LLM - Ron Jeffries](https://roytang.net/2025/09/067b3c881c1fc727aa438dbe5df17511/)
-- [An ode to “via” | Multiline Comment](https://roytang.net/2025/09/79350d2acf42c0fc902cecb4569bc4a8/)
-- [Affirmations for bloggers | nicole@web](https://roytang.net/2025/09/ebfee23b8e2007567b577337fb11c623/)
-- [I Am An AI Hater | moser’s frame shop](https://roytang.net/2025/08/3c88013cf669a8f5cbb44957c4f0aa72/)
+- [Treat your to-read pile like a river | Oliver Burkeman](https://roytang.net/2025/09/869cc4b20082075cf86924a564f52cc9/)
+- [The Imperfectionist: The power of immediacy](https://roytang.net/2025/09/7fbe97337ae4674d5c1e336c685a8cef/)
+- [Clues By Sam](https://roytang.net/2025/09/a414087ec542c94481796a15efbe84b8/)
+- [Boring is good](https://roytang.net/2025/09/5e80df779be836701dc68d3e8ac06a38/)
+- [Our obsession with efficiency is costing us our humanity](https://roytang.net/2025/09/97ce5f48194b4fd80568f1be9f4b5f53/)
 
 [View all links](https://roytang.net/links)
 
