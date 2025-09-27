@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Final Fantasy XVI](https://roytang.net/2025/09/final-fantasy-xvi/)
 - [MTG: Edge of Eternities](https://roytang.net/2025/09/mtg-edge/)
 - [Weeknotes 2025-09-21](https://roytang.net/2025/09/weeknotes-09-21/)
 - [Weeknotes 2025-09-14](https://roytang.net/2025/09/weeknotes-09-14/)
 - [Weeknotes 2025-09-07](https://roytang.net/2025/09/weeknotes-09-07/)
-- [All Systems Red by Martha Wells (Murderbot Diaries book 1)](https://roytang.net/2025/09/all-systems-red/)
 
 [View all posts](https://roytang.net/blog)
 
