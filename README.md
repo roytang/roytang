@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 10, 2025, 9:08 a.m. ](https://roytang.net/2025/10/nip2bbm/): Looks like the caracal already had 4 damage. When he moves the equipment to something else, the caracal became a 3/3 with 4 damage on it, so it dies.
 - [Sept. 18, 2025, 7:14 a.m. ](https://roytang.net/2025/09/115222174502202279/): It&#x27;s been a minute but I finally managed to get back to Infinite rank on #MarvelSnap, this time using Daken combo and Negative Jane. Still F2P! Snap Battle Rewards screen showing ranking up to 100 Snap infinite rank dialog
 - [Sept. 16, 2025, 6:55 a.m. ](https://roytang.net/2025/09/nefh1dm/): Look for: Ultimate Spider-Man (2009-2012) #1-#15 and #150-#160 Ultimate Comics Spider-Man (2011-2013) #1-#28
 - [Sept. 6, 2025, 12:25 a.m. ](https://roytang.net/2025/09/nckxipg/): Read the card [[bloodletter of aclazotz]]
 - [Sept. 5, 2025, 12:12 a.m. ](https://roytang.net/2025/09/1n8ehtp/): Posted on r/Steam: 5% of silksong players on steam have already finished the game?
-- [Sept. 4, 2025, 12:23 a.m. ](https://roytang.net/2025/09/nc7tl1b/): They&#x27;re going to do this again with Scott and Jean in the eventual X-Men set aren&#x27;t they
 
 [View all notes](https://roytang.net/notes)
 
