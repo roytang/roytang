@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Links make the web great](https://roytang.net/2025/10/4c5c88cc264fcb5269707a2b51a124e5/)
 - [Treat your to-read pile like a river | Oliver Burkeman](https://roytang.net/2025/09/869cc4b20082075cf86924a564f52cc9/)
 - [The Imperfectionist: The power of immediacy](https://roytang.net/2025/09/7fbe97337ae4674d5c1e336c685a8cef/)
 - [Clues By Sam](https://roytang.net/2025/09/a414087ec542c94481796a15efbe84b8/)
 - [Boring is good](https://roytang.net/2025/09/5e80df779be836701dc68d3e8ac06a38/)
-- [Our obsession with efficiency is costing us our humanity](https://roytang.net/2025/09/97ce5f48194b4fd80568f1be9f4b5f53/)
 
 [View all links](https://roytang.net/links)
 
