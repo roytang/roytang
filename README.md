@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Reality has a surprising amount of detail](https://roytang.net/2025/10/0a7bf3556b4088e8eb3c6b4b7ef8f78a/)
+- [Frank Chimero · Selling Lemons](https://roytang.net/2025/10/d46085d2b28daab2da47a06c8d4e57ac/)
+- [/u/NowGoodbyeForever on Empathy (from Reddit thread on conservatives and empathy)](https://roytang.net/2025/10/4674a01d986545d68a89bd600963e14d/)
+- [Have I Earned It?](https://roytang.net/2025/10/1cb555b7d6ca5cf7ab1f2ed56ce3cf1c/)
 - [Links make the web great](https://roytang.net/2025/10/4c5c88cc264fcb5269707a2b51a124e5/)
-- [Treat your to-read pile like a river | Oliver Burkeman](https://roytang.net/2025/09/869cc4b20082075cf86924a564f52cc9/)
-- [The Imperfectionist: The power of immediacy](https://roytang.net/2025/09/7fbe97337ae4674d5c1e336c685a8cef/)
-- [Clues By Sam](https://roytang.net/2025/09/a414087ec542c94481796a15efbe84b8/)
-- [Boring is good](https://roytang.net/2025/09/5e80df779be836701dc68d3e8ac06a38/)
 
 [View all links](https://roytang.net/links)
 
