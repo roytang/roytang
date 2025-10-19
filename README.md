@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-10-19](https://roytang.net/2025/10/weeknotes-10-19/)
 - [Sunderfolk](https://roytang.net/2025/10/sunderfolk/)
 - [Weeknotes 2025-10-12](https://roytang.net/2025/10/weeknotes-10-12/)
 - [Pandemic Legacy (Season 1)](https://roytang.net/2025/10/pandemic-legacy/)
 - [Weeknotes 2025-10-05](https://roytang.net/2025/10/weeknotes-10-05/)
-- [Artificial Condition by Martha Wells (Murderbot Diaries book 2)](https://roytang.net/2025/10/artificial-condition/)
 
 [View all posts](https://roytang.net/blog)
 
