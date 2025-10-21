@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Future of Forums is Lies, I Guess](https://roytang.net/2025/10/de844c35aca70b16a372449b28ed961d/)
 - [You&#x27;ve got mail | dead.garden](https://roytang.net/2025/10/64bd37fe5c96fdd9e1bea79a33cd6758/)
 - [Django forever · Applied Cartography](https://roytang.net/2025/10/68641a0b2e87c35b5357fe00f05bd758/)
 - [Reality has a surprising amount of detail](https://roytang.net/2025/10/0a7bf3556b4088e8eb3c6b4b7ef8f78a/)
 - [Frank Chimero · Selling Lemons](https://roytang.net/2025/10/d46085d2b28daab2da47a06c8d4e57ac/)
-- [/u/NowGoodbyeForever on Empathy (from Reddit thread on conservatives and empathy)](https://roytang.net/2025/10/4674a01d986545d68a89bd600963e14d/)
 
 [View all links](https://roytang.net/links)
 
