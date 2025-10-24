@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Majority AI View - Anil Dash](https://roytang.net/2025/10/7459c3752634241b300d94e75048fcc7/)
 - [Emilie Muller  - YouTube](https://roytang.net/2025/10/f32fb973d6f4ea5067d23879c578262e/)
 - [On AI and the golem – Going Medieval](https://roytang.net/2025/10/487bf9216705d39762525cbe00c2054c/)
 - [The Future of Forums is Lies, I Guess](https://roytang.net/2025/10/de844c35aca70b16a372449b28ed961d/)
 - [You&#x27;ve got mail | dead.garden](https://roytang.net/2025/10/64bd37fe5c96fdd9e1bea79a33cd6758/)
-- [Django forever · Applied Cartography](https://roytang.net/2025/10/68641a0b2e87c35b5357fe00f05bd758/)
 
 [View all links](https://roytang.net/links)
 
