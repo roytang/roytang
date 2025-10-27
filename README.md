@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-10-27](https://roytang.net/2025/10/weeknotes-10-26/)
 - [Boardgames: Ethnos](https://roytang.net/2025/10/ethnos/)
 - [Hollow Knight: Silksong](https://roytang.net/2025/10/silksong/)
 - [Weeknotes 2025-10-19](https://roytang.net/2025/10/weeknotes-10-19/)
 - [Sunderfolk](https://roytang.net/2025/10/sunderfolk/)
-- [Weeknotes 2025-10-12](https://roytang.net/2025/10/weeknotes-10-12/)
 
 [View all posts](https://roytang.net/blog)
 
