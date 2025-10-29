@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [The Complete Marvel Run part 19: Thor Part 3, Journey Into Mystery, Siege, Fear Itself](https://roytang.net/2025/10/cmr-thor-jim-siege-fear-itself/)
 - [Weeknotes 2025-10-27](https://roytang.net/2025/10/weeknotes-10-26/)
 - [Boardgames: Ethnos](https://roytang.net/2025/10/ethnos/)
 - [Hollow Knight: Silksong](https://roytang.net/2025/10/silksong/)
 - [Weeknotes 2025-10-19](https://roytang.net/2025/10/weeknotes-10-19/)
-- [Sunderfolk](https://roytang.net/2025/10/sunderfolk/)
 
 [View all posts](https://roytang.net/blog)
 
