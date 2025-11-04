@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Movies / TV - Sep &amp; Oct 2025](https://roytang.net/2025/11/movies-tv-sep-oct-2025/)
 - [Weeknotes 2025-11-02 Surprise Steam Deck](https://roytang.net/2025/11/weeknotes-11-02/)
 - [BALL X PIT](https://roytang.net/2025/10/ballxpit/)
 - [The Complete Marvel Run part 19: Thor Part 3, Journey Into Mystery, Siege, Fear Itself](https://roytang.net/2025/10/cmr-thor-jim-siege-fear-itself/)
 - [Weeknotes 2025-10-27](https://roytang.net/2025/10/weeknotes-10-26/)
-- [Boardgames: Ethnos](https://roytang.net/2025/10/ethnos/)
 
 [View all posts](https://roytang.net/blog)
 
