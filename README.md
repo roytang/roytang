@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Where’s the AI design renaissance?](https://roytang.net/2025/11/cf826ea8003c3962e24f02d7586eb5fa/)
+- [“Freaks Me Out Every Time I See It”: 50 Confusing Unedited Pictures That’ll Make Your Brain Glitch Out Faster Than An Old Computer | Bored Panda](https://roytang.net/2025/11/9d5eeefb269fedfcb874757e79674a89/)
 - [The Majority AI View - Anil Dash](https://roytang.net/2025/10/7459c3752634241b300d94e75048fcc7/)
 - [Emilie Muller  - YouTube](https://roytang.net/2025/10/f32fb973d6f4ea5067d23879c578262e/)
 - [On AI and the golem – Going Medieval](https://roytang.net/2025/10/487bf9216705d39762525cbe00c2054c/)
-- [The Future of Forums is Lies, I Guess](https://roytang.net/2025/10/de844c35aca70b16a372449b28ed961d/)
-- [You&#x27;ve got mail | dead.garden](https://roytang.net/2025/10/64bd37fe5c96fdd9e1bea79a33cd6758/)
 
 [View all links](https://roytang.net/links)
 
