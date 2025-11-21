@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 21, 2025, 10:35 a.m. ](https://roytang.net/2025/11/115585354864950684/): @jessamyn this thread was great! id love to have this sort of job where i just help people out with tech issues all day (i basically already do it for my parents!). Sadly public libraries arent really a thing where I am :(
 - [Nov. 5, 2025, 3:18 p.m. ](https://roytang.net/2025/11/nn787br/): I am looking forward to us nonpsn countries getting screwed in whatever this is
 - [Oct. 25, 2025, 5:01 p.m. ](https://roytang.net/2025/10/nla4a0f/): Google takeout should allow you to export your hangouts/chats, i believe in json format with attachments. I did this a few years ago but my custom parser is already lost to time
 - [Oct. 19, 2025, 9:17 p.m. ](https://roytang.net/2025/10/1oapeul/): Posted on r/EternalCardGame: Is there any compilation/post/website somewhere that lists any decks that are good for the various achievements in this game?
 - [Oct. 18, 2025, 7:22 a.m. ](https://roytang.net/2025/10/115392076433200540/): Me: Time to play this well-reviewed 100-hour long turn-based JRPG from last year I&#x27;ve been looking forward to! *New indie roguelite released where you bounce a lot of balls around* Me: Welp #gaming [07:22] (Gonna try to play them both lol)
-- [Oct. 10, 2025, 9:08 a.m. ](https://roytang.net/2025/10/nip2bbm/): Looks like the caracal already had 4 damage. When he moves the equipment to something else, the caracal became a 3/3 with 4 damage on it, so it dies.
 
 [View all notes](https://roytang.net/notes)
 
