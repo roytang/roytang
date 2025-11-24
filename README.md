@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2025-11-23](https://roytang.net/2025/11/weeknotes-11-23/)
 - [Weeknotes 2025-11-16](https://roytang.net/2025/11/weeknotes-11-16/)
 - [Weeknotes 2025-11-09 Typhoon Uwan](https://roytang.net/2025/11/weeknotes-11-09/)
 - [Comics: Invincible](https://roytang.net/2025/11/invincible/)
 - [You Don&#x27;t Need an Outro](https://roytang.net/2025/11/outro/)
-- [Movies / TV - Sep &amp; Oct 2025](https://roytang.net/2025/11/movies-tv-sep-oct-2025/)
 
 [View all posts](https://roytang.net/blog)
 
