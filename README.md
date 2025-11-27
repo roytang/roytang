@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [MTG: Spider-Man / Through the Omenpaths 1](https://roytang.net/2025/11/mtg-spiderman-om1/)
 - [Weeknotes 2025-11-23](https://roytang.net/2025/11/weeknotes-11-23/)
 - [Weeknotes 2025-11-16](https://roytang.net/2025/11/weeknotes-11-16/)
 - [Weeknotes 2025-11-09 Typhoon Uwan](https://roytang.net/2025/11/weeknotes-11-09/)
 - [Comics: Invincible](https://roytang.net/2025/11/invincible/)
-- [You Don&#x27;t Need an Outro](https://roytang.net/2025/11/outro/)
 
 [View all posts](https://roytang.net/blog)
 
