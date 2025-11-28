@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Metaphor: ReFantazio](https://roytang.net/2025/11/metaphor/)
 - [MTG: Spider-Man / Through the Omenpaths 1](https://roytang.net/2025/11/mtg-spiderman-om1/)
 - [Weeknotes 2025-11-23](https://roytang.net/2025/11/weeknotes-11-23/)
 - [Weeknotes 2025-11-16](https://roytang.net/2025/11/weeknotes-11-16/)
 - [Weeknotes 2025-11-09 Typhoon Uwan](https://roytang.net/2025/11/weeknotes-11-09/)
-- [Comics: Invincible](https://roytang.net/2025/11/invincible/)
 
 [View all posts](https://roytang.net/blog)
 
