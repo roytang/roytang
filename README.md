@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [I Quit Marvel Snap](https://roytang.net/2025/12/quit-snap/)
 - [Weeknotes 2025-11-30](https://roytang.net/2025/11/weeknotes-11-30/)
 - [Metaphor: ReFantazio](https://roytang.net/2025/11/metaphor/)
 - [MTG: Spider-Man / Through the Omenpaths 1](https://roytang.net/2025/11/mtg-spiderman-om1/)
 - [Weeknotes 2025-11-23](https://roytang.net/2025/11/weeknotes-11-23/)
-- [Weeknotes 2025-11-16](https://roytang.net/2025/11/weeknotes-11-16/)
 
 [View all posts](https://roytang.net/blog)
 
