@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Write to escape your default setting – kupajo](https://roytang.net/2025/12/57b97b3b60eccef344d5cd15a1f51c88/)
+- [52 things I learned in 2025](https://roytang.net/2025/12/a00055d3f4e8cc7d4d9043aff1521b4f/)
 - [Vibe code is legacy code | Val Town Blog](https://roytang.net/2025/11/848fb6c47a74bd49228e0aaf01e97ddc/)
 - [What the hell is going on right now?](https://roytang.net/2025/11/b39c92271b3119b811046ca277f15ce2/)
 - [Why doesn&#x27;t anything work anymore? | Jason Rodriguez](https://roytang.net/2025/11/99726406384636e7120f0d06945fa291/)
-- [Why Make a Website in 2025? - Jim Nielsen’s Blog](https://roytang.net/2025/11/bf2e244b9ebc692cf127eb2b13b6ff8c/)
-- [Lowriders &amp; websites | Adam Stoddard](https://roytang.net/2025/11/8460f290c2ff559809a0ab8fc947b866/)
 
 [View all links](https://roytang.net/links)
 
