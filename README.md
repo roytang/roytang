@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Dream of Finishing One’s To-Do List | “Retirement Plan” | The New Yorker Screening Room - YouTube](https://roytang.net/2025/12/99cf89e7f2168771bc7de947da2e9b6c/)
 - [Do You Even Personalize, Bro? - Jim Nielsen’s Blog](https://roytang.net/2025/12/50d6a9b418d4e3d17d02a2bba7130172/)
 - [@JasonKPargin on the key to understanding the world today - YouTube](https://roytang.net/2025/12/1eec122817704c1a6f4f40677b8ae861/)
 - [Write to escape your default setting – kupajo](https://roytang.net/2025/12/57b97b3b60eccef344d5cd15a1f51c88/)
 - [52 things I learned in 2025](https://roytang.net/2025/12/a00055d3f4e8cc7d4d9043aff1521b4f/)
-- [Vibe code is legacy code | Val Town Blog](https://roytang.net/2025/11/848fb6c47a74bd49228e0aaf01e97ddc/)
 
 [View all links](https://roytang.net/links)
 
