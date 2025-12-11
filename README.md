@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [An Existential Guide to: Making Friends](https://roytang.net/2025/12/95ab728d132c466f37cc549d0bb7d048/)
+- [Don&#x27;t Become a Connoisseur.](https://roytang.net/2025/12/828361b9c3eead3a1d633069bcf9be82/)
+- [The Colonization of Confidence by Robert Kingett](https://roytang.net/2025/12/d3c3a59515ee4eb404857dbe85a8a8ca/)
 - [The Dream of Finishing One’s To-Do List | “Retirement Plan” | The New Yorker Screening Room - YouTube](https://roytang.net/2025/12/99cf89e7f2168771bc7de947da2e9b6c/)
 - [Do You Even Personalize, Bro? - Jim Nielsen’s Blog](https://roytang.net/2025/12/50d6a9b418d4e3d17d02a2bba7130172/)
-- [@JasonKPargin on the key to understanding the world today - YouTube](https://roytang.net/2025/12/1eec122817704c1a6f4f40677b8ae861/)
-- [Write to escape your default setting – kupajo](https://roytang.net/2025/12/57b97b3b60eccef344d5cd15a1f51c88/)
-- [52 things I learned in 2025](https://roytang.net/2025/12/a00055d3f4e8cc7d4d9043aff1521b4f/)
 
 [View all links](https://roytang.net/links)
 
