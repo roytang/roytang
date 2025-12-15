@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 15, 2025, 8:33 p.m. ](https://roytang.net/2025/12/115723599220582865/): @jikomayo i had a weeks-long customer support with over this reverification because my legal name on my id did not match my account name sa maya and i had to do a change of name process which involved submitting a birth certificate which they ridiculously refused to accept at first because i submitted a scanned image and not a photo. It was kind of a waste of time but i had the documents already so i just powered through it lol
 - [Dec. 1, 2025, 12:45 p.m. ](https://roytang.net/2025/12/115642489019440813/): Its December!
 - [Nov. 28, 2025, 5:01 p.m. ](https://roytang.net/2025/11/nr6vmo8/): Does it mean older TVs using something like rabbit ear antennas to receive broadcasts will no longer work?
 - [Nov. 26, 2025, 11:39 a.m. ](https://roytang.net/2025/11/nqtmfcf/): Oh wow, i would love to win this giveaway because i need to add a drive to my desktop so i can set up linux dual boot! Ive been wanting to slowly transition away from windows since all the ai shenanigans but i need more space to do so plus my secondary hdd (a 2tb seagate barracuda sshd) is already like 7yo at this point so i am worried it start having problems soon
 - [Nov. 21, 2025, 10:35 a.m. ](https://roytang.net/2025/11/115585354864950684/): @jessamyn this thread was great! id love to have this sort of job where i just help people out with tech issues all day (i basically already do it for my parents!). Sadly public libraries arent really a thing where I am :(
-- [Nov. 5, 2025, 3:18 p.m. ](https://roytang.net/2025/11/nn787br/): I am looking forward to us nonpsn countries getting screwed in whatever this is
 
 [View all notes](https://roytang.net/notes)
 
