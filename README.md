@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Children of Morta](https://roytang.net/2025/12/children-of-morta/)
 - [Rogue Protocol by Martha Wells (Murderbot Diaries book 3)](https://roytang.net/2025/12/rogue-protocol/)
 - [Weeknotes 2025-12-14](https://roytang.net/2025/12/weeknotes-12-14/)
 - [Weeknotes 2025-12-07](https://roytang.net/2025/12/weeknotes-12-07/)
 - [I Quit Marvel Snap](https://roytang.net/2025/12/quit-snap/)
-- [Weeknotes 2025-11-30](https://roytang.net/2025/11/weeknotes-11-30/)
 
 [View all posts](https://roytang.net/blog)
 
