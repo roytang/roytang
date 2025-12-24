@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Dec. 24, 2025, 10:43 p.m. ](https://roytang.net/2025/12/115775073328955221/): After playing #EternalCardGame for something like 8.5 years, I finally completed all the Steam Achievements! (There are a few more achievements in-game, but honestly that might take another decade or so lol) Screenshot of the Steam header for Eternal Card Game, showing 176/176 achievements and over 1400 (!!) hours played Screenshot of Eternal Card Game achievement list, showing the most recent ones I finished
 - [Dec. 24, 2025, 7:52 a.m. ](https://roytang.net/2025/12/nvmsc03/): At first I didn&#x27;t recognize Maystorm outside of Peach Momoko&#x27;s art, but her design looks great here!
 - [Dec. 18, 2025, 12:08 a.m. ](https://roytang.net/2025/12/nuj53kp/): Half of 1, rounded down is 0, so you draw 0 cards.
 - [Dec. 15, 2025, 8:33 p.m. ](https://roytang.net/2025/12/115723599220582865/): @jikomayo i had a weeks-long customer support with over this reverification because my legal name on my id did not match my account name sa maya and i had to do a change of name process which involved submitting a birth certificate which they ridiculously refused to accept at first because i submitted a scanned image and not a photo. It was kind of a waste of time but i had the documents already so i just powered through it lol
 - [Dec. 1, 2025, 12:45 p.m. ](https://roytang.net/2025/12/115642489019440813/): Its December!
-- [Nov. 28, 2025, 5:01 p.m. ](https://roytang.net/2025/11/nr6vmo8/): Does it mean older TVs using something like rabbit ear antennas to receive broadcasts will no longer work?
 
 [View all notes](https://roytang.net/notes)
 
