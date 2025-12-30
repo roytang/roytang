@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Marvel Cosmic Invasion](https://roytang.net/2025/12/cosmic-invasion/)
 - [Weeknotes 2025-12-28](https://roytang.net/2025/12/weeknotes-12-28/)
 - [Weeknotes 2025-12-21](https://roytang.net/2025/12/weeknotes-12-21/)
 - [Children of Morta](https://roytang.net/2025/12/children-of-morta/)
 - [Rogue Protocol by Martha Wells (Murderbot Diaries book 3)](https://roytang.net/2025/12/rogue-protocol/)
-- [Weeknotes 2025-12-14](https://roytang.net/2025/12/weeknotes-12-14/)
 
 [View all posts](https://roytang.net/blog)
 
