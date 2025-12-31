@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 1, 2026, 12:10 a.m. ](https://roytang.net/2025/12/115815049029565777/): Happy new year fediverse! - from utc+8
 - [Dec. 31, 2025, 3:02 p.m. ](https://roytang.net/2025/12/nwvkern/): You were correct that the attack does nothing after being blocked despite exiling the blocker. Removing a blocker doesnt send the damage through unless your creature has trample. Also, don&#x27;t rely on ChatGPT for anything; lol that answer is blatantly incorrect.
 - [Dec. 26, 2025, 8:42 a.m. ](https://roytang.net/2025/12/115783090672801756/): I&#x27;m still waiting for sleepyskunk&#x27;s 2025 movie trailer mashup @_@
 - [Dec. 25, 2025, 2:22 p.m. ](https://roytang.net/2025/12/115778762850367509/): Merry Christmas Fediverse!
 - [Dec. 24, 2025, 10:43 p.m. ](https://roytang.net/2025/12/115775073328955221/): After playing #EternalCardGame for something like 8.5 years, I finally completed all the Steam Achievements! (There are a few more achievements in-game, but honestly that might take another decade or so lol) Screenshot of the Steam header for Eternal Card Game, showing 176/176 achievements and over 1400 (!!) hours played Screenshot of Eternal Card Game achievement list, showing the most recent ones I finished
-- [Dec. 24, 2025, 7:52 a.m. ](https://roytang.net/2025/12/nvmsc03/): At first I didn&#x27;t recognize Maystorm outside of Peach Momoko&#x27;s art, but her design looks great here!
 
 [View all notes](https://roytang.net/notes)
 
