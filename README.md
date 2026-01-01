@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [2025 by Thomas Colthurst](https://roytang.net/2026/01/8c578762639a7f92d5e40df29e23db82/)
 - [The most outlandish tech CEO quotes from 2025 - Sherwood News](https://roytang.net/2025/12/5d326b3bdaafe15841d854d4ec6df785/)
 - [A Little Bit Uncomfortable | The Kernel](https://roytang.net/2025/12/bbabcfe9ee2065438a7058374909c772/)
 - [An Existential Guide to: Making Friends](https://roytang.net/2025/12/95ab728d132c466f37cc549d0bb7d048/)
 - [Don&#x27;t Become a Connoisseur.](https://roytang.net/2025/12/828361b9c3eead3a1d633069bcf9be82/)
-- [The Colonization of Confidence by Robert Kingett](https://roytang.net/2025/12/d3c3a59515ee4eb404857dbe85a8a8ca/)
 
 [View all links](https://roytang.net/links)
 
