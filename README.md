@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [2025 Year in Review](https://roytang.net/2026/01/2025-year-in-review/)
 - [My 2025 Gaming Roundup](https://roytang.net/2026/01/2025-gaming-roundup/)
 - [Movies / TV - Nov &amp; Dec 2025](https://roytang.net/2025/12/movies-tv-nov-dec-2025/)
 - [Marvel Cosmic Invasion](https://roytang.net/2025/12/cosmic-invasion/)
 - [Weeknotes 2025-12-28](https://roytang.net/2025/12/weeknotes-12-28/)
-- [Weeknotes 2025-12-21](https://roytang.net/2025/12/weeknotes-12-21/)
 
 [View all posts](https://roytang.net/blog)
 
