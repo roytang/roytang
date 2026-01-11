@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-01-11](https://roytang.net/2026/01/weeknotes-01-11/)
 - [Megaman Legacy Collection](https://roytang.net/2026/01/megaman-legacy-collection/)
 - [My 2026 Checklist](https://roytang.net/2026/01/2026-checklist/)
 - [Weeknotes 2026-01-04](https://roytang.net/2026/01/weeknotes-01-04/)
 - [2025 Year in Review](https://roytang.net/2026/01/2025-year-in-review/)
-- [My 2025 Gaming Roundup](https://roytang.net/2026/01/2025-gaming-roundup/)
 
 [View all posts](https://roytang.net/blog)
 
