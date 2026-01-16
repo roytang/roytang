@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Jan. 16, 2026, 11:24 p.m. ](https://roytang.net/2026/01/nzxn6yl/): It is considered an artifact whether or not the ability is activated. If the ability is not activated it cannot be targetted by spells that target creatues and it cannot be destroyed by effects like &quot;destroy all creatures&quot; because it is not a creature. If you activate the ability it becomes both an artifact and a creature and can be affected by spells that affect creatures.
 - [Jan. 14, 2026, 7:54 a.m. ](https://roytang.net/2026/01/115890485872188737/): Today feels like a good day to try to install #linux dual boot and potentially screw up my windows partition [09:31] https://indieweb.social/tags/linux&quot; class=&quot;mention hashtag&quot; rel=&quot;tag&quot;&gt;#linux installation success! Windows still seems to be working properly as well. Now for the hard/fun part: setting up and logging in to all my stuff again Screenshot of newly-installed Linux Mint [09:47] The last time I had a linux/windows dual boot setup was waaaay back in 2006, a 20 year gap!
 - [Jan. 7, 2026, 6:22 p.m. ](https://roytang.net/2026/01/ny6d1en/): There is a general strategy for draft (see guides like https://draftsim.com/mtg-draft-guide/): pick powerful cards first, try to read signals, make sure your deck has a good mana curve, try to find an open lane, etc. There can also be format-specific quirks depending on the set being drafted. You do need some level of familiarity with the draft environment (what cards are in the sets, what are the archetypes for each color pair etc). There are guides available online for specific sets.
 - [Jan. 1, 2026, 12:10 a.m. ](https://roytang.net/2025/12/115815049029565777/): Happy new year fediverse! - from utc+8
 - [Dec. 31, 2025, 3:02 p.m. ](https://roytang.net/2025/12/nwvkern/): You were correct that the attack does nothing after being blocked despite exiling the blocker. Removing a blocker doesnt send the damage through unless your creature has trample. Also, don&#x27;t rely on ChatGPT for anything; lol that answer is blatantly incorrect.
-- [Dec. 26, 2025, 8:42 a.m. ](https://roytang.net/2025/12/115783090672801756/): I&#x27;m still waiting for sleepyskunk&#x27;s 2025 movie trailer mashup @_@
 
 [View all notes](https://roytang.net/notes)
 
