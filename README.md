@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Return to Linux](https://roytang.net/2026/01/return-to-linux/)
 - [Weeknotes 2026-01-18](https://roytang.net/2026/01/weeknotes-01-18/)
 - [Weeknotes 2026-01-11](https://roytang.net/2026/01/weeknotes-01-11/)
 - [Megaman Legacy Collection](https://roytang.net/2026/01/megaman-legacy-collection/)
 - [My 2026 Checklist](https://roytang.net/2026/01/2026-checklist/)
-- [Weeknotes 2026-01-04](https://roytang.net/2026/01/weeknotes-01-04/)
 
 [View all posts](https://roytang.net/blog)
 
