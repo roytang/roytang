@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [&#x27;Bizarro World&#x27; - The Boston Globe](https://roytang.net/2026/01/8ca2c83288171e8f202a8af3c12419c8/)
+- [AddyOsmani.com - 21 Lessons From 14 Years at Google](https://roytang.net/2026/01/89834ccae251cc0985226bcdf6a0e0c9/)
 - [The Technium: How Will the Miracle Happen Today?](https://roytang.net/2026/01/07639ad37eea5e553eaa4e70a46136e8/)
 - [Fall in love with your new reality – A Learning a Day](https://roytang.net/2026/01/4a4e1dfae21d5ef5afffb83dcf70542f/)
 - [The secret to being happy in 2026? It’s far, far simpler than you think … | New year | The Guardian](https://roytang.net/2026/01/827e92dc5e3591298bb8ec866400b161/)
-- [A Website To End All Websites | Henry From Online](https://roytang.net/2026/01/eef465b44f0cc7bbfb75c00d42a98bd5/)
-- [A Social Filesystem — overreacted](https://roytang.net/2026/01/b044abab5dcf16b7d7eef48d87cc4aea/)
 
 [View all links](https://roytang.net/links)
 
