@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [A Website To End All Websites | Henry From Online](https://roytang.net/2026/01/eef465b44f0cc7bbfb75c00d42a98bd5/)
+- [A Social Filesystem — overreacted](https://roytang.net/2026/01/b044abab5dcf16b7d7eef48d87cc4aea/)
 - [The Case for Blogging in the Ruins](https://roytang.net/2026/01/a4ad39b2bec922ab090ecdebd9ee1e36/)
 - [2025 by Thomas Colthurst](https://roytang.net/2026/01/8c578762639a7f92d5e40df29e23db82/)
 - [The most outlandish tech CEO quotes from 2025 - Sherwood News](https://roytang.net/2025/12/5d326b3bdaafe15841d854d4ec6df785/)
-- [A Little Bit Uncomfortable | The Kernel](https://roytang.net/2025/12/bbabcfe9ee2065438a7058374909c772/)
-- [An Existential Guide to: Making Friends](https://roytang.net/2025/12/95ab728d132c466f37cc549d0bb7d048/)
 
 [View all links](https://roytang.net/links)
 
