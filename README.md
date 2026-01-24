@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Technium: How Will the Miracle Happen Today?](https://roytang.net/2026/01/07639ad37eea5e553eaa4e70a46136e8/)
+- [Fall in love with your new reality – A Learning a Day](https://roytang.net/2026/01/4a4e1dfae21d5ef5afffb83dcf70542f/)
+- [The secret to being happy in 2026? It’s far, far simpler than you think … | New year | The Guardian](https://roytang.net/2026/01/827e92dc5e3591298bb8ec866400b161/)
 - [A Website To End All Websites | Henry From Online](https://roytang.net/2026/01/eef465b44f0cc7bbfb75c00d42a98bd5/)
 - [A Social Filesystem — overreacted](https://roytang.net/2026/01/b044abab5dcf16b7d7eef48d87cc4aea/)
-- [The Case for Blogging in the Ruins](https://roytang.net/2026/01/a4ad39b2bec922ab090ecdebd9ee1e36/)
-- [2025 by Thomas Colthurst](https://roytang.net/2026/01/8c578762639a7f92d5e40df29e23db82/)
-- [The most outlandish tech CEO quotes from 2025 - Sherwood News](https://roytang.net/2025/12/5d326b3bdaafe15841d854d4ec6df785/)
 
 [View all links](https://roytang.net/links)
 
