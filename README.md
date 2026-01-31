@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Neocities Is Blocked by Bing](https://roytang.net/2026/01/b097805f2c05fa24dedc4aa3196232d7/)
+- [Favourite well-made apps and sites - Unsung](https://roytang.net/2026/01/f1d4fc92f028e08f6e4759e4f8c63e71/)
 - [Phantom Obligation | Terry Godier](https://roytang.net/2026/01/098de8ff5770ddc03630bddfc08d83ec/)
 - [&#x27;Bizarro World&#x27; - The Boston Globe](https://roytang.net/2026/01/8ca2c83288171e8f202a8af3c12419c8/)
 - [AddyOsmani.com - 21 Lessons From 14 Years at Google](https://roytang.net/2026/01/89834ccae251cc0985226bcdf6a0e0c9/)
-- [The Technium: How Will the Miracle Happen Today?](https://roytang.net/2026/01/07639ad37eea5e553eaa4e70a46136e8/)
-- [Fall in love with your new reality – A Learning a Day](https://roytang.net/2026/01/4a4e1dfae21d5ef5afffb83dcf70542f/)
 
 [View all links](https://roytang.net/links)
 
