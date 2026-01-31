@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [List of problems solved by MacGyver | MacGyver Wiki | Fandom](https://roytang.net/2026/01/cf02b3621caef0d8dcda434c6fd48fc9/)
+- [Fragments of the Old Web |marginalia.nu](https://roytang.net/2026/01/407ab19e7e8be4232673cea45f16f326/)
+- [My journey to the heart of the forgotten internet](https://roytang.net/2026/01/970b91d05713406844188cfd5cc6bf4b/)
+- [Just fucking use HTML](https://roytang.net/2026/01/908439ad505fea4f75899e4c88ac1ae4/)
 - [マリウス . NEVER click on a link that looks like that](https://roytang.net/2026/01/a3dba955a3b451d62961349f9e5340cd/)
-- [Look for what&#x27;s true](https://roytang.net/2026/01/f5b6eae537ad5270ad8359c4bff7f4ac/)
-- [Neocities Is Blocked by Bing](https://roytang.net/2026/01/b097805f2c05fa24dedc4aa3196232d7/)
-- [Favourite well-made apps and sites - Unsung](https://roytang.net/2026/01/f1d4fc92f028e08f6e4759e4f8c63e71/)
-- [Phantom Obligation | Terry Godier](https://roytang.net/2026/01/098de8ff5770ddc03630bddfc08d83ec/)
 
 [View all links](https://roytang.net/links)
 
