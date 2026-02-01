@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-02-01](https://roytang.net/2026/02/weeknotes-02-01/)
 - [Game Titles Rebus Puzzles from 2011](https://roytang.net/2026/01/game-titles-puzzles-2011/)
 - [Weeknotes 2026-01-25](https://roytang.net/2026/01/weeknotes-01-25/)
 - [Books: Soul Music by Terry Pratchett (Discworld #16)](https://roytang.net/2026/01/soul-music/)
 - [Return to Linux](https://roytang.net/2026/01/return-to-linux/)
-- [Weeknotes 2026-01-18](https://roytang.net/2026/01/weeknotes-01-18/)
 
 [View all posts](https://roytang.net/blog)
 
