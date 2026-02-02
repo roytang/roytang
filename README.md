@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 2, 2026, 11:03 a.m. ](https://roytang.net/2026/02/o339thf/): How to view this?
 - [Jan. 26, 2026, 3:12 p.m. ](https://roytang.net/2026/01/115960157168763909/): With #windows&#x27; recent patch problems (https://www.windowscentral.com/microsoft/windows-11/windows-11-second-emergency-out-of-band-update-kb5078127-released-address-outlook-bugs), it feels like I was incredibly lucky with my timing in switching to Linux lol. MS has never been known as a bastion of software quality, but even this nonsense is unexpected given Satya now claims 30% of their code is written by #genAI! (https://www.cnbc.com/2025/04/29/satya-nadella-says-as-much-as-30percent-of-microsoft-code-is-written-by-ai.html)
 - [Jan. 25, 2026, 9:07 p.m. ](https://roytang.net/2026/01/1qminto/): Posted on r/gaming: [ Removed by moderator ]
 - [Jan. 16, 2026, 11:24 p.m. ](https://roytang.net/2026/01/nzxn6yl/): It is considered an artifact whether or not the ability is activated. If the ability is not activated it cannot be targetted by spells that target creatues and it cannot be destroyed by effects like &quot;destroy all creatures&quot; because it is not a creature. If you activate the ability it becomes both an artifact and a creature and can be affected by spells that affect creatures.
 - [Jan. 14, 2026, 7:54 a.m. ](https://roytang.net/2026/01/115890485872188737/): Today feels like a good day to try to install #linux dual boot and potentially screw up my windows partition [09:31] #linux installation success! Windows still seems to be working properly as well. Now for the hard/fun part: setting up and logging in to all my stuff again Screenshot of newly-installed Linux Mint [09:47] The last time I had a linux/windows dual boot setup was waaaay back in 2006, a 20 year gap!
-- [Jan. 7, 2026, 6:22 p.m. ](https://roytang.net/2026/01/ny6d1en/): There is a general strategy for draft (see guides like https://draftsim.com/mtg-draft-guide/): pick powerful cards first, try to read signals, make sure your deck has a good mana curve, try to find an open lane, etc. There can also be format-specific quirks depending on the set being drafted. You do need some level of familiarity with the draft environment (what cards are in the sets, what are the archetypes for each color pair etc). There are guides available online for specific sets.
 
 [View all notes](https://roytang.net/notes)
 
