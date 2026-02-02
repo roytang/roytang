@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Selfish AI | GarfieldTech](https://roytang.net/2026/02/98d45e9f4f8553f9b0818eed207b76dd/)
 - [GitHub - originalankur/maptoposter: Transform your favorite cities into beautiful, minimalist designs. MapToPoster lets you create and export visually striking map posters with code.](https://roytang.net/2026/02/da02557da75b1752da10c632f6c564ba/)
 - [list animals until failure](https://roytang.net/2026/02/87f90e1a052e98fc048bab3d014ba7cf/)
 - [List of problems solved by MacGyver | MacGyver Wiki | Fandom](https://roytang.net/2026/01/cf02b3621caef0d8dcda434c6fd48fc9/)
 - [Fragments of the Old Web |marginalia.nu](https://roytang.net/2026/01/407ab19e7e8be4232673cea45f16f326/)
-- [My journey to the heart of the forgotten internet](https://roytang.net/2026/01/970b91d05713406844188cfd5cc6bf4b/)
 
 [View all links](https://roytang.net/links)
 
