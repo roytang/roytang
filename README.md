@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [MTG: Avatar: The Last Airbender](https://roytang.net/2026/02/mtg-atla/)
 - [Weeknotes 2026-02-08](https://roytang.net/2026/02/weeknotes-02-08/)
 - [Weeknotes 2026-02-01](https://roytang.net/2026/02/weeknotes-02-01/)
 - [Game Titles Rebus Puzzles from 2011](https://roytang.net/2026/01/game-titles-puzzles-2011/)
 - [Weeknotes 2026-01-25](https://roytang.net/2026/01/weeknotes-01-25/)
-- [Books: Soul Music by Terry Pratchett (Discworld #16)](https://roytang.net/2026/01/soul-music/)
 
 [View all posts](https://roytang.net/blog)
 
