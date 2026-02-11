@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 12, 2026, 4:22 a.m. ](https://roytang.net/2026/02/o4v0v88/): Hello, I&#x27;m trying to run Witcher 3 and load my old saves from 2015 which are still on the PS4. I still have the disc and installed and updated the game. But when I try to load my saves, the game says I don&#x27;t have a bunch of DLC needed in the save. Looks like it was some free updates like &quot;Neutral Gwent Card Set&quot;, &quot;New Quest - Where the Cat and Wolf Play...&quot;, etc. I can see them listed if I go to Playstation Store -&gt; Library -&gt; Purchases -&gt; The Witcher 3 and download them one at a
+- [Feb. 12, 2026, 4:21 a.m. ](https://roytang.net/2026/02/1r28g43/): Posted on r/PS4: Can&#x27;t install Witcher 3 DLCs [removed]
 - [Feb. 2, 2026, 3:11 p.m. ](https://roytang.net/2026/02/115999787132965279/): Oh. #tusky shows quote toots now!
 - [Feb. 2, 2026, 11:03 a.m. ](https://roytang.net/2026/02/o339thf/): How to view this?
 - [Jan. 26, 2026, 3:12 p.m. ](https://roytang.net/2026/01/115960157168763909/): With #windows&#x27; recent patch problems (https://www.windowscentral.com/microsoft/windows-11/windows-11-second-emergency-out-of-band-update-kb5078127-released-address-outlook-bugs), it feels like I was incredibly lucky with my timing in switching to Linux lol. MS has never been known as a bastion of software quality, but even this nonsense is unexpected given Satya now claims 30% of their code is written by #genAI! (https://www.cnbc.com/2025/04/29/satya-nadella-says-as-much-as-30percent-of-microsoft-code-is-written-by-ai.html)
-- [Jan. 25, 2026, 9:07 p.m. ](https://roytang.net/2026/01/1qminto/): Posted on r/gaming: [ Removed by moderator ]
-- [Jan. 16, 2026, 11:24 p.m. ](https://roytang.net/2026/01/nzxn6yl/): It is considered an artifact whether or not the ability is activated. If the ability is not activated it cannot be targetted by spells that target creatues and it cannot be destroyed by effects like &quot;destroy all creatures&quot; because it is not a creature. If you activate the ability it becomes both an artifact and a creature and can be affected by spells that affect creatures.
 
 [View all notes](https://roytang.net/notes)
 
