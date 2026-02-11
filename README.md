@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I miss thinking hard.](https://roytang.net/2026/02/f0fdb8079bd557f97e54bad9a848f3c8/)
+- [Archivists Let You Now Read Some of the First Ever Reviews of Mario and Zelda](https://roytang.net/2026/02/625ccbe0a752f6426072f4d6f59c1a8a/)
+- [I Started Programming When I Was 7. I&#x27;m 50 Now, and the Thing I Loved Has Changed | James Randall](https://roytang.net/2026/02/b0c3e7bb0f2a2c139868343b3eae1071/)
 - [Feed has been refreshed.](https://roytang.net/2026/02/feeds-refreshed/)
 - [Selfish AI | GarfieldTech](https://roytang.net/2026/02/98d45e9f4f8553f9b0818eed207b76dd/)
-- [GitHub - originalankur/maptoposter: Transform your favorite cities into beautiful, minimalist designs. MapToPoster lets you create and export visually striking map posters with code.](https://roytang.net/2026/02/da02557da75b1752da10c632f6c564ba/)
-- [list animals until failure](https://roytang.net/2026/02/87f90e1a052e98fc048bab3d014ba7cf/)
-- [List of problems solved by MacGyver | MacGyver Wiki | Fandom](https://roytang.net/2026/01/cf02b3621caef0d8dcda434c6fd48fc9/)
 
 [View all links](https://roytang.net/links)
 
