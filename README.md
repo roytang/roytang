@@ -6,21 +6,21 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Witcher 3: The Wild Hunt, Heart of Stone, Blood and Wine](https://roytang.net/2026/02/witcher3/)
 - [MTG: Avatar: The Last Airbender](https://roytang.net/2026/02/mtg-atla/)
 - [Weeknotes 2026-02-08](https://roytang.net/2026/02/weeknotes-02-08/)
 - [Weeknotes 2026-02-01](https://roytang.net/2026/02/weeknotes-02-01/)
 - [Game Titles Rebus Puzzles from 2011](https://roytang.net/2026/01/game-titles-puzzles-2011/)
-- [Weeknotes 2026-01-25](https://roytang.net/2026/01/weeknotes-01-25/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
+- [The world is something that we make | Terminal](https://roytang.net/2026/02/084b5bda351e9fe071184d3b7268d287/)
 - [I miss thinking hard.](https://roytang.net/2026/02/f0fdb8079bd557f97e54bad9a848f3c8/)
 - [Archivists Let You Now Read Some of the First Ever Reviews of Mario and Zelda](https://roytang.net/2026/02/625ccbe0a752f6426072f4d6f59c1a8a/)
 - [I Started Programming When I Was 7. I&#x27;m 50 Now, and the Thing I Loved Has Changed | James Randall](https://roytang.net/2026/02/b0c3e7bb0f2a2c139868343b3eae1071/)
 - [Feed has been refreshed.](https://roytang.net/2026/02/feeds-refreshed/)
-- [Selfish AI | GarfieldTech](https://roytang.net/2026/02/98d45e9f4f8553f9b0818eed207b76dd/)
 
 [View all links](https://roytang.net/links)
 
