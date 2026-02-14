@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Bertrand Russell’s 10 rules for thinking clearly, from 1951 | Follow Me Here…](https://roytang.net/2026/02/494a4b5ecb7c6e348b54e4ef091989c4/)
 - [No more boring drawings! – Ralph Ammer](https://roytang.net/2026/02/7b316ab64418f2d814e0b0a65b419adc/)
 - [Death to Letterboxd, and Long Live the Independent Web](https://roytang.net/2026/02/3bee4c4897d24093457d14de059d70cf/)
 - [The world is something that we make | Terminal](https://roytang.net/2026/02/084b5bda351e9fe071184d3b7268d287/)
 - [I miss thinking hard.](https://roytang.net/2026/02/f0fdb8079bd557f97e54bad9a848f3c8/)
-- [Archivists Let You Now Read Some of the First Ever Reviews of Mario and Zelda](https://roytang.net/2026/02/625ccbe0a752f6426072f4d6f59c1a8a/)
 
 [View all links](https://roytang.net/links)
 
