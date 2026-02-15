@@ -6,7 +6,7 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
-- [Weeknotes 2026-02-08](https://roytang.net/2026/02/weeknotes-02-15/)
+- [Weeknotes 2026-02-15](https://roytang.net/2026/02/weeknotes-02-15/)
 - [Witcher 3: The Wild Hunt, Heart of Stone, Blood and Wine](https://roytang.net/2026/02/witcher3/)
 - [MTG: Avatar: The Last Airbender](https://roytang.net/2026/02/mtg-atla/)
 - [Weeknotes 2026-02-08](https://roytang.net/2026/02/weeknotes-02-08/)
