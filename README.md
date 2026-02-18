@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 18, 2026, 7:49 p.m. ](https://roytang.net/2026/02/116091478216655241/): Today in trying to dig up the past: Found an old 1TB SATA hard drive in storage that was probably from 2 PCs ago (pre-2015), and I was excited! What treasures I might be able to find in there! But I needed an enclosure for it, so I ordered one and it arrived after a few days, and to my disappointment the drive was empty and the Disks program says it is &quot;likely to fail soon&quot; D: Sad. [19:51] I also found two 40gb IDE hard drives, which are most likely from two PCs I bought in 2003, and of
 - [Feb. 17, 2026, 5:24 p.m. ](https://roytang.net/2026/02/o5u6u7q/): I think id reply something snarky like &quot;its a surprise!&quot; Or &quot;we can find out together!&quot; But practically something along the lines of &quot;it depends on whether you respond or not&quot; might be good. But no your response was fine for me
 - [Feb. 16, 2026, 12:42 p.m. ](https://roytang.net/2026/02/116078473226061660/): For the past week or so NDRRMC has been spamming me with Mayon warnings even though I am nowhere near Bicol. I am the only one in the house getting these! WTH #philippines Screenshot of sms messages from NDRRMC warning about mayon
 - [Feb. 14, 2026, 7:54 p.m. ](https://roytang.net/2026/02/116068847704899727/): I think Jebediah Springfield would be disappointed #NYTSpellingBee ! That is a perfectly cromulent word! #simpsons Screenshot of nyt spelling bee saying EMBIGGEN is not in the word list
 - [Feb. 12, 2026, 9:10 p.m. ](https://roytang.net/2026/02/o4z40c5/): It sounds like you attacked with a token and not with anim? Firebending ascension only doubles a trigger if the trigger comes from the attacking creature
-- [Feb. 12, 2026, 4:22 a.m. ](https://roytang.net/2026/02/o4v0v88/): Hello, I&#x27;m trying to run Witcher 3 and load my old saves from 2015 which are still on the PS4. I still have the disc and installed and updated the game. But when I try to load my saves, the game says I don&#x27;t have a bunch of DLC needed in the save. Looks like it was some free updates like &quot;Neutral Gwent Card Set&quot;, &quot;New Quest - Where the Cat and Wolf Play...&quot;, etc. I can see them listed if I go to Playstation Store -&gt; Library -&gt; Purchases -&gt; The Witcher 3 and download them one at a
 
 [View all notes](https://roytang.net/notes)
 
