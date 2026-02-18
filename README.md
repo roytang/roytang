@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Feb. 18, 2026, 11:10 p.m. ](https://roytang.net/2026/02/116092269003931035/): Being a software developer / programmer hasn&#x27;t been great recently, but I imagine it&#x27;s much worse if your name is Claude
 - [Feb. 18, 2026, 7:49 p.m. ](https://roytang.net/2026/02/116091478216655241/): Today in trying to dig up the past: Found an old 1TB SATA hard drive in storage that was probably from 2 PCs ago (pre-2015), and I was excited! What treasures I might be able to find in there! But I needed an enclosure for it, so I ordered one and it arrived after a few days, and to my disappointment the drive was empty and the Disks program says it is &quot;likely to fail soon&quot; D: Sad. [19:51] I also found two 40gb IDE hard drives, which are most likely from two PCs I bought in 2003, and of
 - [Feb. 17, 2026, 5:24 p.m. ](https://roytang.net/2026/02/o5u6u7q/): I think id reply something snarky like &quot;its a surprise!&quot; Or &quot;we can find out together!&quot; But practically something along the lines of &quot;it depends on whether you respond or not&quot; might be good. But no your response was fine for me
 - [Feb. 16, 2026, 12:42 p.m. ](https://roytang.net/2026/02/116078473226061660/): For the past week or so NDRRMC has been spamming me with Mayon warnings even though I am nowhere near Bicol. I am the only one in the house getting these! WTH #philippines Screenshot of sms messages from NDRRMC warning about mayon
 - [Feb. 14, 2026, 7:54 p.m. ](https://roytang.net/2026/02/116068847704899727/): I think Jebediah Springfield would be disappointed #NYTSpellingBee ! That is a perfectly cromulent word! #simpsons Screenshot of nyt spelling bee saying EMBIGGEN is not in the word list
-- [Feb. 12, 2026, 9:10 p.m. ](https://roytang.net/2026/02/o4z40c5/): It sounds like you attacked with a token and not with anim? Firebending ascension only doubles a trigger if the trigger comes from the attacking creature
 
 [View all notes](https://roytang.net/notes)
 
