@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Keep Android Open](https://roytang.net/2026/02/66d92a56c30f8812cf4d8452e0d917e9/)
 - [The Good Old Hyperlink - Discard Pile](https://roytang.net/2026/02/bf6d6ec20f8dae67f0c2cfa1cde3141d/)
 - [Literary Hub » The Origins of One of the Most Beloved Video Games of All Time](https://roytang.net/2026/02/c66f45e2deb32b3fbbbc9e7b46ae6415/)
 - [50 Most Underappreciated Movies of the 21st Century | TIME](https://roytang.net/2026/02/0046a3dad951846d38f12387ec5b8c4b/)
 - [Bertrand Russell’s 10 rules for thinking clearly, from 1951 | Follow Me Here…](https://roytang.net/2026/02/494a4b5ecb7c6e348b54e4ef091989c4/)
-- [No more boring drawings! – Ralph Ammer](https://roytang.net/2026/02/7b316ab64418f2d814e0b0a65b419adc/)
 
 [View all links](https://roytang.net/links)
 
