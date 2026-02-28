@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 1, 2026, 7:46 a.m. ](https://roytang.net/2026/02/116150918960055536/): If you ever played the original #Civilization games, you&#x27;d remember that if you chose to play as a Democracy and tried to start a war, the senate would just say NO and that was that. Not sure why I remembered that random #gaming fact at this time
 - [Feb. 24, 2026, 8:12 p.m. ](https://roytang.net/2026/02/116125541446664240/): For some reason the Breath of Fire sound tracks are available on Steam, even though the games themselves are not. (BOF4 is however available on GOG, and of course all the games can be played on PC via less licit means) #gaming #steam #capcom #breathoffire Steam search results for &quot;Breath of Fire&quot;
 - [Feb. 24, 2026, 10:11 a.m. ](https://roytang.net/2026/02/o72bwqa/): With 2 6mv and 2 7mv i would not go below 17
 - [Feb. 18, 2026, 11:10 p.m. ](https://roytang.net/2026/02/116092269003931035/): Being a software developer / programmer hasn&#x27;t been great recently, but I imagine it&#x27;s much worse if your name is Claude
 - [Feb. 18, 2026, 7:49 p.m. ](https://roytang.net/2026/02/116091478216655241/): Today in trying to dig up the past: Found an old 1TB SATA hard drive in storage that was probably from 2 PCs ago (pre-2015), and I was excited! What treasures I might be able to find in there! But I needed an enclosure for it, so I ordered one and it arrived after a few days, and to my disappointment the drive was empty and the Disks program says it is &quot;likely to fail soon&quot; D: Sad. [19:51] I also found two 40gb IDE hard drives, which are most likely from two PCs I bought in 2003, and of
-- [Feb. 17, 2026, 5:24 p.m. ](https://roytang.net/2026/02/o5u6u7q/): I think id reply something snarky like &quot;its a surprise!&quot; Or &quot;we can find out together!&quot; But practically something along the lines of &quot;it depends on whether you respond or not&quot; might be good. But no your response was fine for me
 
 [View all notes](https://roytang.net/notes)
 
