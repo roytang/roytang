@@ -6,7 +6,7 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
-- [Paypal can charge you a &#x27;Dispute Fee` even if you did nothing in a transaction](https://roytang.net/2026/03/paypal-dispute/)
+- [Paypal can charge you a &#x27;Dispute Fee&#x27; even if you did nothing in a transaction](https://roytang.net/2026/03/paypal-dispute/)
 - [Movies / TV - Jan &amp; Feb 2026](https://roytang.net/2026/03/movies-tv-jan-feb-2026/)
 - [Weeknotes 2026-03-01](https://roytang.net/2026/03/weeknotes-03-01/)
 - [Weeknotes 2026-02-22](https://roytang.net/2026/02/weeknotes-02-22/)
