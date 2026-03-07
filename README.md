@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [Boy I was wrong about the Fediverse](https://roytang.net/2026/03/d4e4e7f3ee25d43ecc0b6bb45e728b27/)
-- [Design docs considered harmful](https://roytang.net/2026/02/7a37810ffa2e1a3e33bedb454eb124db/)
-- [Unsung heroes: Flickr&#x27;s URLs scheme](https://roytang.net/2026/02/f7bc67eea855ca565e3f591c6ac6c166/)
-- [Keep Android Open](https://roytang.net/2026/02/66d92a56c30f8812cf4d8452e0d917e9/)
-- [The Good Old Hyperlink - Discard Pile](https://roytang.net/2026/02/bf6d6ec20f8dae67f0c2cfa1cde3141d/)
+- [Created to be written | bstn.info](https://roytang.net/2026/03/65d156fa93d4067658e51192a9032a19/)
+- [A programmer&#x27;s loss of a social identity - ratfactor](https://roytang.net/2026/03/c802274b8bced957aea596e9bc091ee7/)
+- [The Death of the Software Craftsman](https://roytang.net/2026/03/f69d0d4a724b6e55ad6953460a0404a8/)
+- [The case for gatekeeping, or: why medieval guilds had it figured out](https://roytang.net/2026/03/52e21db27f635041fa9dcb53edc59d8e/)
+- [Whale Fall | Andrew Nesbitt](https://roytang.net/2026/03/597129759f015a9816ecaf327d514a3c/)
 
 [View all links](https://roytang.net/links)
 
