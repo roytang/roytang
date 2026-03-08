@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-03-08](https://roytang.net/2026/03/weeknotes-03-08/)
 - [Game Review: Marvel&#x27;s Spider-Man 2 for PS5](https://roytang.net/2026/03/spiderman2-ps5/)
 - [Paypal can charge you a &#x27;Dispute Fee&#x27; even if you did nothing in a transaction](https://roytang.net/2026/03/paypal-dispute/)
 - [Movies / TV - Jan &amp; Feb 2026](https://roytang.net/2026/03/movies-tv-jan-feb-2026/)
 - [Weeknotes 2026-03-01](https://roytang.net/2026/03/weeknotes-03-01/)
-- [Weeknotes 2026-02-22](https://roytang.net/2026/02/weeknotes-02-22/)
 
 [View all posts](https://roytang.net/blog)
 
