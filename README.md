@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Slow Death of the Power User — fireborn](https://roytang.net/2026/03/e9ad74112407c1d4578edb29e31c512b/)
+- [Health can change in an instant. At 42, I learned that the starkest way possible.](https://roytang.net/2026/03/de4f3cf04cb10bee0bab6028d1e1b9c4/)
 - [I don&#x27;t know if my job will still exist in ten years](https://roytang.net/2026/03/934847e9aae09566d5b6805fb3a7b630/)
 - [Created to be written | bstn.info](https://roytang.net/2026/03/65d156fa93d4067658e51192a9032a19/)
 - [A programmer&#x27;s loss of a social identity - ratfactor](https://roytang.net/2026/03/c802274b8bced957aea596e9bc091ee7/)
-- [The Death of the Software Craftsman](https://roytang.net/2026/03/f69d0d4a724b6e55ad6953460a0404a8/)
-- [The case for gatekeeping, or: why medieval guilds had it figured out](https://roytang.net/2026/03/52e21db27f635041fa9dcb53edc59d8e/)
 
 [View all links](https://roytang.net/links)
 
