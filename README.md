@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I’m OK being left behind, thanks! – Terence Eden’s Blog](https://roytang.net/2026/03/5dba6f93d2bef75f2200f7fc492bc7d9/)
 - [How Forbes sent e-mails to the future—and what happened 20 years later | Scientific American](https://roytang.net/2026/03/d439adfac0a2bd661d23c3e4a01468cc/)
 - [The Slow Death of the Power User — fireborn](https://roytang.net/2026/03/e9ad74112407c1d4578edb29e31c512b/)
 - [Health can change in an instant. At 42, I learned that the starkest way possible.](https://roytang.net/2026/03/de4f3cf04cb10bee0bab6028d1e1b9c4/)
 - [I don&#x27;t know if my job will still exist in ten years](https://roytang.net/2026/03/934847e9aae09566d5b6805fb3a7b630/)
-- [Created to be written | bstn.info](https://roytang.net/2026/03/65d156fa93d4067658e51192a9032a19/)
 
 [View all links](https://roytang.net/links)
 
