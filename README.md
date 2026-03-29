@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-03-29 Palm Sunday](https://roytang.net/2026/03/weeknotes-03-29/)
 - [Books: Hogfather by Terry Pratchett (Discworld #20)](https://roytang.net/2026/03/hogfather/)
 - [Weeknotes 2026-03-22](https://roytang.net/2026/03/weeknotes-03-22/)
 - [A Look Back at the PlayStation 2](https://roytang.net/2026/03/lookback-ps2/)
 - [Weeknotes 2026-03-15](https://roytang.net/2026/03/weeknotes-03-15/)
-- [Weeknotes 2026-03-08](https://roytang.net/2026/03/weeknotes-03-08/)
 
 [View all posts](https://roytang.net/blog)
 
