@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 29, 2026, 11:01 p.m. ](https://roytang.net/2026/03/116313062699450306/): @benbrown what manga is it?
 - [March 29, 2026, 10:49 p.m. ](https://roytang.net/2026/03/116313017530521298/): @codepo8 what game is the screenshot from? (Does not seem to be mentioned in the post)
 - [March 29, 2026, 9:15 a.m. ](https://roytang.net/2026/03/od20vjv/): I am on Disney+ PH, all the episodes are there.
 - [March 1, 2026, 7:46 a.m. ](https://roytang.net/2026/02/116150918960055536/): If you ever played the original #Civilization games, you&#x27;d remember that if you chose to play as a Democracy and tried to start a war, the senate would just say NO and that was that. Not sure why I remembered that random #gaming fact at this time
 - [Feb. 24, 2026, 8:12 p.m. ](https://roytang.net/2026/02/116125541446664240/): For some reason the Breath of Fire sound tracks are available on Steam, even though the games themselves are not. (BOF4 is however available on GOG, and of course all the games can be played on PC via less licit means) #gaming #steam #capcom #breathoffire Steam search results for &quot;Breath of Fire&quot;
-- [Feb. 24, 2026, 10:11 a.m. ](https://roytang.net/2026/02/o72bwqa/): With 2 6mv and 2 7mv i would not go below 17
 
 [View all notes](https://roytang.net/notes)
 
