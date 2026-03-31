@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [March 31, 2026, 11:59 p.m. ](https://roytang.net/2026/03/116324614601558681/): Green Arrow on #GenAI (Detective Comics no. 1107, written by Tom Taylor) #comics #dccomics Green Arrow dialog: “They’re another generative AI company. Scraping personal data, stealing art and stories and knowledge, polluting and poisoning, using masses of energy and water. Taking what the world actually needs to produce nothing anyonr eants.”
 - [March 31, 2026, 4:57 p.m. ](https://roytang.net/2026/03/116322957178586424/): Managed to hit (constructed) mythic right at the end of the month in #MagicArena with Jund Goyfs in Historic. Only Diamond this time for limited. Someday we&#x27;ll get to limited mythic too! #mtg Screenshot of Magic Arena as I rank up to mythic
 - [March 29, 2026, 11:01 p.m. ](https://roytang.net/2026/03/116313062699450306/): @benbrown what manga is it?
 - [March 29, 2026, 10:49 p.m. ](https://roytang.net/2026/03/116313017530521298/): @codepo8 what game is the screenshot from? (Does not seem to be mentioned in the post)
 - [March 29, 2026, 9:15 a.m. ](https://roytang.net/2026/03/od20vjv/): I am on Disney+ PH, all the episodes are there.
-- [March 1, 2026, 7:46 a.m. ](https://roytang.net/2026/02/116150918960055536/): If you ever played the original #Civilization games, you&#x27;d remember that if you chose to play as a Democracy and tried to start a war, the senate would just say NO and that was that. Not sure why I remembered that random #gaming fact at this time
 
 [View all notes](https://roytang.net/notes)
 
