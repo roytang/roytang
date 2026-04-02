@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Old Internet is Still Here](https://roytang.net/2026/04/9272acde96fa12e18a242a7ac5f318a6/)
 - [BSky Post by Alyssa Mercante](https://roytang.net/2026/03/abf1625297f7e11d1386b7f27d7d157d/)
 - [Open Source Gave Me Everything Until I Had Nothing Left to Give - Kenneth Reitz](https://roytang.net/2026/03/29089da0c4d4c9d37716aeafc6c2fb55/)
 - [Endgame for the Open Web - Anil Dash](https://roytang.net/2026/03/4655fd21a45de9fa1e6c623c382dd23b/)
 - [I’m OK being left behind, thanks! – Terence Eden’s Blog](https://roytang.net/2026/03/5dba6f93d2bef75f2200f7fc492bc7d9/)
-- [How Forbes sent e-mails to the future—and what happened 20 years later | Scientific American](https://roytang.net/2026/03/d439adfac0a2bd661d23c3e4a01468cc/)
 
 [View all links](https://roytang.net/links)
 
