@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [mtcff ULTRA](https://roytang.net/2026/04/ed9fd680b5b495c615a15e69e1b10d7e/)
 - [The Last Quiet Thing | Terry Godier](https://roytang.net/2026/04/bc813e5a2be2557f3bde43496493dbf4/)
 - [The Old Internet is Still Here](https://roytang.net/2026/04/9272acde96fa12e18a242a7ac5f318a6/)
 - [BSky Post by Alyssa Mercante](https://roytang.net/2026/03/abf1625297f7e11d1386b7f27d7d157d/)
 - [Open Source Gave Me Everything Until I Had Nothing Left to Give - Kenneth Reitz](https://roytang.net/2026/03/29089da0c4d4c9d37716aeafc6c2fb55/)
-- [Endgame for the Open Web - Anil Dash](https://roytang.net/2026/03/4655fd21a45de9fa1e6c623c382dd23b/)
 
 [View all links](https://roytang.net/links)
 
