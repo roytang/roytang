@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [how to make programming terrible for everyone | jneens web site](https://roytang.net/2026/04/fa0569624f63d3ea69d5cd468b1764a9/)
+- [If you thought the speed of writing code was your problem - you have bigger problems | Debugging Leadership | Debugging Leadership](https://roytang.net/2026/04/354981bd5f3f13228c41e25870ec93b0/)
 - [General Excellence: Origins of Koei – Gaming Alexandria](https://roytang.net/2026/04/dbca7c0fa583cfdae356b4ad9f081485/)
 - [mtcff ULTRA](https://roytang.net/2026/04/ed9fd680b5b495c615a15e69e1b10d7e/)
 - [The Last Quiet Thing | Terry Godier](https://roytang.net/2026/04/bc813e5a2be2557f3bde43496493dbf4/)
-- [The Old Internet is Still Here](https://roytang.net/2026/04/9272acde96fa12e18a242a7ac5f318a6/)
-- [BSky Post by Alyssa Mercante](https://roytang.net/2026/03/abf1625297f7e11d1386b7f27d7d157d/)
 
 [View all links](https://roytang.net/links)
 
