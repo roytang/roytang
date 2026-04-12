@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [REVIEW OF 1984 By Isaac Asimov I](https://roytang.net/2026/04/65f13a87697a56ed9b463755783a8505/)
+- [Between the Impossible and the Inevitable: The Case for Defiance (aka Never F**king Surrender)](https://roytang.net/2026/04/2ff51fd048a5c8767485255f54ee7b54/)
 - [how to make programming terrible for everyone | jneens web site](https://roytang.net/2026/04/fa0569624f63d3ea69d5cd468b1764a9/)
 - [If you thought the speed of writing code was your problem - you have bigger problems | Debugging Leadership | Debugging Leadership](https://roytang.net/2026/04/354981bd5f3f13228c41e25870ec93b0/)
 - [General Excellence: Origins of Koei – Gaming Alexandria](https://roytang.net/2026/04/dbca7c0fa583cfdae356b4ad9f081485/)
-- [mtcff ULTRA](https://roytang.net/2026/04/ed9fd680b5b495c615a15e69e1b10d7e/)
-- [The Last Quiet Thing | Terry Godier](https://roytang.net/2026/04/bc813e5a2be2557f3bde43496493dbf4/)
 
 [View all links](https://roytang.net/links)
 
