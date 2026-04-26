@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-04-26](https://roytang.net/2026/04/weeknotes-04-26/)
 - [Weeknotes 2026-04-19](https://roytang.net/2026/04/weeknotes-04-19/)
 - [Weeknotes 2026-04-12](https://roytang.net/2026/04/weeknotes-04-12/)
 - [The Banner Saga 1 and 2](https://roytang.net/2026/04/banner-saga-1-2/)
 - [Weeknotes 2026-04-05 Easter Sunday](https://roytang.net/2026/04/weeknotes-04-05/)
-- [MTG: Lorwyn Eclipsed](https://roytang.net/2026/04/mtg-ecl/)
 
 [View all posts](https://roytang.net/blog)
 
