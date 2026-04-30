@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How are we preparing for the Long Web? · brennan.day](https://roytang.net/2026/04/84f5c61f241d93277c27c91365dfef66/)
 - [Do I belong in tech anymore? · Ky Decker](https://roytang.net/2026/04/8a1fd76836e244ab4d7effb0d40c4be3/)
 - [AI as a Fascist Artifact](https://roytang.net/2026/04/a634546c622be5127c4a51e50ab77628/)
 - [Silicon Valley has forgotten what normal people want | The Verge](https://roytang.net/2026/04/b37eecf33b6f7ae3a2c50ec4547fad95/)
 - [Understanding friction in software engineering | deadSimpleTech](https://roytang.net/2026/04/ed7aa791379fdb1b42ea5649cfeb9a8a/)
-- [The 49MB Web Page | thatshubham](https://roytang.net/2026/04/b9f179407dd7895d4597c92de98ad25e/)
 
 [View all links](https://roytang.net/links)
 
