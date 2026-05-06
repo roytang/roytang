@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Netizen | Derek Sivers](https://roytang.net/2026/05/364dddb265ab1f9e922ce90d0b196b45/)
 - [The Coming War on General Computation](https://roytang.net/2026/05/2952b6e1d6d44559dec1abdee6d31db6/)
 - [The Other Twin Towers in the Spider-Man Trailer](https://roytang.net/2026/05/0458a3a8bad0ac83edc577e01869b131/)
 - [Books and screens](https://roytang.net/2026/05/653727a088f8f0d62171e1b0f5ee4fcb/)
 - [Just Put It On Your Blog](https://roytang.net/2026/04/9256076b12312598300976d2fb08200b/)
-- [The Artisanal Web | Another Rodeo](https://roytang.net/2026/04/d2edefde5cbca14f9f9b966d891ec082/)
 
 [View all links](https://roytang.net/links)
 
