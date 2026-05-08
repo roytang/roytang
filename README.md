@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Boring Internet | Terry Godier](https://roytang.net/2026/05/59a9d38399b8111912e0a4439e68ecab/)
+- [Programming Still Sucks. — Writing](https://roytang.net/2026/05/a510e80c44b3a7933e8d11590de48f35/)
 - [The Long Reply](https://roytang.net/2026/05/b3ba301e26b462c216aa0feaf2f6738f/)
 - [&#x27;Restoring&#x27; Old Photos With AI Is a Fundamentally Broken Concept | PetaPixel](https://roytang.net/2026/05/fb1f0d0cc9e212afa4a4845ae673de8a/)
 - [Netizen | Derek Sivers](https://roytang.net/2026/05/364dddb265ab1f9e922ce90d0b196b45/)
-- [The Coming War on General Computation](https://roytang.net/2026/05/2952b6e1d6d44559dec1abdee6d31db6/)
-- [The Other Twin Towers in the Spider-Man Trailer](https://roytang.net/2026/05/0458a3a8bad0ac83edc577e01869b131/)
 
 [View all links](https://roytang.net/links)
 
