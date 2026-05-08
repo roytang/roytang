@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [MTG: Teenage Mutant Ninja Turtles](https://roytang.net/2026/05/mtg-tmnt/)
 - [Who Knows That You Blog](https://roytang.net/2026/05/who-knows-you-blog/)
 - [Weeknotes 2026-05-03](https://roytang.net/2026/05/weeknotes-05-03/)
 - [Movies / TV - Mar &amp; Apr 2026](https://roytang.net/2026/05/movies-tv-mar-apr-2026/)
 - [Weeknotes 2026-04-26](https://roytang.net/2026/04/weeknotes-04-26/)
-- [Weeknotes 2026-04-19](https://roytang.net/2026/04/weeknotes-04-19/)
 
 [View all posts](https://roytang.net/blog)
 
