@@ -6,21 +6,21 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-05-10](https://roytang.net/2026/05/weeknotes-05-10/)
 - [MTG: Teenage Mutant Ninja Turtles](https://roytang.net/2026/05/mtg-tmnt/)
 - [Who Knows That You Blog](https://roytang.net/2026/05/who-knows-you-blog/)
 - [Weeknotes 2026-05-03](https://roytang.net/2026/05/weeknotes-05-03/)
 - [Movies / TV - Mar &amp; Apr 2026](https://roytang.net/2026/05/movies-tv-mar-apr-2026/)
-- [Weeknotes 2026-04-26](https://roytang.net/2026/04/weeknotes-04-26/)
 
 [View all posts](https://roytang.net/blog)
 
 Latest shared links:
 
 - [taken. — Since You Arrived Vol. IV](https://roytang.net/2026/05/befd62a75a880a37c55aa17c0fc05e1d/)
-- [](https://roytang.net/2026/05/1t7ws45/)
 - [The Boring Internet | Terry Godier](https://roytang.net/2026/05/59a9d38399b8111912e0a4439e68ecab/)
 - [Programming Still Sucks. — Writing](https://roytang.net/2026/05/a510e80c44b3a7933e8d11590de48f35/)
 - [The Long Reply](https://roytang.net/2026/05/b3ba301e26b462c216aa0feaf2f6738f/)
+- [&#x27;Restoring&#x27; Old Photos With AI Is a Fundamentally Broken Concept | PetaPixel](https://roytang.net/2026/05/fb1f0d0cc9e212afa4a4845ae673de8a/)
 
 [View all links](https://roytang.net/links)
 
