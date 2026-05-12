@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Yarbo - NAT In My Back Yard · GitHub](https://roytang.net/2026/05/2cb2440595d58a218665f6545c7e0e75/)
 - [taken. — Since You Arrived Vol. IV](https://roytang.net/2026/05/befd62a75a880a37c55aa17c0fc05e1d/)
 - [The Boring Internet | Terry Godier](https://roytang.net/2026/05/59a9d38399b8111912e0a4439e68ecab/)
 - [Programming Still Sucks. — Writing](https://roytang.net/2026/05/a510e80c44b3a7933e8d11590de48f35/)
 - [The Long Reply](https://roytang.net/2026/05/b3ba301e26b462c216aa0feaf2f6738f/)
-- [&#x27;Restoring&#x27; Old Photos With AI Is a Fundamentally Broken Concept | PetaPixel](https://roytang.net/2026/05/fb1f0d0cc9e212afa4a4845ae673de8a/)
 
 [View all links](https://roytang.net/links)
 
