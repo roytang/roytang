@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Hidden Casettes - Emily Something](https://roytang.net/2026/05/d5eef13e48e14ecd80031e469a1e9013/)
 - [CSS or BS?](https://roytang.net/2026/05/8d524b46818a9925c5fa5288a17356ac/)
 - [Claude is an Electron App because we’ve lost native @ tonsky.me](https://roytang.net/2026/05/4ba108d9b38522eaa03c925a6a8fe3d7/)
 - [The Internet Isn’t Facebook: How Openness Changes Everything](https://roytang.net/2026/05/b423b272ba19099c1097a85a4cb29403/)
 - [Resist &quot;AI&quot;! - Ron Jeffries](https://roytang.net/2026/05/690e7669f45ea88a6a9dd6730cb8e2f9/)
-- [Yarbo - NAT In My Back Yard · GitHub](https://roytang.net/2026/05/2cb2440595d58a218665f6545c7e0e75/)
 
 [View all links](https://roytang.net/links)
 
