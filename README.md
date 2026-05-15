@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [May 15, 2026, 8:15 p.m. ](https://roytang.net/2026/05/olxq2ep/): This joke doesnt work because people wont believe trump reads books. Modok vance is crazy good though
 - [May 9, 2026, 2:15 p.m. ](https://roytang.net/2026/05/116543150693193900/): Finally finished putting together this bootleg #OnePiece brick thing. I started this months ago with the nephews and they gave up quickly because it was so difficult to put together and the pieces were so small and often didnt fit well
 - [May 7, 2026, 6:41 a.m. ](https://roytang.net/2026/05/116530039249952748/): #breakfast #food 3 slices of buttered toast, scrambled eggs and ham, a chicken sausage
 - [May 6, 2026, 7:08 p.m. ](https://roytang.net/2026/05/116527312464528926/): Daedevil Born Again S2 finale was very good. Saved the season tbh #tv
 - [May 6, 2026, 2:28 p.m. ](https://roytang.net/2026/05/116526212048755574/): @agasramirez what is the purpose of this?
-- [May 3, 2026, 10:48 p.m. ](https://roytang.net/2026/05/ojovjta/): In the Philippines, if you are in Metro Manila stores like Data Blitz carry the Steam Deck, so they will probably have the Steam Machine as well. I ordered my Steam Deck from their website last year and it was delivered in a few days.
 
 [View all notes](https://roytang.net/notes)
 
