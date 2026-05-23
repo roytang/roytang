@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Technium: 50 Years of Travel Tips](https://roytang.net/2026/05/079b2f0e40d5390c65b5b7e0736c8601/)
 - [LocalSend: Share files to nearby devices](https://roytang.net/2026/05/91e31823660936c58ebbf1e5dad28222/)
 - [The Hidden Casettes - Emily Something](https://roytang.net/2026/05/d5eef13e48e14ecd80031e469a1e9013/)
 - [CSS or BS?](https://roytang.net/2026/05/8d524b46818a9925c5fa5288a17356ac/)
 - [Claude is an Electron App because we’ve lost native @ tonsky.me](https://roytang.net/2026/05/4ba108d9b38522eaa03c925a6a8fe3d7/)
-- [The Internet Isn’t Facebook: How Openness Changes Everything](https://roytang.net/2026/05/b423b272ba19099c1097a85a4cb29403/)
 
 [View all links](https://roytang.net/links)
 
