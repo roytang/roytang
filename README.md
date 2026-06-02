@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 2, 2026, 9:46 p.m. ](https://roytang.net/2026/06/opbga62/): It is a valid concern, especially if you&#x27;re a woman I guess. I am a large guy who sometimes walks there late and I am also wary if a group approaches me. I think its ok to report your concern to the authorities, idk if they would do anything but it cant hurt. I think its less likely that they do something if you are near the nightclubs or the jeepney terminal or the palengke stalls if they are still open since there are usually other people there. If its not too late consider also just taking the short jeepney
 - [May 31, 2026, 1:34 p.m. ](https://roytang.net/2026/05/116667559223426765/): After finally hitting mythic limited last week, I finally managed to pull off what is probably the hardest achievement on #MagicArena: Mythic Champion - double mythic for the month! Had to cram like maybe 200 games in the last 3-4 days so I could make it in time! #MTG I was switching between different formats depending on how I was doing: Standard: Izzet (such a miserable format)Pioneer: Golgari midrangeHistoric: Jund Goyfs (winningest one) Screenshot of my Magic Arena profiles showing mythic rank in both constructed and limited Screenshot of the mythic champion achievement unlocked
 - [May 28, 2026, 1:14 p.m. ](https://roytang.net/2026/05/116650494910461625/): @aral i am on that server and i see your posts
 - [May 26, 2026, 8:41 a.m. ](https://roytang.net/2026/05/116638096419549869/): After SEVEN YEARS of playing #Mtg on #MagicArena I finally got to limited mythic!! Now I have to try to grind constructed from plat3 to mythic in the last few days of the month because I may never get the chance again to hit the double mythic achievement! Lol it was a good morning Screenshot of Magic Arena showing me ascending to mythic rank [09:12] This was the EOE deck that got me there, it finished 7-2 after the 5-0 streak that pushed me to mythic from diamond 1. I used to never do the flashback quick drafts to focus
 - [May 25, 2026, 1:17 p.m. ](https://roytang.net/2026/05/onqfjfu/): https://aboutfeeds.com/
-- [May 25, 2026, 10:10 a.m. ](https://roytang.net/2026/05/116632783160777827/): @dr Daredevil by David Mack?
 
 [View all notes](https://roytang.net/notes)
 
