@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-06-07](https://roytang.net/2026/06/weeknotes-06-07/)
 - [Weeknotes 2026-05-31](https://roytang.net/2026/05/weeknotes-05-31/)
 - [Weeknotes 2026-05-24](https://roytang.net/2026/05/weeknotes-05-24/)
 - [How I Use My Notes App](https://roytang.net/2026/05/notes-app/)
 - [Weeknotes 2026-05-17](https://roytang.net/2026/05/weeknotes-05-17/)
-- [Weeknotes 2026-05-10](https://roytang.net/2026/05/weeknotes-05-10/)
 
 [View all posts](https://roytang.net/blog)
 
