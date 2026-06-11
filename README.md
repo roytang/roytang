@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The attack on competence | deadSimpleTech](https://roytang.net/2026/06/605679ca3e1052b0b9c3e5275f6c1b7d/)
+- [The Utopia of the Family Computer - mudmap](https://roytang.net/2026/06/3ae586cc264e9f36c6672cd0b44389d1/)
+- [Please Use AI](https://roytang.net/2026/06/cbb04b650ca06912402d631be306905d/)
 - [How to Surf the Web in 2025, and Why You Should](https://roytang.net/2026/05/0f9e31c3b3f5f2de37a09e8bb8caa0f7/)
 - [Last Online 620 Weeks Ago: Why I&#x27;m Loyal to the IndieWeb · brennan.day](https://roytang.net/2026/05/ffba55cc7f536c5db665234e2a7aa5aa/)
-- [The Technium: 50 Years of Travel Tips](https://roytang.net/2026/05/079b2f0e40d5390c65b5b7e0736c8601/)
-- [LocalSend: Share files to nearby devices](https://roytang.net/2026/05/91e31823660936c58ebbf1e5dad28222/)
-- [The Hidden Casettes - Emily Something](https://roytang.net/2026/05/d5eef13e48e14ecd80031e469a1e9013/)
 
 [View all links](https://roytang.net/links)
 
