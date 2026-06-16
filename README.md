@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 16, 2026, 9:25 p.m. ](https://roytang.net/2026/06/orzc0kf/): Marvel fandom has a list up to #272: https://marvel.fandom.com/wiki/Punisher_Vol_1/Legacy_Numbers IDK what&#x27;s up with 273-279
 - [June 15, 2026, 2:14 p.m. ](https://roytang.net/2026/06/orqmi8w/): I never played the OG so this was my first experience with the game and i was very disappointed after all the hype. It just did not age well. Poor camera, wonky 3d controls, some tedious dungeons. Looking forward to the remake fixing those issues
 - [June 11, 2026, 5:07 a.m. ](https://roytang.net/2026/06/116727850063276855/): [The Camote Show S16E04: Spelling Bee, Crossword, Wikihistory, and Cinenerdle](https://www.youtube.com/watch?v=niaKkioPD_k) #trivia #gaming #camote
 - [June 7, 2026, 12:07 p.m. ](https://roytang.net/2026/06/oq7jqh2/): It might be a good idea to mention kung san ka manggagaling
 - [June 7, 2026, 9:45 a.m. ](https://roytang.net/2026/06/oq6ywkd/): Submitting a support ticket is easy so i would just try it no matter what i expect from wizards
-- [June 2, 2026, 9:46 p.m. ](https://roytang.net/2026/06/opbga62/): It is a valid concern, especially if you&#x27;re a woman I guess. I am a large guy who sometimes walks there late and I am also wary if a group approaches me. I think its ok to report your concern to the authorities, idk if they would do anything but it cant hurt. I think its less likely that they do something if you are near the nightclubs or the jeepney terminal or the palengke stalls if they are still open since there are usually other people there. If its not too late consider also just taking the short jeepney
 
 [View all notes](https://roytang.net/notes)
 
