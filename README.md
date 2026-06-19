@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Why so many game developers don&#x27;t want to use generative AI](https://roytang.net/2026/06/1833bd7defb6ccf9ae2f00e1164ee7d6/)
+- [All tomorrow’s parties. — Ethan Marcotte](https://roytang.net/2026/06/7328cb119f7b6dda2e1d19e70dba1e1a/)
+- [The Wholesale Plagiarism of Obscure Sorrows - Waxy.org](https://roytang.net/2026/06/79ef94bb5ff44c82e67cf28962b7eb02/)
 - [The attack on competence | deadSimpleTech](https://roytang.net/2026/06/605679ca3e1052b0b9c3e5275f6c1b7d/)
 - [The Utopia of the Family Computer - mudmap](https://roytang.net/2026/06/3ae586cc264e9f36c6672cd0b44389d1/)
-- [Please Use AI](https://roytang.net/2026/06/cbb04b650ca06912402d631be306905d/)
-- [How to Surf the Web in 2025, and Why You Should](https://roytang.net/2026/05/0f9e31c3b3f5f2de37a09e8bb8caa0f7/)
-- [Last Online 620 Weeks Ago: Why I&#x27;m Loyal to the IndieWeb · brennan.day](https://roytang.net/2026/05/ffba55cc7f536c5db665234e2a7aa5aa/)
 
 [View all links](https://roytang.net/links)
 
