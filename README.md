@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [June 20, 2026, 1:30 p.m. ](https://roytang.net/2026/06/ospq31d/): Pwede ka tumawid near the corner of North and Mindanao, just need to walk a bit
 - [June 19, 2026, 11:40 p.m. ](https://roytang.net/2026/06/oslfnns/): Sa SM North may pila dapat ng &quot;NIA/NPC&quot; na jeep. Take that jeep and get off at Tandang Sora (ask the driver to drop you off). When you get there, take a jeep na &quot;T.Sora Hiway&quot;, heading in the same direction as the NIA/NPC jeep. That jeep will turn right on Congressional and u-turn before turning right back to Tandang Sora. The Sea oil will be on the right side right after the bridge. Pabalik, just take the T.Sora/Hiway jeep back the same route. You can get off at McDonald&#x27;s (it will be on the left side). The NIA/NPC jeeps
 - [June 17, 2026, 9:10 p.m. ](https://roytang.net/2026/06/os6el0g/): I am in the Philippines, it isnt out here either. This thread is the only source ive found about it not being available in some regions
 - [June 16, 2026, 9:25 p.m. ](https://roytang.net/2026/06/orzc0kf/): Marvel fandom has a list up to #272: https://marvel.fandom.com/wiki/Punisher_Vol_1/Legacy_Numbers IDK what&#x27;s up with 273-279
 - [June 15, 2026, 2:14 p.m. ](https://roytang.net/2026/06/orqmi8w/): I never played the OG so this was my first experience with the game and i was very disappointed after all the hype. It just did not age well. Poor camera, wonky 3d controls, some tedious dungeons. Looking forward to the remake fixing those issues
-- [June 11, 2026, 5:07 a.m. ](https://roytang.net/2026/06/116727850063276855/): [The Camote Show S16E04: Spelling Bee, Crossword, Wikihistory, and Cinenerdle](https://www.youtube.com/watch?v=niaKkioPD_k) #trivia #gaming #camote
 
 [View all notes](https://roytang.net/notes)
 
