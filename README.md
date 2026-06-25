@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Why Does Getting Medical Care Feel Like Work?](https://roytang.net/2026/06/785b5c0f9b1648bf9a4d1c4b358b714d/)
 - [IN THE WEIGHTS](https://roytang.net/2026/06/f35578c0b3747b3d641f2198874eac22/)
 - [America’s compact between science and politics is broken | Scientific American](https://roytang.net/2026/06/84954e323949f474f4fae51b19ac6624/)
 - [Why so many game developers don&#x27;t want to use generative AI](https://roytang.net/2026/06/1833bd7defb6ccf9ae2f00e1164ee7d6/)
 - [All tomorrow’s parties. — Ethan Marcotte](https://roytang.net/2026/06/7328cb119f7b6dda2e1d19e70dba1e1a/)
-- [The Wholesale Plagiarism of Obscure Sorrows - Waxy.org](https://roytang.net/2026/06/79ef94bb5ff44c82e67cf28962b7eb02/)
 
 [View all links](https://roytang.net/links)
 
