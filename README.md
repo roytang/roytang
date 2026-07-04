@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [An Ode to the Exacting Pedantry of Computers - Jim Nielsen’s Blog](https://roytang.net/2026/07/2c1a297ab34d553ebb2c29e83f5cff82/)
 - [Daring Fireball: What Is a Dickover?](https://roytang.net/2026/07/78a8f4678f00f2feab442fa3326a49e4/)
 - [Human-made Webring](https://roytang.net/2026/07/09a52d33433ad198515e4e14697b0fce/)
 - [Why Does Getting Medical Care Feel Like Work?](https://roytang.net/2026/06/785b5c0f9b1648bf9a4d1c4b358b714d/)
 - [IN THE WEIGHTS](https://roytang.net/2026/06/f35578c0b3747b3d641f2198874eac22/)
-- [America’s compact between science and politics is broken | Scientific American](https://roytang.net/2026/06/84954e323949f474f4fae51b19ac6624/)
 
 [View all links](https://roytang.net/links)
 
