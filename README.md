@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Daring Fireball: What Is a Dickover?](https://roytang.net/2026/07/78a8f4678f00f2feab442fa3326a49e4/)
 - [Human-made Webring](https://roytang.net/2026/07/09a52d33433ad198515e4e14697b0fce/)
 - [Why Does Getting Medical Care Feel Like Work?](https://roytang.net/2026/06/785b5c0f9b1648bf9a4d1c4b358b714d/)
 - [IN THE WEIGHTS](https://roytang.net/2026/06/f35578c0b3747b3d641f2198874eac22/)
 - [America’s compact between science and politics is broken | Scientific American](https://roytang.net/2026/06/84954e323949f474f4fae51b19ac6624/)
-- [Why so many game developers don&#x27;t want to use generative AI](https://roytang.net/2026/06/1833bd7defb6ccf9ae2f00e1164ee7d6/)
 
 [View all links](https://roytang.net/links)
 
