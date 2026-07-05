@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-07-05 Personal Writing](https://roytang.net/2026/07/weeknotes-07-05/)
 - [The End is Nigh for Physical Gaming](https://roytang.net/2026/07/physical-games/)
 - [Movies / TV - May &amp; Jun 2026](https://roytang.net/2026/07/movies-tv-may-jun-2026/)
 - [Weeknotes 2026-06-28](https://roytang.net/2026/06/weeknotes-06-28/)
 - [Weeknotes 2026-06-21](https://roytang.net/2026/06/weeknotes-06-21/)
-- [Retro Review: Tales of Graces F (PS3!)](https://roytang.net/2026/06/tales-of-graces-f/)
 
 [View all posts](https://roytang.net/blog)
 
