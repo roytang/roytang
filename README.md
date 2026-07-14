@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [MTG: Secrets of Strixhaven](https://roytang.net/2026/07/mtg-sos/)
 - [Weeknotes 2026-07-12](https://roytang.net/2026/07/weeknotes-07-12/)
 - [Weeknotes 2026-07-05 Personal Writing](https://roytang.net/2026/07/weeknotes-07-05/)
 - [The End is Nigh for Physical Gaming](https://roytang.net/2026/07/physical-games/)
 - [Movies / TV - May &amp; Jun 2026](https://roytang.net/2026/07/movies-tv-may-jun-2026/)
-- [Weeknotes 2026-06-28](https://roytang.net/2026/06/weeknotes-06-28/)
 
 [View all posts](https://roytang.net/blog)
 
