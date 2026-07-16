@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
-- [An Ode to the Exacting Pedantry of Computers - Jim Nielsen’s Blog](https://roytang.net/2026/07/2c1a297ab34d553ebb2c29e83f5cff82/)
-- [Daring Fireball: What Is a Dickover?](https://roytang.net/2026/07/78a8f4678f00f2feab442fa3326a49e4/)
-- [Human-made Webring](https://roytang.net/2026/07/09a52d33433ad198515e4e14697b0fce/)
-- [Why Does Getting Medical Care Feel Like Work?](https://roytang.net/2026/06/785b5c0f9b1648bf9a4d1c4b358b714d/)
-- [IN THE WEIGHTS](https://roytang.net/2026/06/f35578c0b3747b3d641f2198874eac22/)
+- [Chasing life goals is a recipe for disaster – so try these tiny experiments instead | Life and style | The Guardian](https://roytang.net/2026/07/3caec8ea274bfb5b3fd7bdce70c1da51/)
+- [The Last People Who Know How It Works · unix.foo](https://roytang.net/2026/07/5103bd8f0e4e6101b6e8d53fff877590/)
+- [We Are Losing the Ability to Discover What We Didn’t Know to Ask](https://roytang.net/2026/07/1ad6052ee828f5152e63677225584f87/)
+- [The Graph That Should Be Front-Page News](https://roytang.net/2026/07/cbfd6ebc9af5a9213c24ab22619bf5e0/)
+- [The most radical act in an age of outrage is to play](https://roytang.net/2026/07/46f2a5f4cf5fa876e777c7ef798c63eb/)
 
 [View all links](https://roytang.net/links)
 
