@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Soko Striker](https://roytang.net/2026/07/4b1f5621bc521336bea24827fc169c20/)
 - [Report from the march to Stop the AI Race](https://roytang.net/2026/07/f1103232177dd5cd05ae82cd4d160242/)
 - [Chasing life goals is a recipe for disaster – so try these tiny experiments instead | Life and style | The Guardian](https://roytang.net/2026/07/3caec8ea274bfb5b3fd7bdce70c1da51/)
 - [The Last People Who Know How It Works · unix.foo](https://roytang.net/2026/07/5103bd8f0e4e6101b6e8d53fff877590/)
 - [We Are Losing the Ability to Discover What We Didn’t Know to Ask](https://roytang.net/2026/07/1ad6052ee828f5152e63677225584f87/)
-- [The Graph That Should Be Front-Page News](https://roytang.net/2026/07/cbfd6ebc9af5a9213c24ab22619bf5e0/)
 
 [View all links](https://roytang.net/links)
 
