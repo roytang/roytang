@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I Hate The Way We Talk Online – Jason Toney](https://roytang.net/2026/07/1bb80cf76a0267f1d69b11f5d39a3ed9/)
+- [95 reasons for having your own website in 2026 ~ Bell Kiosk](https://roytang.net/2026/07/7cf29013e42761849209ac1f1d9c4154/)
+- [What just happened to TheNumbers.com should worry us all](https://roytang.net/2026/07/f146e2d7d9a19b247f4fd75f118a456b/)
 - [Soko Striker](https://roytang.net/2026/07/4b1f5621bc521336bea24827fc169c20/)
 - [Report from the march to Stop the AI Race](https://roytang.net/2026/07/f1103232177dd5cd05ae82cd4d160242/)
-- [Chasing life goals is a recipe for disaster – so try these tiny experiments instead | Life and style | The Guardian](https://roytang.net/2026/07/3caec8ea274bfb5b3fd7bdce70c1da51/)
-- [The Last People Who Know How It Works · unix.foo](https://roytang.net/2026/07/5103bd8f0e4e6101b6e8d53fff877590/)
-- [We Are Losing the Ability to Discover What We Didn’t Know to Ask](https://roytang.net/2026/07/1ad6052ee828f5152e63677225584f87/)
 
 [View all links](https://roytang.net/links)
 
