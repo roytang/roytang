@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [(Youtube) Don&#x27;t Take the Black Pill - Andrew Kelley | SSW 2026](https://roytang.net/2026/07/5d16073d5b1d47cec22f8fbc29c8b006/)
 - [I Hate The Way We Talk Online – Jason Toney](https://roytang.net/2026/07/1bb80cf76a0267f1d69b11f5d39a3ed9/)
 - [95 reasons for having your own website in 2026 ~ Bell Kiosk](https://roytang.net/2026/07/7cf29013e42761849209ac1f1d9c4154/)
 - [What just happened to TheNumbers.com should worry us all](https://roytang.net/2026/07/f146e2d7d9a19b247f4fd75f118a456b/)
 - [Soko Striker](https://roytang.net/2026/07/4b1f5621bc521336bea24827fc169c20/)
-- [Report from the march to Stop the AI Race](https://roytang.net/2026/07/f1103232177dd5cd05ae82cd4d160242/)
 
 [View all links](https://roytang.net/links)
 
