@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Exporting a Youtube Playlist to MP3s](https://roytang.net/2026/07/youtube-playlist-export-mp3/)
 - [Weeknotes 2026-07-26](https://roytang.net/2026/07/weeknotes-07-26/)
 - [Weeknotes 2026-07-19](https://roytang.net/2026/07/weeknotes-07-19/)
 - [MTG: Secrets of Strixhaven + Edge of Eternity Redux](https://roytang.net/2026/07/mtg-sos/)
 - [Weeknotes 2026-07-12](https://roytang.net/2026/07/weeknotes-07-12/)
-- [Weeknotes 2026-07-05 Personal Writing](https://roytang.net/2026/07/weeknotes-07-05/)
 
 [View all posts](https://roytang.net/blog)
 
