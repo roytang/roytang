@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 1, 2026, 8:21 a.m. ](https://roytang.net/2026/08/p0zbpqm/): Any games that have Steam Cloud support will upload their save files to Steam Cloud. You can visit https://store.steampowered.com/account/remotestorage to see what save files your account has in the cloud.
 - [July 31, 2026, 1:59 p.m. ](https://roytang.net/2026/07/p0tkpgg/): Steam community pages are public, you dont need to own the game or even have a steam account to view them
 - [July 26, 2026, 11:42 p.m. ](https://roytang.net/2026/07/ozvuash/): Woohoo, this is great! Would love to win.
 - [July 22, 2026, 11:06 p.m. ](https://roytang.net/2026/07/116964248413608768/): On a whim I bought this fun little #Transformers Blokees blind box to see what it was like. I got Wheeljack! These are pretty cheap - they&#x27;re the smallest ones (ballpen for scale). You need to assemble them, but its not too hard even with my poor dexterity. Its a pretty clever product because I can see these as being nice cheap gifts for kids, but the blind box gives it collector appeal too. Photo of the toy with the packaging
 - [July 20, 2026, 2:38 p.m. ](https://roytang.net/2026/07/116950924150192673/): It annoys me that this prompt has a checkbox to always open in app but not the opposite option i.e. never open links in apps, since I almost always prefer #web A firefox prompt to open a link in the Youtube app, with an optional checkbox labelled &quot;Always open links in apps&quot;
-- [July 16, 2026, 12:53 p.m. ](https://roytang.net/2026/07/oxttvbs/): I think its largely because PC is an open platform that Steam doesnt control. Steam is not the only way to get games for PC. You can even run nonSteam games on the Steam Deck. Without physical media, Sony has absolute control over all game sales for their consoles. Also, since Steam doesnt control the PC as a platform, they had no input at all on whether physical PC games are distributed or not. They merely provided a digital storefront and it was the game distributors who decided that was good enough. And the PC and laptop makers decided disk
 
 [View all notes](https://roytang.net/notes)
 
