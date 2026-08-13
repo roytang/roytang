@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Retro Review: Tales of Xillia (PS3!)](https://roytang.net/2026/08/tales-of-xillia/)
 - [Weeknotes 2026-08-09](https://roytang.net/2026/08/weeknotes-08-09/)
 - [Forty-Eight](https://roytang.net/2026/08/forty-eight/)
 - [Blogging Challenges](https://roytang.net/2026/08/blogging-challenges/)
 - [Weeknotes 2026-08-02](https://roytang.net/2026/08/weeknotes-08-02/)
-- [Exporting a Youtube Playlist to MP3s](https://roytang.net/2026/07/youtube-playlist-export-mp3/)
 
 [View all posts](https://roytang.net/blog)
 
