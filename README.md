@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Welcome To The Resistance: Meet The Workers Dodging (And Sabotaging) Their Employer&#x27;s AI Mandates](https://roytang.net/2026/08/6e926312af327dba777223299cefcf7d/)
+- [Temperature Zero for Culture: Why Everything Is Starting to Look the Same](https://roytang.net/2026/08/6f6193919af3c3e15f82859def98511d/)
+- [I&#x27;m done using AI – Brett Codes](https://roytang.net/2026/08/51aecc4883ee73be29381ae44ed861ca/)
 - [You are not your grand plans |  Bryan Braun - Frontend Developer](https://roytang.net/2026/08/3310c9984cda185da2b6732aefbcd902/)
 - [Computational Tyranny – One Happy Fellow - blog](https://roytang.net/2026/08/35e218476e687a2891c5d59e99cdecd2/)
-- [Into the gap - A Working Library](https://roytang.net/2026/08/c252ec92662f27e4b895faf26823bb05/)
-- [The End of Reading Is Here - The Atlantic](https://roytang.net/2026/08/8922f9025daabcced66152948123dc20/)
-- [Things Unexpectedly Named After People](https://roytang.net/2026/07/a3d18b6380dafff13d394ffd2e5b7869/)
 
 [View all links](https://roytang.net/links)
 
