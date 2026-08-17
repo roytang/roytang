@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 17, 2026, 8:41 a.m. ](https://roytang.net/2026/08/117108065228438827/): Decided to spend Monday morning installing a 2nd #Linux distro to try out (going for the triple boot!) Hopefully I dont end up breaking my file systems and fixing my computer the rest of the week Garuda linux installing
 - [Aug. 13, 2026, 9:16 p.m. ](https://roytang.net/2026/08/117088386649542778/): ICE buying shock gloves makes me imagine this is a timeline where we&#x27;re going to start getting B-tier Spider-Man villains without the benefit of an actual superhero. https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves
 - [Aug. 13, 2026, 8:40 p.m. ](https://roytang.net/2026/08/117088243873604504/): I usually upload my #gaming videos (such as they are) to my Youtube channel (https://www.youtube.com/@roytang), but I was thinking how it sucks that YT is the &quot;de facto&quot; place to upload videos and that there should be more alternatives, then I remembered that #Peertube exists and maybe I should upload my stuff there? I&#x27;m a bit worried about the concept of decentralized video because I imagine its much more expensive to host (compared to masto etc). How healthy is Peertube? Any recommended instances? [20:40] (Also I don&#x27;t imagine I&#x27;d ever be earning money from the YT channel, but feel free
 - [Aug. 13, 2026, 7:28 a.m. ](https://roytang.net/2026/08/117085129684588847/): KeyCello6571607&#x27;s #Xbox25 Milestones I only had PC Game Pass for a few years, but I finished quite a few games on there! #gaming
 - [Aug. 1, 2026, 8:21 a.m. ](https://roytang.net/2026/08/p0zbpqm/): Any games that have Steam Cloud support will upload their save files to Steam Cloud. You can visit https://store.steampowered.com/account/remotestorage to see what save files your account has in the cloud.
-- [July 31, 2026, 1:59 p.m. ](https://roytang.net/2026/07/p0tkpgg/): Steam community pages are public, you dont need to own the game or even have a steam account to view them
 
 [View all notes](https://roytang.net/notes)
 
