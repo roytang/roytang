@@ -16,17 +16,17 @@ Latest blog posts:
 
 Latest shared links:
 
+- [On the Difference Between Rest and Idleness | The Idle Gazette](https://roytang.net/2026/08/7971d5e8ebe6b58936c3af92414d5351/)
 - [Training data producers and consumers | Jim Nielsen’s Notes](https://roytang.net/2026/08/90d4bb4b3296f4ab668afd996e131a86/)
 - [Welcome To The Resistance: Meet The Workers Dodging (And Sabotaging) Their Employer&#x27;s AI Mandates](https://roytang.net/2026/08/6e926312af327dba777223299cefcf7d/)
 - [Temperature Zero for Culture: Why Everything Is Starting to Look the Same](https://roytang.net/2026/08/6f6193919af3c3e15f82859def98511d/)
 - [I&#x27;m done using AI – Brett Codes](https://roytang.net/2026/08/51aecc4883ee73be29381ae44ed861ca/)
-- [You are not your grand plans |  Bryan Braun - Frontend Developer](https://roytang.net/2026/08/3310c9984cda185da2b6732aefbcd902/)
 
 [View all links](https://roytang.net/links)
 
 Latest notes:
 
-- [Aug. 17, 2026, 8:41 a.m. ](https://roytang.net/2026/08/117108065228438827/): Decided to spend Monday morning installing a 2nd #Linux distro to try out (going for the triple boot!) Hopefully I dont end up breaking my file systems and fixing my computer the rest of the week Garuda linux installing
+- [Aug. 17, 2026, 8:41 a.m. ](https://roytang.net/2026/08/117108065228438827/): Decided to spend Monday morning installing a 2nd #Linux distro to try out (going for the triple boot!) Hopefully I dont end up breaking my file systems and fixing my computer the rest of the week Garuda linux installing [10:35] Update after around 2hrs: After some fiddling around got the triple boot working (confirmed Linux and W11 can still boot) and made sure my disks are properly mounted. Now we are in the phase of &quot;reinstalling everything and relogging in to all the services&quot;
 - [Aug. 13, 2026, 9:16 p.m. ](https://roytang.net/2026/08/117088386649542778/): ICE buying shock gloves makes me imagine this is a timeline where we&#x27;re going to start getting B-tier Spider-Man villains without the benefit of an actual superhero. https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves
 - [Aug. 13, 2026, 8:40 p.m. ](https://roytang.net/2026/08/117088243873604504/): I usually upload my #gaming videos (such as they are) to my Youtube channel (https://www.youtube.com/@roytang), but I was thinking how it sucks that YT is the &quot;de facto&quot; place to upload videos and that there should be more alternatives, then I remembered that #Peertube exists and maybe I should upload my stuff there? I&#x27;m a bit worried about the concept of decentralized video because I imagine its much more expensive to host (compared to masto etc). How healthy is Peertube? Any recommended instances? [20:40] (Also I don&#x27;t imagine I&#x27;d ever be earning money from the YT channel, but feel free
 - [Aug. 13, 2026, 7:28 a.m. ](https://roytang.net/2026/08/117085129684588847/): KeyCello6571607&#x27;s #Xbox25 Milestones I only had PC Game Pass for a few years, but I finished quite a few games on there! #gaming
