@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Backseat Software - Mike Swanson&#x27;s Blog](https://roytang.net/2026/08/0f8993a4e6fa49a1f5a7fbefe7fcec77/)
 - [On the Difference Between Rest and Idleness | The Idle Gazette](https://roytang.net/2026/08/7971d5e8ebe6b58936c3af92414d5351/)
 - [Training data producers and consumers | Jim Nielsen’s Notes](https://roytang.net/2026/08/90d4bb4b3296f4ab668afd996e131a86/)
 - [Welcome To The Resistance: Meet The Workers Dodging (And Sabotaging) Their Employer&#x27;s AI Mandates](https://roytang.net/2026/08/6e926312af327dba777223299cefcf7d/)
 - [Temperature Zero for Culture: Why Everything Is Starting to Look the Same](https://roytang.net/2026/08/6f6193919af3c3e15f82859def98511d/)
-- [I&#x27;m done using AI – Brett Codes](https://roytang.net/2026/08/51aecc4883ee73be29381ae44ed861ca/)
 
 [View all links](https://roytang.net/links)
 
