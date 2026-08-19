@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Trying Out Garuda Linux](https://roytang.net/2026/08/garuda-linux/)
 - [Weeknotes 2026-08-16](https://roytang.net/2026/08/weeknotes-08-16/)
 - [750 Words: Hall of Phoenixes Interview](https://roytang.net/2026/08/750words-phoenix/)
 - [Retro Review: Tales of Xillia (PS3!)](https://roytang.net/2026/08/tales-of-xillia/)
 - [Weeknotes 2026-08-09](https://roytang.net/2026/08/weeknotes-08-09/)
-- [Forty-Eight](https://roytang.net/2026/08/forty-eight/)
 
 [View all posts](https://roytang.net/blog)
 
