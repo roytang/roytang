@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-08-30](https://roytang.net/2026/08/weeknotes-08-30/)
 - [MTG: Marvel Super Heroes](https://roytang.net/2026/08/mtg-msh/)
 - [On Buying A Used iPad](https://roytang.net/2026/08/used-ipad/)
 - [Weeknotes 2026-08-23](https://roytang.net/2026/08/weeknotes-08-23/)
 - [SNES Games I finished ~30 years ago!](https://roytang.net/2026/08/snes-games/)
-- [Trying Out Garuda Linux](https://roytang.net/2026/08/garuda-linux/)
 
 [View all posts](https://roytang.net/blog)
 
