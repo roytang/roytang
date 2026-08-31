@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Aug. 31, 2026, 11:10 p.m. ](https://roytang.net/2026/08/117190755192793708/): Happening in less than an hour: https://roytang.net/collections/sketchbook/1433044241735770115/ Comic panel left: &quot;Filipinos before Sept 1&quot;, a person on a couch watching TV Comic panel right: &quot;Filipinos after Sept 1&quot;, the same person, except he is wearing a Santa hat and there is a Xmas tree beside the couch and the TV is playing a Xmas song
 - [Aug. 29, 2026, 4:32 p.m. ](https://roytang.net/2026/08/p6kouag/): Where is the walkway? Is it a new overhead one?
 - [Aug. 25, 2026, 8:02 a.m. ](https://roytang.net/2026/08/117153213048971096/): #MarvelSnap adding a draft format event was enough to get me to try it again lol
 - [Aug. 19, 2026, 3:28 p.m. ](https://roytang.net/2026/08/117120993273356286/): @nadiyar this kind of thing is super common if you&#x27;ve had a website for any decent amount of time, no matter how much traffic you get
 - [Aug. 19, 2026, 3:23 p.m. ](https://roytang.net/2026/08/p4kq1f0/): First off, I&#x27;m surprised you&#x27;re posting here in Tagalog lol You can check SteamDB for the price history: https://steamdb.info/app/550/ Historical low for PH is a mere P33.50 so you might want to wait until that comes again (the last time was in June). The next big Steam sale is on October 1 (https://steamdb.info/sales/history/), and the Valve games will often be on discount in these big sales.
-- [Aug. 17, 2026, 8:41 a.m. ](https://roytang.net/2026/08/117108065228438827/): Decided to spend Monday morning installing a 2nd #Linux distro to try out (going for the triple boot!) Hopefully I dont end up breaking my file systems and fixing my computer the rest of the week Garuda linux installing [10:35] Update after around 2hrs: After some fiddling around got the triple boot working (confirmed Linux and W11 can still boot) and made sure my disks are properly mounted. Now we are in the phase of &quot;reinstalling everything and relogging in to all the services&quot;
 
 [View all notes](https://roytang.net/notes)
 
