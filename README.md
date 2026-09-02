@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 3, 2026, 12:57 a.m. ](https://roytang.net/2026/09/p7eri5n/): I&#x27;ll always remember that in the original DOS Civilization game, a lot of the game files can be opened in a text editor. Among other things, this included the Civilopedia entries, and I once copy-pasted an entire Civilopedia entry and submitted it as part of a history report!
 - [Sept. 1, 2026, 1:55 a.m. ](https://roytang.net/2026/08/117191405486987674/): @benbrown sounds neat! What is the data source for the upcoming releases?
 - [Aug. 31, 2026, 11:10 p.m. ](https://roytang.net/2026/08/117190755192793708/): Happening in less than an hour: https://roytang.net/collections/sketchbook/1433044241735770115/ Comic panel left: &quot;Filipinos before Sept 1&quot;, a person on a couch watching TV Comic panel right: &quot;Filipinos after Sept 1&quot;, the same person, except he is wearing a Santa hat and there is a Xmas tree beside the couch and the TV is playing a Xmas song
 - [Aug. 29, 2026, 4:32 p.m. ](https://roytang.net/2026/08/p6kouag/): Where is the walkway? Is it a new overhead one?
 - [Aug. 25, 2026, 8:02 a.m. ](https://roytang.net/2026/08/117153213048971096/): #MarvelSnap adding a draft format event was enough to get me to try it again lol
-- [Aug. 19, 2026, 3:28 p.m. ](https://roytang.net/2026/08/117120993273356286/): @nadiyar this kind of thing is super common if you&#x27;ve had a website for any decent amount of time, no matter how much traffic you get
 
 [View all notes](https://roytang.net/notes)
 
