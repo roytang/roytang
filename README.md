@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 4, 2026, 3:19 p.m. ](https://roytang.net/2026/09/p7qg8ox/): Is it not in your Steam library? That icon on your desktop is just a shortcut file, it&#x27;s possible the game is already uninstalled but the shortcut was left behind. Are you able to run it by double-clicking the shortcut? If you right-click the shortcut and go to Properties there should be a field that shows where the actual files are, and you can go there and delete them in the file explorer, but it&#x27;s better to uninstall the software properly.
 - [Sept. 3, 2026, 12:57 a.m. ](https://roytang.net/2026/09/p7eri5n/): I&#x27;ll always remember that in the original DOS Civilization game, a lot of the game files can be opened in a text editor. Among other things, this included the Civilopedia entries, and I once copy-pasted an entire Civilopedia entry and submitted it as part of a history report!
 - [Sept. 1, 2026, 1:55 a.m. ](https://roytang.net/2026/08/117191405486987674/): @benbrown sounds neat! What is the data source for the upcoming releases?
 - [Aug. 31, 2026, 11:10 p.m. ](https://roytang.net/2026/08/117190755192793708/): Happening in less than an hour: https://roytang.net/collections/sketchbook/1433044241735770115/ Comic panel left: &quot;Filipinos before Sept 1&quot;, a person on a couch watching TV Comic panel right: &quot;Filipinos after Sept 1&quot;, the same person, except he is wearing a Santa hat and there is a Xmas tree beside the couch and the TV is playing a Xmas song
 - [Aug. 29, 2026, 4:32 p.m. ](https://roytang.net/2026/08/p6kouag/): Where is the walkway? Is it a new overhead one?
-- [Aug. 25, 2026, 8:02 a.m. ](https://roytang.net/2026/08/117153213048971096/): #MarvelSnap adding a draft format event was enough to get me to try it again lol
 
 [View all notes](https://roytang.net/notes)
 
