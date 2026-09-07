@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Looking for iPad Reader App Recommendations](https://roytang.net/2026/09/ipad-reader-recommendation/)
 - [Weeknotes 2026-09-06](https://roytang.net/2026/09/weeknotes-09-06/)
 - [Movies / TV - July &amp; August 2026](https://roytang.net/2026/09/movies-tv-jul-aug-2026/)
 - [Weeknotes 2026-08-30](https://roytang.net/2026/08/weeknotes-08-30/)
 - [MTG: Marvel Super Heroes](https://roytang.net/2026/08/mtg-msh/)
-- [On Buying A Used iPad](https://roytang.net/2026/08/used-ipad/)
 
 [View all posts](https://roytang.net/blog)
 
