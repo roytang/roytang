@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How Musk, Thiel, and Altman Misread Science Fiction - The Atlantic](https://roytang.net/2026/09/792ffa760ee5a99ef0c0be5ada69efb4/)
+- [Creepy crawlies — Konstantin Ryabitsev](https://roytang.net/2026/09/4086ded751a84943440e181f91c2ede0/)
+- [The quiet grief of adult friendship](https://roytang.net/2026/09/73f3bbfa11773d8884f1c32230a41527/)
+- [Why Is Everyone In Tech So Sad?](https://roytang.net/2026/09/0f0e1161266ba8101db34d9580a71b65/)
 - [Michelle Barker | Little Websites Everywhere](https://roytang.net/2026/08/333b480bd3fd546a0be9e0b4de7320dd/)
-- [Backseat Software - Mike Swanson&#x27;s Blog](https://roytang.net/2026/08/0f8993a4e6fa49a1f5a7fbefe7fcec77/)
-- [On the Difference Between Rest and Idleness | The Idle Gazette](https://roytang.net/2026/08/7971d5e8ebe6b58936c3af92414d5351/)
-- [Training data producers and consumers | Jim Nielsen’s Notes](https://roytang.net/2026/08/90d4bb4b3296f4ab668afd996e131a86/)
-- [Welcome To The Resistance: Meet The Workers Dodging (And Sabotaging) Their Employer&#x27;s AI Mandates](https://roytang.net/2026/08/6e926312af327dba777223299cefcf7d/)
 
 [View all links](https://roytang.net/links)
 
