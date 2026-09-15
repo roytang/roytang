@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Sept. 15, 2026, 1:55 p.m. ](https://roytang.net/2026/09/117273506973230948/): I am apparently one of the top 15 users on indieweb social, at least in terms of being on archive.org https://web.archive.org/web/sitemap/https://indieweb.social Screenshot of the indieweb.social sitemap on archive.org
 - [Sept. 14, 2026, 11:06 p.m. ](https://roytang.net/2026/09/117270013381682166/): I am happy (?) to report that I have received my first email from a self-identified clanker #genai Screenshot of an email from a self-identified AI agent [23:09] If you are a human curious about the mentioned &quot;This is Metro Manila&quot; post, it is from 2019, feel free to read it: https://roytang.net/2019/10/this-is-metro-manila/#philippines
 - [Sept. 4, 2026, 3:19 p.m. ](https://roytang.net/2026/09/p7qg8ox/): Is it not in your Steam library? That icon on your desktop is just a shortcut file, it&#x27;s possible the game is already uninstalled but the shortcut was left behind. Are you able to run it by double-clicking the shortcut? If you right-click the shortcut and go to Properties there should be a field that shows where the actual files are, and you can go there and delete them in the file explorer, but it&#x27;s better to uninstall the software properly.
 - [Sept. 3, 2026, 12:57 a.m. ](https://roytang.net/2026/09/p7eri5n/): I&#x27;ll always remember that in the original DOS Civilization game, a lot of the game files can be opened in a text editor. Among other things, this included the Civilopedia entries, and I once copy-pasted an entire Civilopedia entry and submitted it as part of a history report!
 - [Sept. 1, 2026, 1:55 a.m. ](https://roytang.net/2026/08/117191405486987674/): @benbrown sounds neat! What is the data source for the upcoming releases?
-- [Aug. 31, 2026, 11:10 p.m. ](https://roytang.net/2026/08/117190755192793708/): Happening in less than an hour: https://roytang.net/collections/sketchbook/1433044241735770115/ Comic panel left: &quot;Filipinos before Sept 1&quot;, a person on a couch watching TV Comic panel right: &quot;Filipinos after Sept 1&quot;, the same person, except he is wearing a Santa hat and there is a Xmas tree beside the couch and the TV is playing a Xmas song
 
 [View all notes](https://roytang.net/notes)
 
