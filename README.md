@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [“Laborsaving” - A Working Library](https://roytang.net/2026/09/c83f26e85bac779eb5f84ce111316b62/)
 - [I Know What You Think of Me - The New York Times](https://roytang.net/2026/09/12aee78f0153c2adf90e636157aa757a/)
 - [How Musk, Thiel, and Altman Misread Science Fiction - The Atlantic](https://roytang.net/2026/09/792ffa760ee5a99ef0c0be5ada69efb4/)
 - [Creepy crawlies — Konstantin Ryabitsev](https://roytang.net/2026/09/4086ded751a84943440e181f91c2ede0/)
 - [The quiet grief of adult friendship](https://roytang.net/2026/09/73f3bbfa11773d8884f1c32230a41527/)
-- [Why Is Everyone In Tech So Sad?](https://roytang.net/2026/09/0f0e1161266ba8101db34d9580a71b65/)
 
 [View all links](https://roytang.net/links)
 
