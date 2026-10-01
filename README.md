@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Final Fantasy VII Rebirth (PS5)](https://roytang.net/2026/10/ff7rebirth/)
 - [Weeknotes 2026-09-27](https://roytang.net/2026/09/weeknotes-09-27/)
 - [Boardgames: Lord of the Rings Trick-Taking Game (Fellowship and Two Towers), Wyrmspan, Guards of Atlantis II, Inis, Modern Art](https://roytang.net/2026/09/boardgames-lotr-inis-atlantis-modernart/)
 - [Weeknotes 2026-09-20](https://roytang.net/2026/09/weeknotes-09-20/)
 - [Weeknotes 2026-09-13](https://roytang.net/2026/09/weeknotes-09-13/)
-- [Looking for iPad Reader App Recommendations](https://roytang.net/2026/09/ipad-reader-recommendation/)
 
 [View all posts](https://roytang.net/blog)
 
