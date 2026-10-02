@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [They killed knowledge - A Working Library](https://roytang.net/2026/10/78bab200b0cb36de58d443909e3e6bf4/)
+- [The Game Ends Either Way - Bridgette Day](https://roytang.net/2026/10/0ee4eeb74d866cfabffeed651b890348/)
+- [You are one of one – Michael Julius](https://roytang.net/2026/10/b5f18aa9f6947d43678c0c1d32c1243a/)
 - [What technology takes from us – and how to take it back | AI (artificial intelligence) | The Guardian](https://roytang.net/2026/09/72e331d8aea9dd7114735e51d732ca2e/)
 - [Everywhere Foist Upon Us - The Darth Mall](https://roytang.net/2026/09/aa058bd8c499ec735d314f9ff437c943/)
-- [“Laborsaving” - A Working Library](https://roytang.net/2026/09/c83f26e85bac779eb5f84ce111316b62/)
-- [I Know What You Think of Me - The New York Times](https://roytang.net/2026/09/12aee78f0153c2adf90e636157aa757a/)
-- [How Musk, Thiel, and Altman Misread Science Fiction - The Atlantic](https://roytang.net/2026/09/792ffa760ee5a99ef0c0be5ada69efb4/)
 
 [View all links](https://roytang.net/links)
 
