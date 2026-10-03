@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Winnie Lim » running a personal website is not fun anymore](https://roytang.net/2026/10/064398a05eddc4d3c21d48d965905a85/)
 - [They killed knowledge - A Working Library](https://roytang.net/2026/10/78bab200b0cb36de58d443909e3e6bf4/)
 - [The Game Ends Either Way - Bridgette Day](https://roytang.net/2026/10/0ee4eeb74d866cfabffeed651b890348/)
 - [You are one of one – Michael Julius](https://roytang.net/2026/10/b5f18aa9f6947d43678c0c1d32c1243a/)
 - [What technology takes from us – and how to take it back | AI (artificial intelligence) | The Guardian](https://roytang.net/2026/09/72e331d8aea9dd7114735e51d732ca2e/)
-- [Everywhere Foist Upon Us - The Darth Mall](https://roytang.net/2026/09/aa058bd8c499ec735d314f9ff437c943/)
 
 [View all links](https://roytang.net/links)
 
