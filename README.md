@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Software developers are not okay](https://roytang.net/2026/10/37b1d4f6e793068b47b6136e4a692e81/)
+- [The Silent War for the Soul of Software - drac.at](https://roytang.net/2026/10/a74ecd0e52e54f2f6cad5c2335a9b86a/)
 - [Winnie Lim » running a personal website is not fun anymore](https://roytang.net/2026/10/064398a05eddc4d3c21d48d965905a85/)
 - [They killed knowledge - A Working Library](https://roytang.net/2026/10/78bab200b0cb36de58d443909e3e6bf4/)
 - [The Game Ends Either Way - Bridgette Day](https://roytang.net/2026/10/0ee4eeb74d866cfabffeed651b890348/)
-- [You are one of one – Michael Julius](https://roytang.net/2026/10/b5f18aa9f6947d43678c0c1d32c1243a/)
-- [What technology takes from us – and how to take it back | AI (artificial intelligence) | The Guardian](https://roytang.net/2026/09/72e331d8aea9dd7114735e51d732ca2e/)
 
 [View all links](https://roytang.net/links)
 
