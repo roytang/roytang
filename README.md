@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Things That Are Good to Do](https://roytang.net/2026/10/0764bfa7aa307578c3226793c4f348fa/)
 - [Software developers are not okay](https://roytang.net/2026/10/37b1d4f6e793068b47b6136e4a692e81/)
 - [The Silent War for the Soul of Software - drac.at](https://roytang.net/2026/10/a74ecd0e52e54f2f6cad5c2335a9b86a/)
 - [Winnie Lim » running a personal website is not fun anymore](https://roytang.net/2026/10/064398a05eddc4d3c21d48d965905a85/)
 - [They killed knowledge - A Working Library](https://roytang.net/2026/10/78bab200b0cb36de58d443909e3e6bf4/)
-- [The Game Ends Either Way - Bridgette Day](https://roytang.net/2026/10/0ee4eeb74d866cfabffeed651b890348/)
 
 [View all links](https://roytang.net/links)
 
