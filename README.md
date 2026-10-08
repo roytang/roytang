@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The people holding up the internet | Data Drop](https://roytang.net/2026/10/c390784f6aadd4b264305b8066205417/)
 - [118 Things to Do Instead of Doomscrolling](https://roytang.net/2026/10/60ff88080059fcf686ac377a3a0e0eba/)
 - [Things That Are Good to Do](https://roytang.net/2026/10/0764bfa7aa307578c3226793c4f348fa/)
 - [Software developers are not okay](https://roytang.net/2026/10/37b1d4f6e793068b47b6136e4a692e81/)
 - [The Silent War for the Soul of Software - drac.at](https://roytang.net/2026/10/a74ecd0e52e54f2f6cad5c2335a9b86a/)
-- [Winnie Lim » running a personal website is not fun anymore](https://roytang.net/2026/10/064398a05eddc4d3c21d48d965905a85/)
 
 [View all links](https://roytang.net/links)
 
