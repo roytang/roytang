@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 14, 2026, 10:19 p.m. ](https://roytang.net/2026/10/117439696980419300/): A thing that happens far too often: I am reading some very old post on my blog and I have links out to now-defunct mailing lists or forums that I used to be active on and now I am sad/annoyed that I can no longer access all of my old activity on those sites. I suppose this is just a consequence of being online for a very long time, but I wish I had thought better about archiving back in those days.
 - [Oct. 11, 2026, 12:50 p.m. ](https://roytang.net/2026/10/117420472401240586/): @squishberry if you zoom in on a created card there should be some text telling you what created it
 - [Oct. 10, 2026, 5:38 p.m. ](https://roytang.net/2026/10/117415943052808780/): This is a great day 10/10
 - [Oct. 8, 2026, 7:19 a.m. ](https://roytang.net/2026/10/117402186493968135/): Margaret Hamilton lived through the start and end of software development as a viable career
 - [Sept. 15, 2026, 1:55 p.m. ](https://roytang.net/2026/09/117273506973230948/): I am apparently one of the top 15 users on indieweb social, at least in terms of being on archive.org https://web.archive.org/web/sitemap/https://indieweb.social Screenshot of the indieweb.social sitemap on archive.org
-- [Sept. 14, 2026, 11:06 p.m. ](https://roytang.net/2026/09/117270013381682166/): I am happy (?) to report that I have received my first email from a self-identified clanker #genai Screenshot of an email from a self-identified AI agent [23:09] If you are a human curious about the mentioned &quot;This is Metro Manila&quot; post, it is from 2019, feel free to read it: https://roytang.net/2019/10/this-is-metro-manila/#philippines [2026-09-15 18:41] Oh I guess that iLands agent thing was related to this: https://arstechnica.com/ai/2026/09/ai-agents-flood-the-internet-with-slop-infused-spam/
 
 [View all notes](https://roytang.net/notes)
 
