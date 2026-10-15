@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Oct. 15, 2026, 12:17 p.m. ](https://roytang.net/2026/10/pgu245z/): It sounds like your direction and command buttons (light, medium and heavy punch and kick) are working? And if those are working you should be able to do everything else regardless of controller. Just to check, is it not an execution issue? Have you checked in training mode if your inputs are actually registering in the game?
 - [Oct. 15, 2026, 8:25 a.m. ](https://roytang.net/2026/10/117442079356509283/): &quot;Everybody does it&quot; isn&#x27;t a good reason for doing anything. We&#x27;re humans, not lemmings
 - [Oct. 14, 2026, 10:19 p.m. ](https://roytang.net/2026/10/117439696980419300/): A thing that happens far too often: I am reading some very old post on my blog and I have links out to now-defunct mailing lists or forums that I used to be active on and now I am sad/annoyed that I can no longer access all of my old activity on those sites. I suppose this is just a consequence of being online for a very long time, but I wish I had thought better about archiving back in those days.
 - [Oct. 11, 2026, 12:50 p.m. ](https://roytang.net/2026/10/117420472401240586/): @squishberry if you zoom in on a created card there should be some text telling you what created it
 - [Oct. 10, 2026, 5:38 p.m. ](https://roytang.net/2026/10/117415943052808780/): This is a great day 10/10
-- [Oct. 8, 2026, 7:19 a.m. ](https://roytang.net/2026/10/117402186493968135/): Margaret Hamilton lived through the start and end of software development as a viable career
 
 [View all notes](https://roytang.net/notes)
 
