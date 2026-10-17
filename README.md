@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [A Phishing Call](https://roytang.net/2026/10/phishing-call/)
 - [Who Wants to Live Forever?](https://roytang.net/2026/10/live-forever/)
 - [Weeknotes 2026-10-11](https://roytang.net/2026/10/weeknotes-10-11/)
 - [Uncharted 2: Among Theieves, Uncharted: Drake&#x27;s Fortune, Tomb Raider (2013), Shadow of the Tomb Raider](https://roytang.net/2026/10/uncharted-tomb-raider-shadow/)
 - [Weeknotes 2026-10-04](https://roytang.net/2026/10/weeknotes-10-04/)
-- [Final Fantasy VII Rebirth (PS5)](https://roytang.net/2026/10/ff7rebirth/)
 
 [View all posts](https://roytang.net/blog)
 
