@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Server Patching Notes](https://roytang.net/2026/10/server-patching/)
 - [Weeknotes 2026-10-25](https://roytang.net/2026/10/weeknotes-10-25/)
 - [Snes Games Part 2: Emulated Bugaloo](https://roytang.net/2026/10/snes-games-2/)
 - [Weeknotes 2026-10-18](https://roytang.net/2026/10/weeknotes-10-18/)
 - [A Phishing Call](https://roytang.net/2026/10/phishing-call/)
-- [Who Wants to Live Forever?](https://roytang.net/2026/10/live-forever/)
 
 [View all posts](https://roytang.net/blog)
 
