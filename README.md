@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Manifestos, Fear, and ‘Loser Thinking’: Inside Proton’s AI Reckoning](https://roytang.net/2026/10/2fc55a02b35d1e6d59a0051e530c509d/)
 - [Study explores how AI use affects performance on math and reasoning tasks - Berkeley News](https://roytang.net/2026/10/1383ecdf95aa5a8cc76d22a9594a3d61/)
 - [“I’m Embarrassed on Behalf of the Tech Industry” - Jim Nielsen’s Blog](https://roytang.net/2026/10/cfb08bea7278dc3534d1dc7e7a918716/)
 - [The people holding up the internet | Data Drop](https://roytang.net/2026/10/c390784f6aadd4b264305b8066205417/)
 - [118 Things to Do Instead of Doomscrolling](https://roytang.net/2026/10/60ff88080059fcf686ac377a3a0e0eba/)
-- [Things That Are Good to Do](https://roytang.net/2026/10/0764bfa7aa307578c3226793c4f348fa/)
 
 [View all links](https://roytang.net/links)
 
