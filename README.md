@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-11-01 Undas Edition](https://roytang.net/2026/11/weeknotes-11-01/)
 - [Exit Strategy by Martha Wells (Murderbot Diaries book 4)](https://roytang.net/2026/10/exit-strategy/)
 - [MTG: The Hobbit](https://roytang.net/2026/10/mtg-hob/)
 - [Server Patching Notes](https://roytang.net/2026/10/server-patching/)
 - [Weeknotes 2026-10-25](https://roytang.net/2026/10/weeknotes-10-25/)
-- [Snes Games Part 2: Emulated Bugaloo](https://roytang.net/2026/10/snes-games-2/)
 
 [View all posts](https://roytang.net/blog)
 
@@ -26,7 +26,7 @@ Latest shared links:
 
 Latest notes:
 
-- [Oct. 30, 2026, 10:34 p.m. ](https://roytang.net/2026/10/117530354804009165/): My favorite Picard quote: &quot;It is possible to commit no mistakes and still lose. That is not a weakness, that is life.&quot; #rip Sir Patrick Stewart, a great loss https://www.youtube.com/watch?v=t4A-Ml8YHyM
+- [Oct. 30, 2026, 10:34 p.m. ](https://roytang.net/2026/10/117530354804009165/): My favorite Picard quote: &quot;It is possible to commit no mistakes and still lose. That is not a weakness, that is life.&quot; #rip Sir Patrick Stewart, a great loss
 - [Oct. 23, 2026, 1:39 p.m. ](https://roytang.net/2026/10/117488612682708936/): I spent a long time trying to figure out why my PHP version on Ubuntu wouldn&#x27;t patch to the known fixed versions, staying at 8.5.4, before eventually finding out that Ubuntu backports security fixes and I already had the fix all along! While trying to figure this out I also managed to update my distro to the latest LTS, so that&#x27;s something, but a bunch of things broke and it took me a couple of days to get everything back up and running again. is running my own webserver even still worth it?!?
 - [Oct. 22, 2026, 12:10 a.m. ](https://roytang.net/2026/10/pi0ovzk/): Where was this announced?
 - [Oct. 15, 2026, 12:17 p.m. ](https://roytang.net/2026/10/pgu245z/): It sounds like your direction and command buttons (light, medium and heavy punch and kick) are working? And if those are working you should be able to do everything else regardless of controller. Just to check, is it not an execution issue? Have you checked in training mode if your inputs are actually registering in the game?
