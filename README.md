@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [I made a film in Excel](https://roytang.net/2026/11/2b9ee693c8fe7131a915ede0bdae5eb6/)
+- [How the Words We Teach English Language Learners Changed](https://roytang.net/2026/11/545ddab21e15240107eac81c2a18b8c7/)
 - [Slouching towards Bethlehem | deadSimpleTech](https://roytang.net/2026/11/1a33f3499967b0ab8caf90c66dc3bb82/)
 - [Some final words on Foursquare.](https://roytang.net/2026/11/e027c3775e9aba3caad218b6e7c29a58/)
 - [An Ode to Links - Jim Nielsen’s Blog](https://roytang.net/2026/11/ded40d7a324344af59c32d29bd867145/)
-- [Online censorship is crushing indie webcomics | Xtra Magazine](https://roytang.net/2026/11/dcbda1508e171ec454dd87c7669474fa/)
-- [Manifestos, Fear, and ‘Loser Thinking’: Inside Proton’s AI Reckoning](https://roytang.net/2026/10/2fc55a02b35d1e6d59a0051e530c509d/)
 
 [View all links](https://roytang.net/links)
 
