@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Weeknotes 2026-11-08](https://roytang.net/2026/11/weeknotes-11-08/)
 - [Movies / TV - September &amp; October 2026](https://roytang.net/2026/11/movies-tv-sep-oct-2026/)
 - [Weeknotes 2026-11-01 Undas Edition](https://roytang.net/2026/11/weeknotes-11-01/)
 - [Exit Strategy by Martha Wells (Murderbot Diaries book 4)](https://roytang.net/2026/10/exit-strategy/)
 - [MTG: The Hobbit](https://roytang.net/2026/10/mtg-hob/)
-- [Server Patching Notes](https://roytang.net/2026/10/server-patching/)
 
 [View all posts](https://roytang.net/blog)
 
