@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Web is Fantastic Actually, Sightless Scribbles](https://roytang.net/2026/11/ace0cd9994eb976bc15da3532476de67/)
+- [You Don&#x27;t Have to Blog · brennan.day](https://roytang.net/2026/11/c2b744fca024023fee4359eb5929e243/)
+- [The Secret of Monkey Island: all 13 versions side by side](https://roytang.net/2026/11/fb264c53e616887334d00d67a4648658/)
 - [I made a film in Excel](https://roytang.net/2026/11/2b9ee693c8fe7131a915ede0bdae5eb6/)
 - [How the Words We Teach English Language Learners Changed](https://roytang.net/2026/11/545ddab21e15240107eac81c2a18b8c7/)
-- [Slouching towards Bethlehem | deadSimpleTech](https://roytang.net/2026/11/1a33f3499967b0ab8caf90c66dc3bb82/)
-- [Some final words on Foursquare.](https://roytang.net/2026/11/e027c3775e9aba3caad218b6e7c29a58/)
-- [An Ode to Links - Jim Nielsen’s Blog](https://roytang.net/2026/11/ded40d7a324344af59c32d29bd867145/)
 
 [View all links](https://roytang.net/links)
 
