@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [An Inconvenient Life](https://roytang.net/2026/11/75d36594cd8f8815d07e43c88a0a7d4b/)
 - [A Call for Social Play (Librecast’s No AI Policy)](https://roytang.net/2026/11/ce687ff433c6eebefae346968fdf4fac/)
 - [The efficiency trap: why optimising everything can backfire, badly | Mathematics | The Guardian](https://roytang.net/2026/11/50b1e7d569b5e50e8ebcfb0c21ffe5ab/)
 - [The Web is Fantastic Actually, Sightless Scribbles](https://roytang.net/2026/11/ace0cd9994eb976bc15da3532476de67/)
 - [You Don&#x27;t Have to Blog · brennan.day](https://roytang.net/2026/11/c2b744fca024023fee4359eb5929e243/)
-- [The Secret of Monkey Island: all 13 versions side by side](https://roytang.net/2026/11/fb264c53e616887334d00d67a4648658/)
 
 [View all links](https://roytang.net/links)
 
