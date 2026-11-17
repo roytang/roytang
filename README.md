@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [Marvel Tōkon: Fighting Souls (PS5)](https://roytang.net/2026/11/marvel-tokon/)
 - [Weeknotes 2026-11-15](https://roytang.net/2026/11/weeknotes-11-15/)
 - [Weeknotes 2026-11-08](https://roytang.net/2026/11/weeknotes-11-08/)
 - [Movies / TV - September &amp; October 2026](https://roytang.net/2026/11/movies-tv-sep-oct-2026/)
 - [Weeknotes 2026-11-01 Undas Edition](https://roytang.net/2026/11/weeknotes-11-01/)
-- [Exit Strategy by Martha Wells (Murderbot Diaries book 4)](https://roytang.net/2026/10/exit-strategy/)
 
 [View all posts](https://roytang.net/blog)
 
