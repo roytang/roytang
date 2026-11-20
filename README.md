@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The Simulation We Are Living In](https://roytang.net/2026/11/2f386326a3acc2f3aa75d64869e0f695/)
+- [The case against generative AI • Minimum Viable Blog](https://roytang.net/2026/11/38cdacb3719c327e529156e8c8c16609/)
+- [Don’t Let Anyone Take Away Your Big Box of Cables - Jim Nielsen’s Blog](https://roytang.net/2026/11/b9e565830b8c4e9940263c4d3211392c/)
 - [An Inconvenient Life](https://roytang.net/2026/11/75d36594cd8f8815d07e43c88a0a7d4b/)
 - [A Call for Social Play (Librecast’s No AI Policy)](https://roytang.net/2026/11/ce687ff433c6eebefae346968fdf4fac/)
-- [The efficiency trap: why optimising everything can backfire, badly | Mathematics | The Guardian](https://roytang.net/2026/11/50b1e7d569b5e50e8ebcfb0c21ffe5ab/)
-- [The Web is Fantastic Actually, Sightless Scribbles](https://roytang.net/2026/11/ace0cd9994eb976bc15da3532476de67/)
-- [You Don&#x27;t Have to Blog · brennan.day](https://roytang.net/2026/11/c2b744fca024023fee4359eb5929e243/)
 
 [View all links](https://roytang.net/links)
 
