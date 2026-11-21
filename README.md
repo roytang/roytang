@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [All My Hobbies Are Getting Slopped Up, And It’s Exhausting](https://roytang.net/2026/11/d0ed2bf2158336e48b19d13a6d230d22/)
 - [The Simulation We Are Living In](https://roytang.net/2026/11/2f386326a3acc2f3aa75d64869e0f695/)
 - [The case against generative AI • Minimum Viable Blog](https://roytang.net/2026/11/38cdacb3719c327e529156e8c8c16609/)
 - [Don’t Let Anyone Take Away Your Big Box of Cables - Jim Nielsen’s Blog](https://roytang.net/2026/11/b9e565830b8c4e9940263c4d3211392c/)
 - [An Inconvenient Life](https://roytang.net/2026/11/75d36594cd8f8815d07e43c88a0a7d4b/)
-- [A Call for Social Play (Librecast’s No AI Policy)](https://roytang.net/2026/11/ce687ff433c6eebefae346968fdf4fac/)
 
 [View all links](https://roytang.net/links)
 
