@@ -6,11 +6,11 @@ Visit the site: [https://roytang.net](https://roytang.net)
 
 Latest blog posts:
 
+- [MTG: Reality Fracture](https://roytang.net/2026/11/mtg-fra/)
 - [A Postcard](https://roytang.net/2026/11/postcard/)
 - [Weeknotes 2026-11-22](https://roytang.net/2026/11/weeknotes-11-22/)
 - [Marvel Tōkon: Fighting Souls (PS5)](https://roytang.net/2026/11/marvel-tokon/)
 - [Weeknotes 2026-11-15](https://roytang.net/2026/11/weeknotes-11-15/)
-- [Weeknotes 2026-11-08](https://roytang.net/2026/11/weeknotes-11-08/)
 
 [View all posts](https://roytang.net/blog)
 
