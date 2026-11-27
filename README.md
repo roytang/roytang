@@ -26,11 +26,11 @@ Latest shared links:
 
 Latest notes:
 
+- [Nov. 27, 2026, 2:56 p.m. ](https://roytang.net/2026/11/117687095378869795/): I hate that I am starting to get used to how expensive everything is these days
 - [Nov. 24, 2026, 1:43 p.m. ](https://roytang.net/2026/11/117669821758813025/): @GeoffWozniak thanks!
 - [Nov. 24, 2026, 1:41 p.m. ](https://roytang.net/2026/11/117669814149299092/): @GeoffWozniak where can i check this
 - [Nov. 16, 2026, 2:58 p.m. ](https://roytang.net/2026/11/117624820889933905/): Lol talk about tone deaf. Blocking! #genai &quot;Verity Research&quot; responding to a post about &quot;No AI&quot; by promoting software to verify AI agents
 - [Nov. 13, 2026, 1:46 p.m. ](https://roytang.net/2026/11/117607549723146445/): In an ideal world, a big outage like this would teach people not to rely on big centralized corporate subscription based platforms. Sigh.
-- [Nov. 2, 2026, 1:39 p.m. ](https://roytang.net/2026/11/117545237769693198/): So many local small businesses have these #genai slop posters, its maddening and such a huge turnoff, I just grimace whenever I walk past them
 
 [View all notes](https://roytang.net/notes)
 
