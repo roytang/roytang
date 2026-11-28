@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [How building an HTML-first site doubled our users overnight](https://roytang.net/2026/11/8af5ef51c7ae326b655c6ed9dfb019f5/)
+- [You Must Remember This](https://roytang.net/2026/11/9853549c976adc3b1695f2f873473530/)
 - [Anarchist calisthenics - A Working Library](https://roytang.net/2026/11/ca8237d686cc3c7831608ec917153852/)
 - [On Moving Goalposts](https://roytang.net/2026/11/c4f632e3b71616bf1ec94cf4f4fb775a/)
 - [If you love a website, back it up - The Future Is Now](https://roytang.net/2026/11/13907fb6bee5da75356789fabfd08756/)
-- [🧠 We Need Smart People Who Give a Shit • VioletPixel](https://roytang.net/2026/11/104ab0d8353a14b855a4a9e779ea51f9/)
-- [The year the web industry gave up â David Bushell â Web Dev (UK)](https://roytang.net/2026/11/d5bdc0cecf770a24d4709aa307edf7ea/)
 
 [View all links](https://roytang.net/links)
 
