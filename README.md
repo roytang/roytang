@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [Anarchist calisthenics - A Working Library](https://roytang.net/2026/11/ca8237d686cc3c7831608ec917153852/)
+- [On Moving Goalposts](https://roytang.net/2026/11/c4f632e3b71616bf1ec94cf4f4fb775a/)
+- [If you love a website, back it up - The Future Is Now](https://roytang.net/2026/11/13907fb6bee5da75356789fabfd08756/)
+- [🧠 We Need Smart People Who Give a Shit • VioletPixel](https://roytang.net/2026/11/104ab0d8353a14b855a4a9e779ea51f9/)
 - [The year the web industry gave up â David Bushell â Web Dev (UK)](https://roytang.net/2026/11/d5bdc0cecf770a24d4709aa307edf7ea/)
-- [All My Hobbies Are Getting Slopped Up, And It’s Exhausting](https://roytang.net/2026/11/d0ed2bf2158336e48b19d13a6d230d22/)
-- [The Simulation We Are Living In](https://roytang.net/2026/11/2f386326a3acc2f3aa75d64869e0f695/)
-- [The case against generative AI • Minimum Viable Blog](https://roytang.net/2026/11/38cdacb3719c327e529156e8c8c16609/)
-- [Don’t Let Anyone Take Away Your Big Box of Cables - Jim Nielsen’s Blog](https://roytang.net/2026/11/b9e565830b8c4e9940263c4d3211392c/)
 
 [View all links](https://roytang.net/links)
 
