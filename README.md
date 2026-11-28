@@ -16,11 +16,11 @@ Latest blog posts:
 
 Latest shared links:
 
+- [The year the web industry gave up â David Bushell â Web Dev (UK)](https://roytang.net/2026/11/d5bdc0cecf770a24d4709aa307edf7ea/)
 - [All My Hobbies Are Getting Slopped Up, And It’s Exhausting](https://roytang.net/2026/11/d0ed2bf2158336e48b19d13a6d230d22/)
 - [The Simulation We Are Living In](https://roytang.net/2026/11/2f386326a3acc2f3aa75d64869e0f695/)
 - [The case against generative AI • Minimum Viable Blog](https://roytang.net/2026/11/38cdacb3719c327e529156e8c8c16609/)
 - [Don’t Let Anyone Take Away Your Big Box of Cables - Jim Nielsen’s Blog](https://roytang.net/2026/11/b9e565830b8c4e9940263c4d3211392c/)
-- [An Inconvenient Life](https://roytang.net/2026/11/75d36594cd8f8815d07e43c88a0a7d4b/)
 
 [View all links](https://roytang.net/links)
 
